@@ -1,89 +1,93 @@
 # Chapter 2121 - Secret Letter
 
-Now, outside Wuzhou city, the only entity with substantial grain reserves was the 1st Mixed Brigade. Although the brigade's supply train had stockpiled considerable military rations on Changzhou Island and elsewhere, it could only sustain the 1st Mixed Brigade for fifteen days.
+Outside Wuzhou's walls, the 1st Mixed Brigade alone possessed any substantial grain reserves. Though the brigade's supply train had stockpiled considerable military rations on Changzhou Island and at other forward positions, these stores could sustain operations for merely fifteen days.
 
-The resupply efficiency from the Sanshui Joint Logistics Base was steadily declining as the supply line stretched ever longer. The available steam-powered tugboats were limited, forcing reliance on requisitioned local wooden vessels to transport supplies—and these unpowered craft moved very slowly going upstream on the West River. Getting supplies to Zhaoqing was already a strain.
+Resupply from the Sanshui Joint Logistics Base grew more difficult with each passing day as the supply line stretched to its limits. Steam-powered tugboats were in desperately short supply, forcing the quartermasters to rely on requisitioned local craft—unpowered wooden vessels that crept upstream against the West River's current at an agonizing pace. Even reaching Zhaoqing strained their capacity.
 
-They had originally counted on taking Wuzhou—a major grain trading hub—and seizing local stores to supplement military provisions. But according to all available intelligence, Xiong Wencan had already moved the grain out. Even if Wuzhou fell without bloodshed, there wouldn't be much grain left—probably not enough to feed the local populace, let alone anyone else.
+They had banked on capturing Wuzhou—a major grain entrepôt—and seizing its stores to supplement their provisions. But intelligence consistently indicated that Xiong Wencan had already evacuated the grain. Even if Wuzhou fell bloodlessly, precious little would remain—scarcely enough to feed the city's own population, much less an occupying force.
 
-Most troublesome of all, Guangdong had long depended on Guangxi for its rice supply. Now that war had broken out, the flow of Guangxi grain had been completely cut off. The entire province's food supply now fell on the Council of Elders' shoulders. Rice shipped from Southeast Asia had to be transshipped through Lingao, Sanya, and Kaohsiung to Guangzhou; the longer the supply chain, the more acute the grain crisis became.
+The broader crisis loomed even larger. Guangdong had for generations relied on Guangxi rice to feed its people. With the outbreak of war, that vital flow had ceased entirely. The burden of feeding the entire province now rested squarely on the Council of Elders' shoulders. Rice from Southeast Asia had to be transshipped through Lingao, Sanya, and Kaohsiung before reaching Guangzhou—and with each link added to this lengthening chain, the food crisis deepened.
 
-If the 1st Brigade started providing relief to refugees, even at the bare-minimum "prevent starvation" standard, their stores would last only about a week. Even if they took Wuzhou immediately, the grain inside would be scarce, yet they would have shouldered the burden of the population—and the first step of Xiong Wencan's arson plan would surely be to burn whatever grain remained in the city.
+If the 1st Brigade undertook refugee relief, even at the bare minimum of subsistence rations, their stores would be exhausted within a week. Worse, taking Wuzhou would saddle them with responsibility for its population despite having no grain to distribute—and Xiong Wencan's first move in his scorched-earth plan would undoubtedly be to torch whatever meager supplies remained.
 
-If they didn't provide relief and let refugees scatter to fend for themselves, many would starve. First, this meant losing precious population; second, such blatant "standing by while people die" would severely damage the Council of Elders' carefully cultivated image of "benevolence" and "love for the people," undermining subsequent civil affairs work.
+Yet abandoning the refugees to their fate carried its own catastrophic costs. Uncounted thousands would starve—precious population lost. More damaging still, such callous disregard would shatter the Council of Elders' carefully cultivated reputation for benevolence and compassion for the common people, poisoning the well for all subsequent civil administration.
 
-"I think we have no choice but to provide relief." Zhu Mingxia said after much consideration.
+"We have no choice," Zhu Mingxia said at length. "We must provide relief."
 
-"Have the troops eat less and ration more out. If everyone drinks thin gruel together, we can at least hold on a few more days." Zhu Quanxing shook his head. "The problem is what happens after that. The chances of securing enough grain from Wuzhou are now close to zero. We're at the end of our supply line—our weakest point."
+"Have the troops tighten their belts and stretch the rations further. If everyone subsists on thin gruel together, we can hold out a few more days." Zhu Quanxing shook his head grimly. "The real question is what happens after that. Our chances of capturing meaningful grain stores in Wuzhou have dropped to nearly zero. We're at the ragged end of an overextended supply line—at our most vulnerable."
 
-They had assumed that with the West River at their backs, the 1st Brigade's logistics would be the easiest. But at sufficient distance, the weaknesses of their transport capacity were fully exposed.
+They had assumed the West River would make supplying the 1st Brigade child's play. But distance had exposed the fatal weaknesses in their transport capacity.
 
-"For now, we can only take it one step at a time. Wuzhou must be taken, and the civilians must be fed!" Zhu Mingxia frowned.
+"One step at a time, then. Wuzhou must be taken, and the civilians must be fed." Zhu Mingxia's frown deepened.
 
-As they were discussing, a runner came to report: Xu Ke had brought the old man who insisted on seeing a chief.
+Their deliberations were interrupted by a runner: Xu Ke had arrived with the old man demanding an audience with a chief.
 
-Zhu Mingxia paused. Normally, Xu Ke could handle such matters himself; bringing the old man here meant there must be important intelligence. Recalling that Xu Ke had mentioned "Lone Wolf" was active inside the city—this old man was probably his courier or something similar.
+Zhu Mingxia paused. Xu Ke could normally handle such petitioners himself. If he'd brought the man directly here, the intelligence must be critical. Xu Ke had mentioned that "Lone Wolf" was active inside the city—this old man was likely his courier.
 
 "Show them in."
 
-Half an hour earlier, Xu Ke had already questioned Li Wensheng. As an intelligence officer, he was quite fluent in Cantonese and could converse without difficulty. When he heard the emergency contact code the old man gave, he nodded quietly, looked Li Wensheng over, and asked: "Do you know Luo Yangming? Was it he who asked you to carry this letter?"
+---
 
-Li Wensheng had finally met a chief. He was just wondering how to begin when the Australian spoke first. He was startled, then immediately nodded: "Yes—he is this humble one's master."
+Half an hour earlier, Xu Ke had interrogated Li Wensheng in the outer tent. As an intelligence officer, his Cantonese was fluent enough for easy conversation. The moment Li Wensheng recited the emergency contact phrase, Xu Ke's expression sharpened. He studied the old man carefully before asking, "Do you know Luo Yangming? Did he send you with this letter?"
 
-Only then did he fully explain his identity and his relationship with Luo Yangming.
+Li Wensheng had finally reached a chief of the Australians. Still gathering his thoughts on how to begin, he was caught off-guard when the foreigner spoke first. Startled, he nodded quickly. "Yes—he is this humble one's master."
 
-"...The city is in chaos now. My master especially instructed me to deliver this letter to the chiefs—he said it could save the people of Wuzhou from fire and flood..." As he spoke, he fumbled in his shoe and produced an oilcloth packet.
+Only then did he explain his identity and relationship with Luo Yangming in full.
 
-Xu Ke nodded. Seeing that Li Wensheng was exhausted after a harrowing night, stomach growling audibly, he ordered tea and snacks brought.
+"...The city has descended into chaos. My master gave me strict instructions to deliver this letter to the chiefs—he said it could save the people of Wuzhou from fire and flood..." Even as he spoke, Li Wensheng fumbled inside his shoe and produced a waterproofed oilcloth packet.
 
-A runner brought a cup of tea and a paper-wrapped packet of pastries. Li Wensheng tried one—crisp, sweet, and fragrant. Not bad at all. He glanced at the wrapper, which read: "Zhang's of Guangzhou City — Special for the Grand World — Cookies — Century-Old Australian Recipe."
+Xu Ke nodded, noting how the old man trembled with exhaustion after his harrowing night flight, his stomach growling audibly. He ordered tea and food brought.
 
-These Australian pastries were quite tasty, he thought, and his nerves settled considerably.
+When a runner arrived with tea and a paper-wrapped parcel of pastries, Li Wensheng sampled one gingerly. Crisp, sweet, perfectly balanced—remarkably good. He glanced at the wrapper: "Zhang's of Guangzhou City — Special for the Grand World — Cookies — Century-Old Australian Recipe."
 
-Xu Ke unwrapped the oilcloth. Inside was a letter addressed to "Such-and-such shopkeeper at Such-and-such trading house in Sanshui." He broke the seal and drew out two sheets of paper, reading them by lantern light.
+These Australian delicacies were quite fine, he decided, and his nerves settled.
 
-The content was unremarkable: given the current siege of Wuzhou and the possibility of something happening to him, this was how outstanding accounts and goods between them should be settled, and what arrangements should be made—perfectly fitting the identity of a merchant making contingency plans in the face of danger. Even if intercepted, it would cause no suspicion.
+Xu Ke unwrapped the oilcloth. Inside lay a letter addressed to "Mr. So-and-so, shopkeeper at Such-and-such Trading House, Sanshui." He broke the seal and withdrew two sheets of paper, angling them toward the lamplight.
 
-The secret was in the invisible ink written between the lines.
+The visible text was utterly mundane—a merchant's contingency instructions for settling accounts and resolving outstanding business arrangements in case the siege proved fatal. The content fit Luo Yangming's cover perfectly. Even if intercepted, it would arouse no suspicion whatsoever.
 
-The External Intelligence Bureau's invisible ink was nothing exotic—mainly rice-water, essentially available everywhere. Xu Ke swabbed the paper with iodine solution, and blue characters immediately appeared.
+The real message lay hidden between the lines.
 
-Small-script regular characters in blue, densely packed—even the blank reverse side was covered. Xu Ke read through carefully, then smiled at Li Wensheng: "Thank you so much! This is a great gift!"
+The External Intelligence Bureau's invisible ink was nothing elaborate—primarily rice water, available in any kitchen. Xu Ke daubed the paper with iodine solution. Blue characters bloomed instantly across the page.
 
-Zhu Mingxia studied the hand-copied contents of the secret letter that Xu Ke had brought. It was Lone Wolf's report. The first part described the situation inside Wuzhou. First: morale was unstable. He had already contacted a group of influential local "worthies" who, to protect their lives and property, had taken control of portions of the local military and militia, securing important government offices and granaries. However, rioters were numerous and the entire city couldn't be controlled. He urgently requested the Fubo Army to attack as soon as possible and restore order before large-scale chaos ensued. Finally, he specifically noted that Xiong Wencan's arson plan was imminent; as order collapsed, massive intentional fires could break out at any time—the consequences unthinkable.
+Dense rows of blue characters in meticulous regular script covered every available space, even the reverse. Xu Ke read through carefully, then smiled at Li Wensheng. "You've brought us a tremendous gift. Thank you."
 
-"It looks urgent..." Zhu Mingxia finished the letter, then asked Li Wensheng a few more questions, realizing the situation inside was already dire. The observation post also reported that faint firelight could be seen within the city—apparently some areas were already burning.
+---
 
-If Wuzhou went up in flames, the consequences would be disastrous. Not only would the city's meager remaining grain be destroyed, but tens of thousands of civilians inside would be left homeless. The Fubo Army would then face tens of thousands of refugees without food, clothing, or shelter. For every reason—practical and moral—the Fubo Army would have to provide relief. The Sanshui joint-logistics command would have to ship not only grain but vast quantities of relief supplies to resettle the populace.
+Zhu Mingxia studied the hand-copied transcript Xu Ke had prepared from Lone Wolf's report. The first section detailed conditions inside Wuzhou. Morale had collapsed. Luo Yangming had managed to contact a coalition of influential local gentry who, desperate to protect their lives and property, had seized control of portions of the garrison and militia. They now held key government offices and granaries. Yet rioters roamed unchecked through much of the city. Lone Wolf urgently requested the Fubo Army assault the city immediately to restore order before chaos consumed everything. A final warning emphasized the imminent danger: Xiong Wencan's arson plan could trigger massive conflagrations at any moment as civil authority disintegrated—the consequences would be catastrophic.
 
-Even if the 1st Brigade took Wuzhou, the logistical burden would force them to retreat with the refugees—back to where supplies were more accessible. It would be tantamount to defeat.
+"Time is running out..." Zhu Mingxia glanced up from the letter to question Li Wensheng further, confirming that conditions inside had indeed deteriorated drastically. The observation posts were already reporting faint glows within the city walls—fires had apparently begun.
 
-The second part concerned the garrison's situation. First, rumors suggested Xiong Wencan and some key officials had already fled Wuzhou...
+If Wuzhou burned, the disaster would be complete. Not only would the city's paltry remaining grain be reduced to ash, but tens of thousands of civilians would be rendered homeless. The Fubo Army would find itself responsible for hordes of destitute refugees lacking food, clothing, and shelter. On every level—practical and moral—they would have no choice but to provide relief. Sanshui logistics would have to ship not merely grain but enormous quantities of relief supplies to resettle the population.
 
-"He got away?!" Zhu Quanxing, who had joined the meeting, sounded faintly disappointed.
+Even capturing Wuzhou intact, the logistical burden would be crippling. They might be forced to withdraw with the refugees in tow, falling back to where supplies were more readily available. It would amount to defeat despite nominal victory.
 
-"With our numbers, a watertight blockade of Wuzhou was always going to be difficult." Zhu Mingxia said lightly. "He escaped—so be it. Capturing him would have been more trouble than it's worth."
+The second section addressed the garrison's status. Rumors strongly suggested Xiong Wencan and his senior officials had already fled the city...
 
-The letter specifically mentioned that all the factions preparing to "turn coat" had agreed on a recognition signal: white cloth strips tied around the left arm. Important yamens, granaries, and towers already under control would display double lanterns as a sign. The Fubo Army was asked to take note when entering the city.
+"He escaped?" Zhu Quanxing, who had joined them, couldn't quite hide his disappointment.
 
-Further down: the Ming main force had split into two columns, retreating toward western and northern Guangxi—no secret, since scouts had already spotted them. Next came the locations of Ming grain depots: the letter stated that most of Wuzhou's stored grain had been shipped to Tengxian.
+"With the forces we have available, establishing a hermetic blockade around Wuzhou was never realistic." Zhu Mingxia's tone was philosophical. "Let him go. Capturing him would have created more problems than it solved."
 
-"How about we hit Tengxian?" Zhu Quanxing suggested. "If the intelligence is accurate, we can at least grab a large haul of grain."
+The letter went on to specify recognition signals the collaborationist factions had agreed upon: white cloth strips tied around the left arm. Key installations already secured—government offices, granaries, watchtowers—would display double lanterns. The Fubo Army was to watch for these markers upon entering the city.
 
-Zhu Mingxia nodded. It was a good idea, though they still didn't know exactly where in Tengxian the grain was—the Ming supply depot wasn't necessarily in the county seat. Right now, Wuzhou was more urgent; they shouldn't split forces yet.
+Further down came troop dispositions: the Ming main force had fragmented into two columns retreating toward western and northern Guangxi. This was hardly news—scouts had already tracked their movements. More valuable was the intelligence on grain depots: according to Lone Wolf, the bulk of Wuzhou's stockpiled grain had been evacuated to Tengxian.
 
-"Let's settle Wuzhou first." He glanced at his watch: 2:30 a.m. Nearly three hours until dawn. "We need to act quickly—if a citywide fire really breaks out, there's no recovering." Zhu Mingxia said. "The moment it starts getting light, we attack! Take Wuzhou as fast as possible!"
+"What if we strike Tengxian instead?" Zhu Quanxing proposed. "If this intelligence is solid, we could capture a substantial haul."
 
-"Understood!" Zhu Quanxing replied. "The troops are ready."
+Zhu Mingxia nodded thoughtfully. The idea had merit, though they still lacked precise details—the Ming depot might not be in the county seat itself. Regardless, Wuzhou demanded immediate attention. Dividing their forces now would be inadvisable.
 
-Zhu Mingxia then held a brief meeting with the 1st Brigade's principal officers, sharing Lone Wolf's intelligence. Several decisions were made: First, the refugees must be properly settled and fed. Wuzhou, this key trading town at the Guangdong-Guangxi border, was one the Council of Elders intended to hold firmly; winning popular support here and laying a political foundation was essential. Even if the 1st Brigade itself was short on food, they couldn't let the refugees starve. They would also build shelters so the elderly and infirm had somewhere to escape the elements.
+"We settle Wuzhou first." He checked his watch: 2:30 a.m. Less than three hours until first light. "Speed is essential. If those fires spread throughout the city, we'll never recover." He looked up sharply. "We attack at dawn. Take Wuzhou as quickly as humanly possible."
 
-Second, the immediate grain problem: starting tomorrow, the troops would skip one meal a day, diverting the saved rations to the refugees. Since they now knew the Ming grain depot's location, following the Fubo Army's usual practice, they would naturally go foraging. A decision was made to send scouts to Tengxian to gather further intelligence before the next steps.
+"Understood. The troops are ready." Zhu Quanxing's reply was crisp.
 
-"Are the loudspeakers set up?" Zhu Mingxia asked.
+Zhu Mingxia then convened a hasty conference with the 1st Brigade's senior officers to disseminate Lone Wolf's intelligence. Several critical decisions emerged. First, refugee relief was non-negotiable. Wuzhou occupied a strategic position astride the Guangdong-Guangxi border—the Council of Elders intended to hold it permanently. Winning the population's trust and establishing political legitimacy here was paramount. Even if the brigade itself faced shortages, they could not allow refugees to starve. Shelter construction would begin immediately so the elderly and infirm had protection from the elements.
 
-"All in place," Xu Ke said.
+Second, immediate measures to address the grain crisis: beginning tomorrow, troops would skip one meal daily, redirecting those rations to refugee relief. Now that they knew the location of the Ming grain depot, standard Fubo Army doctrine applied—they would forage for supplies. Scouts would be dispatched to Tengxian immediately to gather detailed intelligence before determining next steps.
 
-"Write a 'Proclamation to the People of Wuzhou' and start broadcasting immediately. Even though Xiong Wencan's plan to burn the city is probably no longer a secret inside, we should still expose him. And put some pressure on those soldier-bandits—let them know that anyone who tries to loot will not end well."
+"Are the loudspeakers positioned?" Zhu Mingxia asked.
+
+"All in place," Xu Ke confirmed.
+
+"Draft a 'Proclamation to the People of Wuzhou' and begin broadcasting immediately. Xiong Wencan's plan to burn the city is probably common knowledge inside by now, but we should expose him publicly nonetheless. And apply some pressure to those would-be looters—make certain they understand that pillaging will not be tolerated."
 
 *(End of Chapter)*

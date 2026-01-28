@@ -1,121 +1,121 @@
 # Chapter 2161 - Pursuit Planning
 
-Zhu Si suddenly understood Mi Longtao's intention: he wanted to pursue the bandits and wipe them out in one sweep.
+The moment struck Zhu Si like lightning—he understood Mi Longtao's intent. The officer wasn't content with mere victory; he meant to pursue the bandits and annihilate them completely.
 
-But the forces assembled at Xugang were really quite small—they had no advantage in numbers and no advantage in weapons.
+Yet their forces assembled at Xugang remained pitifully small. They possessed neither numerical superiority nor any meaningful advantage in arms.
 
-His face paled a bit, and he stammered: "Perhaps... perhaps we should request that Yunan County also dispatch forces to coordinate..."
+Color drained from Zhu Si's face. "Perhaps... perhaps we should request reinforcements from Yunan County to coordinate..."
 
-"I've already sent word. But with the round trip, by the time they arrive they'll only be doing cleanup." Mi Longtao said, "Still, that's fine. With the enemy concentrated in force, this is a good opportunity for a combined sweep." He pointed at the map with one hand. "Though the enemy has fled, there aren't many routes they can take in this area. Before entering Xugang, I already sent the Investigation Squad and scouts to track them down..."
+"Already done." Mi Longtao's tone was matter-of-fact. "But by the time they make the round trip, they'll arrive only to sweep up corpses." He gestured at the map with his good hand. "Still, no matter. With the enemy concentrated in one place, this presents an ideal opportunity for a combined operation." His finger traced several routes. "The bandits have fled, yes, but this terrain limits their options. Before I even entered Xugang, I dispatched the Investigation Squad and scouts to track their movements."
 
-As he spoke, a runner hurried over and whispered a few words in his ear. Mi Longtao's eyes lit up. "Where is he?"
+A runner materialized at his elbow, whispering urgently. Mi Longtao's eyes kindled. "Where?"
 
-"At the Declaration Pavilion. He says he escaped—he's wounded!"
+"The Declaration Pavilion, sir. An escapee—wounded."
 
-"Good. Let's go have a look." Mi Longtao rose and told them, "A villager just came to report that a large body of bandits has arrived in his village and is resting there. Let's go assess the situation together."
+"Excellent." Mi Longtao rose fluidly. "A villager has just reported that a large bandit force is resting in his hamlet. Let's assess the situation personally."
 
 "Yes, sir!"
 
-Because one of his arms was injured, Mi Longtao had trouble handling the map; Zhu Si hastily helped him fold it up.
+With his injured arm, Mi Longtao struggled to manage the map. Zhu Si hastened to fold it for him.
 
-When they arrived at the Declaration Pavilion, a crowd of villagers had already gathered outside, craning necks and standing on tiptoes to peer inside. Village militia held back the crowd. Seeing them approach, the men quickly cleared a path.
+At the Declaration Pavilion, a crowd of villagers had gathered—necks craning, bodies pressed together as they stood on tiptoes to glimpse inside. The village militia held them at bay, but the soldiers parted immediately when they spotted the officers approaching.
 
-Inside the pavilion, several soldiers and guards watched over a gaunt, dark-skinned man slumped on a long bench. A medic was busy bandaging him; several village elders stood in the courtyard looking on.
+Inside, several guards surrounded a gaunt, sun-darkened man collapsed on a long bench. A medic worked swiftly over his wounds while village elders observed from the courtyard with grave expressions.
 
-"This is the one. He ran all the way here and collapsed outside the gate—the militia carried him in." The sergeant on scene reported. "He caught an arrow. The medic is treating him."
+"This is him, sir." The duty sergeant stepped forward. "Ran all the way here before collapsing at the gate. The militia brought him in. Arrow wound. The medic's treating him now."
 
-"Is he conscious?"
+"Can he speak?"
 
-"Yes." The sergeant said, "We searched him. No weapons."
+"Yes, sir. We've searched him—no weapons."
 
-Mi Longtao nodded. "Bring him here. I have questions."
+Mi Longtao nodded curtly. "Bring him forward. I have questions."
 
-From the brief interrogation, they learned the man came from a small hamlet called Lizui. About half an hour ago (two meals' worth of time), a gang of bandits had stormed the village, rounded up all the inhabitants, and forced the women to cook while they rested.
+The interrogation proved brief but revealing. The man hailed from a tiny hamlet called Lizui. Roughly half an hour earlier—he measured time in meals—bandits had descended on the village, herded all inhabitants together, and forced the women to prepare food while the gang rested.
 
-"...All the villagers are being held in the ancestral hall. When I ran, they shot me with an arrow and I passed out. They thought I was dead, and that's how I got away..."
+"They're holding everyone in the ancestral hall..." The man's voice trembled. "When I tried to run, they shot me. The arrow knocked me down and I lost consciousness. They must have thought me dead—that's the only reason I escaped."
 
-Mi Longtao said nothing, exchanging a few low words with the Fengchuan Investigation Squad captain. Then he asked: "How many bandits?"
+Mi Longtao listened in silence, then exchanged quiet words with the Fengchuan Investigation Squad captain. Finally: "How many?"
 
-"I was running—didn't get a clear count. About two hundred."
+"I didn't stop to count while running for my life. Roughly two hundred."
 
-Mi Longtao signaled for the man to be led out. He then questioned local villagers, opening the map to point and compare. Zhu Si and Li Dong didn't dare interrupt.
+With a gesture, Mi Longtao dismissed him. He then summoned local villagers, spreading the map and cross-referencing their testimony with the terrain. Zhu Si and Li Dong knew better than to interrupt.
 
-"Come look," Mi Longtao beckoned them over.
+"Come here." Mi Longtao beckoned them closer.
 
-"I just asked the locals. Lizui is a small hamlet about two and a half kilometers from here—only twenty-odd households. A few days ago, the residents scattered to take refuge in larger fortified villages with militia. Only some elderly and infirm who couldn't or wouldn't leave stayed behind."
+"I've questioned the locals. Lizui is a small settlement approximately two and a half kilometers from our position—perhaps twenty households in total. When the troubles began several days ago, most residents fled to the larger fortified villages that maintain militia. Only the elderly and infirm—those unwilling or unable to leave—remained behind."
 
-"Is the informant reliable?" Zhu Si asked.
+"Can we trust the informant?" Zhu Si ventured.
 
-"Good question." Mi Longtao nodded approvingly. "There are refugees from Lizui here in Xugang. This man is definitely a Lizui native—ordinarily just a common villager, not a dubious character."
+"Excellent question." Mi Longtao's approval was evident. "We have Lizui refugees sheltering here in Xugang. This man is definitely from that hamlet—a common laborer, not someone with questionable allegiances."
 
-"So the information is genuine."
+"Then the intelligence is sound."
 
-"Yes. This enemy group is probably part of the force that besieged Xugang and ambushed us. I intend to destroy them!" Mi Longtao said. "What do you think?"
+"Indeed. This enemy contingent almost certainly participated in the siege here and the ambush against our column. I intend to destroy them utterly." Mi Longtao's gaze swept across both officers. "Objections?"
 
-Since Mi Longtao had said so, Zhu Si and Li Dong could only express agreement.
+What could they say? Zhu Si and Li Dong voiced their agreement.
 
-"Immediately send a few men to conduct reconnaissance near Lizui!" Mi Longtao issued orders. "Also, find some more Lizui villagers to interview—get details on the local situation!"
+"Dispatch reconnaissance teams to Lizui immediately!" Mi Longtao's orders came rapid-fire. "Interview more refugees—I want detailed intelligence on the local terrain!"
 
-Before long, they had gathered considerable intelligence from Lizui refugees, and an apprentice ensign had sketched a crude map.
+Within the hour, they had compiled substantial information from the Lizui refugees. An apprentice ensign produced a rudimentary sketch map.
 
-From the map, Lizui was a small basin set among low hills, surrounded on all sides except for a lower gap on the north. But the map was quite primitive—no contour lines or similar markings; it was barely more than a rough diagram.
-
----
-
-"According to the locals: the hills are low—mostly under ten meters—with gentle slopes, not a major geographic obstacle. They're planted with fruit trees, with a few other hardwoods. The surrounding terrain is similar: large areas of flat land dotted with hills of varying sizes. Between the hills are mostly paddies, ponds, channels, and streams. In terms of terrain alone, the hamlet is very well concealed—which is one reason some residents didn't want to leave and take refuge."
-
-"Honestly, if the enemy decides to hold out, attacking would be tough on us," Li Dong said.
-
-Though the hamlet itself was indefensible, the surrounding paddies and wetlands actually favored the defenders. An attacking force could only advance along a single village road and a few paddy dikes; however many troops you had, you couldn't deploy them. And the Beiwei Army's firepower advantage would be hard to bring to bear.
-
-"You're right," Mi Longtao agreed with his assessment. "But though attacking isn't easy for us, it's also hard for the enemy to run."
-
-In this kind of terrain, a defending force trying to retreat had only one route available too.
-
-"We just need to flush the enemy out of the village—then they'll be easy to hit." Mi Longtao checked the sky. "Has the Yunan County force arrived?"
-
-"Not yet!"
-
-"Too slow." A displeased expression crossed his face. He turned to Zhu Si. "I need to borrow the mountain howitzers from your boats."
-
-"No problem. The guns and ammunition are all in good order—ready to fire at any time." Zhu Si nodded repeatedly. He had a fair idea of Mi Longtao's plan: most likely he intended to mass all the shipboard artillery for a barrage of Lizui, then drive the enemy out of the village with a single charge and intercept them along the escape route.
-
-By a little past four in the afternoon, the scouts who had gone to Lizui returned.
-
-"...There are about two hundred-plus holdouts defending the village. They've concentrated their defenses at the village entrance. They've positioned firearms on the surrounding hills—wooden cannons and various guns. Security is tight; we couldn't get close enough for detailed reconnaissance." The scout pointed at the marked-up map. "But the enemy hasn't built fortifications. It looks like they're ready to run at any moment."
-
-"You all heard—the enemy situation isn't complicated," Mi Longtao said. "I estimate the enemy is holed up there waiting to slip away under cover of darkness. There's no time to lose. We move out now."
-
-The task assigned to the Wuzhou Composite Company was to assault Lizui from the front, while Mi Longtao's force lay in ambush on the enemy's escape route to intercept the routed troops.
-
-"How does this sound? Any problems?" The plan took full account of each unit's equipment, combat capability, and the enemy situation. The enemy's morale was low; the National Army had artillery support; the assault shouldn't meet too much resistance. In contrast, the troops fleeing the village would be fighting like cornered beasts, so the more elite Beiwei regulars and mountain warfare company would do the blocking.
-
-For Zhu Si, however—whether storming the village or intercepting on the road—neither was a good assignment. The Composite Company was poorly equipped and undertrained. Any fight was likely to be a hard one. But he dared not show any reluctance; instead, he declared he would "absolutely complete all missions."
-
-"I'll have the Xugang militia send some men to support you," Mi Longtao said. "Make as much noise as possible."
+The map revealed Lizui as a small basin cradled among low hills, enclosed on all sides save for a depression to the north. The cartography remained primitive—no contour lines, no proper surveying marks. Little more than a crude diagram.
 
 ---
 
-"From here to the village entrance is at least half a *li*." Zhu Si stood on a small hillock, scanning through binoculars.
+"According to locals, the hills barely reach ten meters—gentle slopes throughout, hardly a significant obstacle. Fruit trees dominate the planting, with scattered hardwoods. The broader terrain follows the same pattern: expansive flatlands punctuated by hills of varying elevations. Between them lie rice paddies, fishponds, irrigation channels, and streams. In terms of concealment, the hamlet's position is excellent—one reason some residents refused evacuation."
 
-The entire Wuzhou Composite Company, plus three mountain howitzers and about a hundred able-bodied men from Xugang, were now gathered in the woods on this hillside.
+"If the enemy decides to entrench, we'll have our hands full," Li Dong observed.
 
-Li Dong said nothing. Through his binoculars, apart from a haphazard barricade of furniture and debris at the village entrance, there were no real defensive works—just a few sloppily dressed bandits loitering behind the barricade.
+Though the hamlet itself offered minimal defensive value, the surrounding paddies and wetlands heavily favored the defender. Any assault would be channeled along a single village road and narrow paddy dikes—no matter their numbers, troops couldn't deploy properly. Even the Beiwei Army's firepower superiority would be difficult to leverage effectively.
 
-But on the hills flanking the entrance, in the trees, he could make out figures moving—and even the wooden cannons and matchlocks they had set up in the undergrowth.
+"You're absolutely right." Mi Longtao acknowledged the assessment. "However, while attacking proves difficult for us, retreat is equally problematic for them."
 
-"...There are enemy positions on both flanks," he reminded Zhu Si.
+In such terrain, a defending force attempting withdrawal had only one viable route.
 
-"I can see." Zhu Si said irritably. "Small cannon, matchlocks—well equipped, aren't they? If we march up there in formation, one volley will kill or wound half of us!"
+"We merely need to drive them from the village—after that, they're exposed." Mi Longtao checked the sky. "Has the Yunan County detachment arrived?"
 
-Li Dong's heart sank. He understood Zhu Si's concern. Sending the Composite Company on an assault like this was an uncertain proposition. In the Beiwei Army, he had been just a soldier—orders were orders, no discussion. But now he was a National Army officer. Though his status was lower, behind him stood over a hundred brothers' lives. If a battle ended in a carpet of corpses, even if his superiors didn't hold him accountable, he couldn't live with himself.
+"Not yet, sir."
 
-How should they do this? He pondered silently, continuing to observe through his binoculars. He noticed that the enemy firepower on the hills was concentrated near the village entrance; the other areas had no firearms deployed.
+"Too slow." Displeasure flickered across his features. He turned to Zhu Si. "I'll need to borrow your boats' mountain howitzers."
 
-"Captain, our men can't fight straight up—a frontal assault would be cut down by a single volley. I suggest we split our forces: one column attacks the front to draw the enemy's attention, while I lead another column around to the flank and work our way up from there..."
+"Of course. The guns are maintained and ready—ammunition stocked. We can begin firing immediately." Zhu Si nodded eagerly. Mi Longtao's plan was becoming clear: concentrate all available shipboard artillery for a bombardment of Lizui, then drive the enemy from the village with a single decisive push and intercept them along their escape route.
 
-"What nonsense!" Zhu Si snapped. "Flank! Over there it's all paddies you sink into and can't get out of, or else channels. Before you and your men can crawl out of the mud, there won't be any bandits left in the village!"
+Shortly after four in the afternoon, the scouts returned from Lizui.
 
-"Let the soldiers go barefoot. A lot of the lads in the company are locals—many grew up working paddies; they can manage." Li Dong said. "I can lead the group around quietly first. As soon as Lieutenant Mi's side fires the signal rocket, we launch from both sides simultaneously..."
+"Approximately two hundred holdouts defending the village. They've concentrated defenses at the main entrance with firearms positioned on the surrounding hills—wooden cannons, various matchlocks. Security is tight; we couldn't approach closely enough for detailed reconnaissance." The scout indicated positions on the marked map. "No fortifications built, though. They appear ready to abandon the position at a moment's notice."
+
+"You've all heard—the enemy situation is straightforward." Mi Longtao surveyed his officers. "I estimate they're waiting to slip away under darkness. Time is against us. We move immediately."
+
+The Wuzhou Composite Company would assault Lizui frontally while Mi Longtao's force established an ambush along the enemy's retreat route to catch the fleeing bandits.
+
+"Questions? Concerns?" The plan accounted for each unit's equipment, combat capability, and the enemy disposition. Enemy morale was shattered; the National Army possessed artillery support. The frontal assault should face minimal resistance. Conversely, bandits fleeing the village would fight with the desperation of cornered animals—thus the more elite Beiwei regulars and mountain warfare company would handle the interception.
+
+For Zhu Si, both assignments spelled trouble. Whether storming the village or blocking the road, the Composite Company remained poorly equipped and inadequately trained. Any engagement promised to be brutal. Yet he dared not display the slightest hesitation. "We'll complete the mission absolutely, sir."
+
+"The Xugang militia will provide support." Mi Longtao's expression softened slightly. "Make noise. As much as possible."
+
+---
+
+"Half a *li* at minimum from here to the village entrance." Zhu Si lowered his binoculars, voice tight.
+
+The entire Wuzhou Composite Company—augmented by three mountain howitzers and roughly a hundred able-bodied men from Xugang—had assembled in the wooded hillside.
+
+Li Dong remained silent, studying the terrain through his own glass. Beyond a makeshift barricade of furniture and debris blocking the village entrance, he saw no meaningful defensive works. A handful of slovenly bandits lounged behind the obstruction.
+
+But the flanking hills told a different story. Among the trees, figures moved with purpose. He spotted wooden cannons and matchlocks concealed in the undergrowth.
+
+"Enemy positions on both flanks," he warned Zhu Si.
+
+"I have eyes." Irritation sharpened Zhu Si's tone. "Light cannons, matchlocks—they're better equipped than we are. March our boys up there in formation and one volley cuts us in half."
+
+Li Dong's stomach knotted. He understood Zhu Si's anxiety perfectly. Ordering the Composite Company into such an assault was tantamount to a death sentence. In the Beiwei Army, he had been merely a soldier—orders were absolute, discussion forbidden. But now he wore a National Army officer's insignia. Though his rank remained modest, over a hundred lives depended on his decisions. If this battle ended with corpses carpeting the ground, even if his superiors absolved him, his own conscience would not.
+
+How to proceed? He continued scanning through the binoculars, mind working furiously. The enemy firepower concentrated near the village entrance; elsewhere along the hilltops, the positions looked thinly held.
+
+"Captain, a direct assault is suicide—one volley and we're shredded. I propose we divide our forces. One column attacks frontally to fix their attention while I take another column through the flank and work our way up from there."
+
+"Nonsense!" Zhu Si's rebuke was instant. "Flank? That entire approach is rice paddies that'll swallow you whole, or else irrigation channels. By the time you and your men finish crawling through the mud, the bandits will be long gone."
+
+"The men go barefoot. Half the company are locals—they grew up working those paddies. They can manage it." Li Dong pressed on. "I'll lead the flanking element into position quietly. The moment Lieutenant Mi's signal rocket goes up, we hit them from both directions simultaneously."
 
 (Chapter End)

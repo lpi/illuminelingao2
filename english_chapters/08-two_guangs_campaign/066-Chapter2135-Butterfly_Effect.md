@@ -1,93 +1,93 @@
 # Chapter 2135 - Butterfly Effect
 
-Xie Erren was halfway through the Wuzhou Paper-Wrapped Chicken when Xu Ke arrived in a hurry. Xie Erren instructed to set up a chair and cutlery, and ordered a few more dishes.
+Xie Erren was halfway through his Wuzhou Paper-Wrapped Chicken when Xu Ke arrived in haste. Xie Erren gestured for another chair and place setting, calling for additional dishes.
 
-"No need to add dishes," Xu Ke waved his hand. "These dishes are enough. Just serve me a bowl of rice."
+"No need for more dishes," Xu Ke waved dismissively. "These suffice. Just bring me rice."
 
-Seeing Xu Ke's complexion wasn't good, seemingly full of worry, Xie Erren asked, "Old Xu, why are you here so late? Something happened?"
+Noting Xu Ke's troubled expression—worry etched across his features—Xie Erren asked, "Old Xu, what brings you here so late? Has something happened?"
 
-"Yes." Xu Ke picked up the bowl and chopsticks, shoveled a large mouthful of rice into his mouth, and whispered while eating, "I just received a telegram from Zhu Mingxia. The scale of the Eight-Row Yao disturbance has begun to expand, and some Ming army garrison posts have collapsed. A portion of the Yao armed forces are gathering and will likely besiege various county seats."
+"Yes." Xu Ke seized his bowl and chopsticks, shoveling a generous mouthful of rice, speaking through bites: "Just received a telegram from Zhu Mingxia. The Eight-Row Yao disturbance has begun expanding in scale. Several Ming garrison posts have collapsed. Portions of Yao armed forces are consolidating—they'll likely besiege various county seats."
 
-"This is big trouble!" Xie Erren was startled. The various county seats had just been taken and were basically in an empty state. Some county seats didn't even have National Army troops; except for local forces like militia brave, they could be said to be empty cities.
+"This is serious trouble!" Xie Erren's alarm spiked. The various county seats had just fallen and remained essentially hollow. Some lacked even National Army troops; beyond local militia forces, they qualified as empty cities.
 
-The withdrawal of the Ming Army's East and West Mountain Anti-Yao Deputy Regional Commander and the Central Route Garrison Commander removed constraints on the Eight-Row Yao Uprising compared to history, causing the outbreak to be larger in scale and wider in scope. In the previous stage, many Ming army Wei-Suo garrison posts that had surrendered in Zhaoqing were besieged, and many stockades had already fallen.
+The Ming Army's withdrawal of the East and West Mountain Anti-Yao Deputy Regional Commander and Central Route Garrison Commander had removed historical constraints on the Eight-Row Yao Uprising, causing the outbreak to escalate beyond precedent in both scale and scope. In the previous phase, many Ming Wei-Suo garrison posts that had surrendered in Zhaoqing faced sieges, with numerous stockades already fallen.
 
-"...In short, this Yao rebellion is fiercer and wider in scope than in history. Zhu Mingxia asked me to tell you to pay attention to city defense and surrounding security work—historically, Yao armed forces attacked Wuzhou many times and even breached it once..."
+"In brief, this Yao rebellion burns fiercer and spreads wider than history records. Zhu Mingxia instructed me to emphasize city defense and perimeter security—historically, Yao forces attacked Wuzhou repeatedly and successfully breached it once..."
 
-Hearing this, Xie Erren's hands turned icy cold, and more than half of his original lofty ambition vanished. *This is probably the so-called butterfly effect.* He hurriedly asked, "Wuzhou is a frontline city; are there reinforcements?"
+Hearing this, Xie Erren's hands turned ice-cold, more than half his lofty ambitions evaporating. *The so-called butterfly effect.* He urgently asked, "Wuzhou is a frontline city—are reinforcements coming?"
 
-"Zhu Mingxia wishes he could pull Zhu Quanxing's 3rd Battalion back right now. He didn't make that move considering Wuzhou's importance." Xu Ke said, "The 3rd Battalion will still stay in Wuzhou; you can rest assured on this point..."
+"Zhu Mingxia wishes he could recall Zhu Quanxing's 3rd Battalion immediately. He refrained considering Wuzhou's importance." Xu Ke paused. "The 3rd Battalion remains in Wuzhou—you can take some reassurance in that..."
 
-"How can I rest assured!" Xie Erren was a bit annoyed. "How many people are in the 3rd Battalion? How can they cover the 9 counties and 1 prefecture of Wuzhou Prefecture! You know that inside this dignified Wuzhou Prefecture City of mine, there are only one hundred grunts!"
+"How can I feel reassured!" Xie Erren's annoyance flared. "How many men compose the 3rd Battalion? How can they cover nine counties and one prefecture in Wuzhou? You know this dignified Prefecture City of mine contains merely one hundred soldiers!"
 
-"Does this depend on your ability? Speaking of people, where aren't they lacking?" Xu Ke smiled and tore a chicken leg off the Paper-Wrapped Chicken to eat. "The National Army in each county will be expanded... I heard approval has been granted, allowing county and city administrative leaders to expand militia teams on the spot. They are also preparing to increase the quota by another five thousand Nanyang Rifles."
+"Doesn't this test your capabilities? Speaking of shortages, where aren't there personnel deficits?" Xu Ke smiled, tearing a chicken leg from the Paper-Wrapped Chicken. "Each county's National Army will be expanded... I've heard approval was granted, permitting county and city administrative leaders to expand militia teams locally. They're also preparing to increase the allocation by another five thousand Nanyang Rifles."
 
-"That's more like it. But I haven't seen the shadow of the National Army yet."
+"That's more acceptable. But I haven't glimpsed the National Army yet."
 
-"They have already arrived in Zhaoqing and will definitely reach Wuzhou tomorrow or the day after—the West River waterway is still very smooth right now," Xu Ke said.
+"They've already reached Zhaoqing and will definitely arrive tomorrow or the day after—the West River waterway remains quite navigable currently," Xu Ke confirmed.
 
-Hearing that the National Army was about to arrive, Xie Erren felt somewhat relieved. Qian Duo's company belonged to the 3rd Battalion after all. Although he could use it, he couldn't control it; Zhu Quanxing could transfer it away with a single order. In comparison, the National Army made him feel more assured.
+Hearing the National Army's imminent arrival, Xie Erren experienced some relief. Qian Duo's company belonged to the 3rd Battalion ultimately. Though he could deploy it, he couldn't command it; Zhu Quanxing could withdraw it with a single order. In contrast, the National Army offered greater reassurance.
 
-"The attack on Guangxi is going to stop now, right?"
+"The Guangxi offensive stops now, correct?"
 
-"The formal order hasn't come down yet, but it definitely has to stop." Xu Ke said, "We only have this many troops. I will also return to Zhaoqing very soon."
+"Formal orders haven't come down yet, but it definitely must halt." Xu Ke said, "We only have these many troops. I'll also return to Zhaoqing very soon."
 
-"Now Old Xiong can be comfortable for a few days again."
+"So Old Xiong gets comfortable days again."
 
-"Old Xiong comfortable? I think Chongzhen will make him suffer soon—he might even end up committing suicide to escape punishment."
+"Old Xiong comfortable? I suspect Chongzhen will make him suffer shortly—he might even commit suicide to escape punishment."
 
-Hearing that Xu Ke was leaving, Xie Erren unconsciously felt a faint sense of loneliness at the bottom of his heart.
+Hearing Xu Ke would depart, Xie Erren unconsciously experienced faint loneliness settling in his heart.
 
-After seeing Xu Ke off, Xie Erren looked at the Wuzhou map in the main hall again and again. His situation was really a bit precarious. If the Yao rebellion spread to both banks of the West River, the transportation line behind him would be in imminent danger. At that time, he would be isolated in front of the enemy...
+After seeing Xu Ke off, Xie Erren studied the Wuzhou map in the main hall repeatedly. His situation was genuinely precarious. If the Yao rebellion spread along both West River banks, his rear supply line faced imminent peril. He'd become isolated before the enemy...
 
-"This is really a bit bad."
+"This truly looks grim."
 
-Xie Erren started to feel guilty. Looking at this situation, he really couldn't muster up enthusiasm.
+Xie Erren grew apprehensive. Surveying the situation, he struggled to muster enthusiasm.
 
-*Must repair the city wall as quickly as possible!* He thought. No matter what, as long as the city wall was there, there was a great guarantee of safety. After all, with the level of medieval armies, capturing a prefecture city like Wuzhou was still very difficult.
+*The city wall must be repaired as rapidly as possible!* No matter what, as long as the walls stood, substantial safety existed. After all, given medieval army capabilities, capturing a prefecture city like Wuzhou remained extraordinarily difficult.
 
-That night, Xie Erren slept in the rear yamen of the Prefectural Yamen. The thought that the previous owner of this yamen had committed suicide not long ago and he was living in his house made Xie Erren somewhat uncomfortable. However, he was exhausted from the day and fell asleep without much thought.
+That night, Xie Erren slept in the Prefectural Yamen's rear quarters. The awareness that this yamen's previous occupant had recently committed suicide—that he now inhabited his residence—unsettled Xie Erren somewhat. Still, exhaustion from the day's labors claimed him swiftly.
 
-A dreamless night. When he got up in the morning, he felt energetic and full of vitality, very much in the mood to do big things.
+A dreamless night. Rising in the morning, he felt energized and vital, ready to tackle momentous undertakings.
 
-After washing up, he hurriedly ate breakfast and came to the Second Hall of the Prefectural Yamen, which served as his office. Zhao Fengtian was already waiting in the main hall, and beside him was an elderly man, a local *Xiucai* (licentiate).
+After washing and hastily consuming breakfast, he proceeded to the Prefectural Yamen's Second Hall, which served as his office. Zhao Fengtian already waited in the main hall, accompanied by an elderly man—a local *Xiucai* (licentiate).
 
-This Master Xiucai was in his fifties. He collected rent from some land outside the city and had some properties inside the city. He had always been indifferent to an official career. After passing the exams, he had no intention of taking the imperial examinations. Besides idling his days away at home, he traveled to visit mountains and rivers. Not only had he set foot all over the Two Guangs, but he had also been to many barren lands regarded as dangerous paths by locals—not to mention distant places, he had even been to the Wolf Stockades and Yao Caves within the Two Guangs. He was very interested in the geography, customs, folk sentiments, and products of the places he passed through, and was quite famous locally.
+This Master Xiucai was in his fifties. He collected rents from lands beyond the city while maintaining properties within. He'd always regarded official careers with indifference. After passing qualifying exams, he'd harbored no intention of pursuing imperial examinations further. Beyond passing idle days at home, he traveled to visit mountains and rivers. He'd traversed not merely the Two Guangs in their entirety, but even ventured into barren lands locals considered dangerous routes—to say nothing of distant regions, he'd even visited Wolf Stockades and Yao Caves throughout the Two Guangs. He maintained keen interest in the geography, customs, folk sentiments, and products of places he traveled, earning considerable local renown.
 
-His surname was He, original name Shouren, but because he gave himself the alias "Dongli" (Eastern Fence), over time, everyone inside and outside the city called him He Dongli.
+His surname was He, original name Shouren, but because he'd adopted the alias "Dongli" (Eastern Fence), eventually everyone inside and outside the city called him He Dongli.
 
-Xiucai He was not averse to Australians—he had not only been to Guangzhou but even to Hainan, and had gone all the way to Lingao. He had witnessed with his own eyes the stability and prosperity under the Senate's rule and had a great fondness for Australians. Therefore, when the great army arrived at Wuzhou this time, he maintained a passive attitude towards resistance: firstly, the disparity in strength was huge, and fighting would inevitably lead to defeat; secondly, he saw no necessity to resist. He did have feelings for the Great Ming, but these feelings were not deep enough to make him willing to destroy his family and sacrifice himself for it.
+Xiucai He harbored no aversion toward Australians—he'd traveled not merely to Guangzhou but even to Hainan, journeying all the way to Lingao. He'd witnessed firsthand the stability and prosperity under Senate rule, developing great fondness for Australians. Therefore, when the great army reached Wuzhou this time, he maintained a passive stance toward resistance: firstly, the strength disparity was overwhelming, and fighting would inevitably yield defeat; secondly, he perceived no compelling necessity to resist. He possessed feelings for the Great Ming, but these sentiments weren't sufficiently deep to make him willing to destroy his family and sacrifice himself.
 
-After Xie Erren entered the city, he needed to find a suitable guide to familiarize himself with the local customs. Zhao Fengtian checked the issued "Wuzhou Basic Situation Manual" and recommended this Xiucai He.
+After Xie Erren entered the city, he'd needed to secure a suitable guide for familiarizing himself with local customs. Zhao Fengtian consulted the issued "Wuzhou Basic Situation Manual" and recommended this Xiucai He.
 
-Xiucai He didn't decline and came upon invitation. He neither acted coy to show he was "forced to serve thieves" like some literati, nor was he as monkey-anxious to "piggyback on the dragon" as some others. His attitude was very calm and peaceful. After a few sentences, Xie Erren had a very good impression of him. Immediately, he asked him to be a guide to tour the entire Wuzhou City.
+Xiucai He didn't decline and arrived upon invitation. He neither acted coy to demonstrate he'd been "forced to serve thieves" like some literati, nor proved eagerly obsequious to "ride the dragon's coattails" like others. His demeanor remained calm and composed. After brief conversation, Xie Erren formed a highly favorable impression. Immediately, he requested He serve as guide to tour the entire Wuzhou City.
 
-He Dongli naturally had no need to refuse. Xie Erren immediately instructed Zhao Fengtian to stay behind in the Yamen and picked a squad of guards to accompany him for protection.
+He Dongli naturally had no reason to refuse. Xie Erren immediately instructed Zhao Fengtian to remain at the yamen and selected a guard squad for escort.
 
-Order on the streets had improved compared to yesterday. Refugees had formed teams and were clearing corpses and ruins one by one under the leadership of militiamen. Although the newly formed militia led by Fubo Army soldiers had average military appearance and discipline, their spirit and energy were somewhat presentable. Xie Erren's worry from last night diminished a bit.
+Street order had improved markedly since yesterday. Refugees had formed teams and cleared corpses and ruins methodically under militiamen leadership. Though the newly formed Fubo Army soldier-led militia exhibited average military bearing and discipline, their spirit and energy appeared reasonably presentable. Xie Erren's anxieties from the previous night diminished somewhat.
 
-The leading cadres saw him coming and immediately wanted to come up to report. Xie Erren waved his hands: "No rush, you guys work first."
+The leading cadres spotted his approach and moved to report. Xie Erren waved them off. "No rush. Continue your work."
 
-Traces of the existence of the Culture and Propaganda Team also appeared. Walls had been painted with crooked slogans in limewater: "Soldiers and civilians cooperate, expel the Ming bandits"; "Puppet Ming kills and commits arson, Aus-Song cures the sick and saves people"; "Xiong Wencan burned Wuzhou City and killed Wuzhou people, willing to be the filial son and worthy grandson of the Puppet Ming local emperor"... Some places also had propaganda posters and notices pasted. Looking closely, the ink on the notices and the paste on the back hadn't dried yet—probably done just this morning.
+Evidence of the Culture and Propaganda Team's existence had manifested. Walls displayed crudely painted limewater slogans: "Soldiers and civilians cooperate, expel the Ming bandits"; "Puppet Ming murders and commits arson, Aus-Song heals the sick and rescues people"; "Xiong Wencan burned Wuzhou City and slaughtered Wuzhou people, gladly serving as the Puppet Ming local emperor's filial son and worthy grandson"... Some locations also featured pasted propaganda posters and notices. Close inspection revealed the notices' ink and backing paste hadn't yet dried—likely applied just this morning.
 
-This work efficiency was solid. Xie Erren nodded secretly—*Zhao Fengtian is indeed brought out by me personally; the propaganda work is spot on.*
+The work efficiency proved solid. Xie Erren nodded privately. *Zhao Fengtian truly is my personal protégé; the propaganda work is flawless.*
 
-The Wuzhou Prefectural Yamen was located in the south of the city, not far from the Little South Gate. Xie Erren only noticed after leaving the Yamen that the north side of this Wuzhou Prefectural Yamen was adjacent to the Cangwu County Yamen. The south and west sides of this Prefectural Yamen were close to the city wall, situated right in a corner of Wuzhou. Outside the western city wall was the surging Gui River.
+The Wuzhou Prefectural Yamen occupied the city's southern section, not distant from the Little South Gate. Only after exiting the yamen did Xie Erren notice the Wuzhou Prefectural Yamen's northern flank adjoined the Cangwu County Yamen. The Prefectural Yamen's southern and western perimeters pressed close to the city wall, situated precisely in Wuzhou's southwest corner. Beyond the western city wall surged the Gui River.
 
-Because he requested to climb the city gate to take a look first, He Dongli led him up the Little South Gate, which was closest to the prefectural office. Because the gate tower was named "Dezheng" (Virtuous Governance), it was also called Dezheng Gate.
+Because he'd requested to ascend the city gate for observation first, He Dongli led him up the Little South Gate, closest to the prefectural office. Because the gate tower bore the name "Dezheng" (Virtuous Governance), it was also called Dezheng Gate.
 
-During the siege, both the Big and Little South Gates were attacked by artillery fire, so parts of both yamens were damaged by shells falling into the city, but the damage wasn't huge. In comparison, the Dezheng Gate tower was severely destroyed. Artillery fire had almost completely destroyed this tower, leaving only a pile of ruins. At this moment, soldiers were supervising prisoner labor teams to dismantle the remaining wreckage and recover some building materials.
+During the siege, both Big and Little South Gates had suffered artillery bombardment, so portions of both yamens sustained shell damage from projectiles falling into the city, though the harm wasn't extensive. By comparison, the Dezheng Gate tower suffered severe destruction. Artillery fire had virtually obliterated the tower, leaving merely a rubble pile. Presently, soldiers supervised prisoner labor teams dismantling remaining wreckage and salvaging building materials.
 
-He Dongli said that this Little South Gate was only opened when Wuzhou City was rebuilt in the 12th year of Hongwu under Emperor Taizu of Ming. The previous Song and Yuan city walls only had four gates. It was only in the Great Ming that there were five city gates. They were the East Gate, West Gate, Big South Gate, Little South Gate, and North Gate. Based on the names of the towers built on the city gates, they were also called Yangming Gate, Nanxun Gate, Xijiang Gate, Dezheng Gate, and Dayun Gate.
+He Dongli explained this Little South Gate was opened only when Wuzhou City underwent reconstruction in the 12th year of Hongwu under Emperor Taizu of Ming. Previous Song and Yuan city walls possessed merely four gates. Only in the Great Ming did five city gates exist: East Gate, West Gate, Big South Gate, Little South Gate, and North Gate. Based on the towers built atop city gates, they were also designated Yangming Gate, Nanxun Gate, Xijiang Gate, Dezheng Gate, and Dayun Gate.
 
-During the Hongwu period, under Zhu Yuanzhang's auspices, a wave of capital construction was set off. The government offices and city walls of various prefectures, departments, and counties across the country were almost all built during this period. Especially the layout of city walls in various cities was basically maintained. Many Ming and Qing city walls preserved until the 21st century can almost be traced back to the Hongwu reign.
+During the Hongwu period, under Zhu Yuanzhang's direction, a wave of capital construction swept the realm. Government offices and city walls throughout the nation's prefectures, departments, and counties were almost entirely constructed during this era. Particularly, city wall layouts in various cities remained essentially preserved. Many Ming and Qing city walls surviving into the 21st century can trace their origins almost directly to the Hongwu reign.
 
-However, the newly built Wuzhou City in the Ming Dynasty was not considered too large in area. Although the area had expanded compared to the Song and Yuan periods, the circumference of the Wuzhou city wall was only 2.8 kilometers, not considered too big among Ming Dynasty cities, and even inferior to some important *Suo* cities. This was obviously disproportionate to its important commercial status, so Wuzhou's urban scope had long expanded to the banks of the Gui and West Rivers outside the city. The appearance of pontoon bridges on the Gui and West Rivers was a manifestation of transportation needs after this urban expansion.
+However, the newly constructed Ming Dynasty Wuzhou City wasn't overly expansive in area. Though the territory had expanded compared to Song and Yuan periods, the Wuzhou city wall's circumference measured merely 2.8 kilometers—not particularly large among Ming Dynasty cities, actually inferior to some major *Suo* cities. This obviously proved disproportionate to its significant commercial status, so Wuzhou's urban scope had long since extended to the Gui and West Rivers' banks beyond the city. The pontoon bridges' appearance on the Gui and West Rivers manifested transportation requirements following this urban expansion.
 
-Standing on the city wall of the Little South Gate, one could see a circumferential city moat below, which He Dongli said was also called the Dragon-Protecting Dike. It was over two *zhang* wide and over two *zhang* deep. There were wooden fences inside and outside the city moat—however, probably due to old age, many places were missing. Willows were still planted by the moat.
+Standing on the Little South Gate's city wall, one could observe the circumferential moat below, which He Dongli identified as also called the Dragon-Protecting Dike. It exceeded two *zhang* in width and two *zhang* in depth. Wooden fences lined the moat's interior and exterior—though due to age, many sections were missing. Willows were planted alongside the moat.
 
-"These were all built in the early Chenghua years when Lord Han Yong was the Governor-General of the Two Guangs. These Wuzhou city walls were also repaired by his hand."
+"These were all constructed during the early Chenghua years when Lord Han Yong served as Governor-General of the Two Guangs. These Wuzhou city walls were also repaired under his supervision."
 
-"Is that the Han Yong who broke the Dateng Gorge?" Xie Erren only learned about this person during historical training before taking office.
+"Is that the Han Yong who broke through Dateng Gorge?" Xie Erren had learned of this figure only during historical briefings before assuming office.
 
-"Exactly."
+"Precisely."

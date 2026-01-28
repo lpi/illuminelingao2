@@ -1,91 +1,91 @@
 # Chapter 2335 - The Hearing (III)
 
-Probably due to nervousness, his words were somewhat stammering.
+His nervousness showed in his slightly halting speech.
 
-"I read the investigation team's relevant report. I feel our current problem is not ordinarily big. The Wuzhou matter, although having Senator Xie's personal responsibility, various departments all had problems. I read the report a few times; almost every link has flaws. A small problem isn't solved, finally accumulated, causing such a big problem."
+"I've read the investigation team's report thoroughly. I believe our current problems are far from ordinary. The Wuzhou matter, while certainly Senator Xie's personal responsibility, involved failures across multiple departments. Reading through the report several times, I found flaws at almost every link. Small problems left unsolved accumulated until they finally exploded into something this catastrophic."
 
-Saying this he pulled out a small slip of paper from his pocket. The audience section immediately burst into laughter. Because in recent years, active elements in Senate meetings almost all learned to memorize drafts + improvise. Except for situation statements and formal reports, almost no one would taking a draft out, let alone a slip of paper close to a cheat sheet.
+He pulled a small slip of paper from his pocket. The audience section immediately burst into laughter. In recent years, the more active participants in Senate meetings had all learned to memorize their points and improvise. Except for formal statements and official reports, almost no one pulled out a draft—let alone a slip of paper resembling a cheat sheet.
 
-This Senator's face turned somewhat red. He coughed once, said:
+The Senator's face reddened. He coughed once and said:
 
-"I personally summarize: various departments have five main responsible parties in the Wuzhou Incident."
+"I personally identify five main parties responsible for the Wuzhou Incident across various departments."
 
-Dong Shiye couldn't help saying in a low voice: "Good guy!"
+"Good lord," Dong Shiye muttered.
 
-"First, Senator Xie privately accepted Cai Lan as a life secretary—this itself seriously violated the Senate General Office's *Relevant Regulations on Life Secretary Candidates*, and Cai Lan herself was also a criminal. Senator Xie threw the Senate's relevant constitution, organizational discipline completely to the back of his head. Must pay (bear) the main responsibility.
+"First, Senator Xie privately took Cai Lan as a life secretary—a serious violation of the Senate General Office's *Regulations on Life Secretary Candidates*. Cai Lan herself was also a criminal. Senator Xie threw the Senate's constitution and organizational discipline to the wind. He must bear primary responsibility.
 
-"Second, Political Security and Intelligence work appeared major errors. The Political Security Bureau had no personnel and organization configuration in Wuzhou except a hidden cadre. It had completely zero monitoring of Sanhezui Camp, such a prisoner camp of a thousand people! Regarding naturalized cadre Liu Youwang and garrison personnel Jiang Yougong's wine and sex corruption, power and money trading, bullying refugees and prisoners in Sanhezui Camp, there was no intelligence feedback and warning at all. Sitting by watching Sanhezui Camp effectively severely penetrated by Pseudo-Ming enemies, brewing a great disaster!
+"Second, Political Security and Intelligence work suffered major failures. The Political Security Bureau had no personnel or organizational presence in Wuzhou except for a single covert operative. It had absolutely zero monitoring of Sanhezui Camp—a prisoner camp housing a thousand people! There was no intelligence feedback or warning whatsoever regarding the corruption of naturalized cadre Liu Youwang and garrison personnel Jiang Yougong—their drinking, womanizing, bribery, and abuse of refugees and prisoners. The Bureau sat idle while Sanhezui Camp was severely infiltrated by Pseudo-Ming enemies, allowing disaster to brew unchecked.
 
-"Third, the Senator Bodyguard Bureau performed extremely unprofessionally in this event. Senator's close protection force was thin. A Senator situated on the front line only had a five-person guard team by his side. Being sneak-attacked by enemies, it was immediately total army annihilation.
+"Third, the Senator Bodyguard Bureau performed with extreme unprofessionalism. A Senator's close protection force was woefully thin. A Senator stationed on the front line had only a five-person guard team. When the enemy struck, they were annihilated instantly.
 
-"Fourth, the Guangdong military chief officials also have to pay main responsibility. Especially National Army officers like Jiang Yougong, seriously corrupt, discipline totally absent, severely utilized and penetrated by enemies. Also ex-Fubo Army personnel like Jiang Suo who defected from the Senate to rely on the Ming State, familiar with our army's training methods and combat tactics, causing huge losses to our army. The General Staff Political Department's ideological work and intra-military security work have unshrinkable responsibilities.
+"Fourth, Guangdong's military commanders must also bear primary responsibility. National Army officers like Jiang Yougong were severely corrupt, lacking any discipline, and were heavily exploited and infiltrated by the enemy. Ex-Fubo Army personnel like Jiang Suo, who defected from the Senate to the Ming State, were familiar with our army's training methods and combat tactics, causing enormous casualties. The General Staff Political Department's ideological work and internal security work bear undeniable responsibility.
 
-"Fifth, Comrade Ma Qianzhu of the State Council, Comrade Wen Desi the Guangdong Regional Director, and Comrade Xiao Zishan the General Office Director, as heads of relevant departments, also bear certain leadership responsibilities."
+"Fifth, Comrade Ma Qianzhu of the State Council, Comrade Wen Desi the Guangdong Regional Director, and Comrade Xiao Zishan the General Office Director, as heads of the relevant departments, also bear certain leadership responsibilities."
 
-He stuffed the paper slip into his pocket, fell silent for a while, seeming to conduct hesitation. After a good while, only then did he open his mouth to say:
+He stuffed the paper back into his pocket and fell silent for a moment, as if conducting an internal debate. After a long pause, he finally spoke again:
 
-"I believe the Wuzhou Incident gave us a huge warning. Today our situation looks like a vast expanse of good. But problems inside our institutions have reached a point allowing no delay. The Senate should conduct a comprehensive Rectification of Style and Discipline on all departments."
+"I believe the Wuzhou Incident has given us a severe warning. Our situation today appears vastly promising. But the problems within our institutions have reached a point that cannot be delayed. The Senate should conduct a comprehensive Rectification of Style and Discipline across all departments."
 
-Hastily leaving the speaking podium, the audience section completely cold-fielded (fell silent). This speech was like a machine gun; it was simply sweeping a thousand armies. All possible relevant parties were shot."
+He hurried from the podium, and the audience section fell completely silent. His speech had been like a machine gun, sweeping through everything. Every potentially responsible party had been hit.
 
-Struggles within the Senate had begun to be refined in recent years. For any controversial event, all sides would adopt precise strike strategies. Who was friend and who was enemy was already colluded privately before the meeting. Absolutely wouldn't engage in such indiscriminate attacks.
+In recent years, internal Senate conflicts had grown refined. For any controversial matter, all sides adopted precision-strike strategies. Who was friend and who was foe had been determined through backroom deals before the meeting. No one engaged in indiscriminate attacks like this.
 
-This person's round of indiscriminate attacks made attending Senators find it hard to distinguish enemy from friend for a time, not knowing how to express attitude. Only after a good while did someone applaud sporadically.
+This man's barrage left the attending Senators momentarily unable to distinguish friend from enemy, unsure how to react. Only after a considerable pause did someone offer scattered applause.
 
 "Is he dropping an atomic bomb directly?"
 
-Ma Jia touched his chin, also very puzzled: *Exactly what play is he singing? Such a Senator who rarely mixed in politics suddenly firing cannons, is someone instigating? Or is it purely out of his own worry for the Senate?*
+Ma Jia stroked his chin, equally puzzled. *What's his angle? A Senator who rarely engages in politics suddenly opening fire—is someone behind this? Or is it purely his own concern for the Senate?*
 
-"A bit fishy, don't know if someone is directing behind the back."
+"Something's off. I wonder if someone's pulling his strings."
 
-"I don't think so." Ma Jia said, "If someone instigated, definitely there would be key points, wouldn't be boiling all departments in one pot with such general talk. I see his personal factors are bigger."
+"I don't think so," Ma Jia said. "If someone were directing him, there would be key targets—he wouldn't throw everything into one pot with such sweeping criticism. I suspect this is his own doing."
 
-"If saying so..."
+"If that's the case..."
 
-"Although he is strafing, there is no malice. Nor involving any ideas and power. Purely because he can't stand the sight of it. Our current atmosphere, to be honest: foul atmosphere."
+"Though he's spraying everyone, there's no malice in it. No ideology, no power plays. He's simply fed up. Our current atmosphere, frankly speaking, is foul."
 
-"This proposal of his, could it be someone attempting to use this to intervene in various departments..." Dong Shiye immediately thought of "seizing power".
+"Could his proposal be someone's attempt to intervene in various departments?" Dong Shiye immediately thought of power grabs.
 
-Probably guessing his thought, Ma Jia smiled slightly: "No, no, not likely."
+Perhaps guessing his thought, Ma Jia smiled slightly. "No, no—not likely."
 
-Just at this time, Senator Pan Jiexin stood out requesting to speak.
+Just then, Senator Pan Jiexin stood and requested to speak.
 
-"I believe the Bodyguard Bureau has no responsibility in this matter. One, this Bureau is new institution established only after the Third General Assembly. Many work frameworks haven't been established; imperfection is foreseeable. Moreover, currently we haven't seen this Bureau's work report and relevant charter. Except saying 'responsible for Senator security work' at the General Assembly, it didn't make regulations on specific duties, authority and working methods. Looking at the situation in Lingao locally, except for changing the affiliation of personnel in the Lingao Garrison Battalion and increasing guard personnel, there is no big change to Senator security work.
+"I believe the Bodyguard Bureau bears no responsibility in this matter. First, this Bureau is a new institution established only after the Third General Assembly. Many operational frameworks haven't been established yet; imperfection is foreseeable. Moreover, we haven't seen this Bureau's work report or relevant charter. At the General Assembly, beyond stating it was 'responsible for Senator security work,' no specific regulations were made regarding duties, authority, or working methods. Looking at the situation in Lingao specifically, except for changing the affiliation of personnel in the Lingao Garrison Battalion and adding more guards, there's been no significant change to Senator security work.
 
-"Like various dispatched stations, Kaohsiung, Hong Kong, Jeju, Hong Gai etc. several sub-bases, and even within the range of newly occupied Guangdong Region, to a large extent military management is still practiced. Senators in various places often grasp both military and government. So the bulk of security protection work for these Senators is conducted by local Senate armed forces, namely Fubo Army and National Army. Bodyguard Bureau only provides close-body guard work. From this angle, five close-body guards are not too few. If pursuing their responsibility based on this, I feel it can't be justified.
+"In various dispatched stations—Kaohsiung, Hong Kong, Jeju, Hong Gai, and other sub-bases, as well as much of newly occupied Guangdong—military management still largely prevails. Senators in these areas often hold both military and governmental authority. Thus the bulk of security work for these Senators is conducted by local Senate armed forces, namely the Fubo Army and National Army. The Bodyguard Bureau provides only close personal protection. From this perspective, five personal guards is not too few. Assigning them blame on this basis seems unjustifiable.
 
-"But we should also see, VIP protection is a professional system, different from the construction and training direction of the army, and also has big differences from police administration. Relying purely on military-police system to protect dispatched Senators is neither professional nor reliable. For example when Senators go on business trips or transfer posts, there are no special commissioners protecting various jurisdictions; handovers easy to produce mistakes. Constantly changing security around Senators, drawing people from localities. Also easy to let enemy spies drill loopholes.
+"But we should also recognize that VIP protection is a specialized system, different from the training objectives of the military, and also quite distinct from police work. Relying solely on military-police systems to protect dispatched Senators is neither professional nor reliable. For instance, when Senators travel on business or transfer posts, there are no dedicated officers protecting them across jurisdictions, creating gaps during handovers. Constantly rotating the security personnel around Senators, drawing from different localities, makes it easy for enemy spies to exploit vulnerabilities.
 
-"This is a hearing, not opening court for trial. Problems exposed, no matter big or small, are all brought to the table to say. Face gongs and face drums. Insufficient resources, insufficient manpower, unclear rights and responsibilities, all can be spoken out. Everyone work hard together to solve."
+"This is a hearing, not a trial. Problems exposed, large or small, should all be laid on the table. Speak plainly. Insufficient resources, insufficient manpower, unclear rights and responsibilities—all of it can be said. Let's work together to find solutions."
 
-"Sure enough Power Departments are one family." Someone in the audience section spoke eccentrically.
+"Naturally the Power Departments stick together," someone in the audience said sarcastically.
 
-Pan Jiexin ignored it, continuing, "...In summary. I completely agree with the previous comrade's viewpoint—launching Rectification of Style and Discipline in the Senate. Not because of my negation of Senate work. Just feel some problems must be solved. Cannot handle tepidly in the name of 'considering the overall situation' anymore. Not grasping style and discipline well, similar vicious incidents will cycle repeatedly. This is truly smearing black on the Senate!"
+Pan Jiexin ignored it and continued: "...In summary, I completely agree with the previous comrade's position—the Senate should launch a Rectification of Style and Discipline. Not because I reject the Senate's work, but because certain problems must be solved. We can no longer handle things tepidly under the banner of 'considering the overall situation.' If we don't address style and discipline properly, similar vicious incidents will recur again and again. That would truly be a stain on the Senate!"
 
-At this time someone below echoed: "Especially Pol-Sec Bureau this black den!"
+Someone below chimed in: "Especially the Pol-Sec Bureau, that black den!"
 
-"Also Fubo Army! Jiang Suo defecting, Liu Youwang corrupt, are all from the military system! Rectification of Style and Discipline must start from Fubo Army!"
+"And the Fubo Army! Jiang Suo's defection, Liu Youwang's corruption—they're all from the military system! The Rectification must start with the Fubo Army!"
 
 ...
 
-"Look," Ma Jia said softly, "These few in the audience section are the ones with ulterior motives."
+"Look," Ma Jia said softly, "those few in the audience are the ones with ulterior motives."
 
-At this time more people joined the speaking ranks:
+At this point, more people joined the speaking queue:
 
-"We must focus on criticism and education, persist in the guideline of curing the sickness to save the patient and learning from past mistakes to avoid future ones. Especially cannot expand. Speaking plainly such things hurt naturalized citizens most in the end; simple and rough easily hurts people and chills hearts."
+"We must emphasize criticism and education, adhering to the principle of curing the sickness to save the patient, learning from past mistakes to prevent future ones. Above all, we must avoid expanding the scope. Plain and simple: such things ultimately hurt naturalized citizens most. Being crude and heavy-handed easily damages people and chills hearts."
 
-Three or four people went on stage to support in a row. Ma Jia discovered they were all some "unknown" ordinary Senators. Could see they didn't come to participate this time holding a simple "sit a bit", "applaud" attitude, drifting with the waves. Instead they were truly dissatisfied with the status quo of the Senate, so they came out to support the proposal one by one.
+Three or four people rose in succession to offer support. Ma Jia noticed they were all "unknown" ordinary Senators. Clearly they hadn't come simply to sit in the audience and applaud, drifting with the tide. They were genuinely dissatisfied with the Senate's status quo and were stepping forward to support the proposal one by one.
 
-Several people in the audience section showed uneasy expressions. Obviously, the development of the situation was not consistent with their expectations. Hai Lin's expression was relatively complex—if a few years earlier, he would have jumped out "hands up in approval" long ago. But now, he wasn't that impulsive. Once really doing rectification, that targeted all Senators and all departments, not the few Senators and departments he hated most. That meant, he and the Timber Processing Industry Combo were also in it.
+Several people in the audience showed uneasy expressions. Obviously, events were not unfolding as they had anticipated. Hai Lin's expression was particularly complex—years earlier, he would have leaped up in "wholehearted approval" by now. But today, he was no longer so impulsive. If a genuine rectification occurred, one targeting all Senators and all departments, that would include him and the Timber Processing Industry coalition.
 
-At this time, Zhou Wei requested to speak.
+At this moment, Zhou Wei requested to speak.
 
-"This one probably wants to fire cannons too—though not an atomic bomb." Dong Shiye said.
+"This one probably wants to fire cannons too—though not an atomic bomb," Dong Shiye said.
 
-Zhou Wei didn't make any comments on previous speeches. He only talked generally about a few deficiencies exposed by the Wuzhou Incident.
+Zhou Wei made no comment on the preceding speeches. He merely offered general remarks on a few deficiencies exposed by the Wuzhou Incident.
 
-"...I personally believe although Senator Xie's work in Wuzhou had flaws, it was not a failure. Must know the resources mastered by Senator Xie were very few, yet the responsibility he shouldered was very big. His administrative achievements in Wuzhou these days are obvious to all. His main mistake was actually in failing to scrutinize employment. On this point, I think all of us can hardly avoid it." Saying this, he coughed lightly, "The real problem is various departments dispatched too few cadres and armed forces to Wuzhou. In terms of Wuzhou's importance and the work borne by Comrade Xie, such resource投放 (injection/allocation) volume itself has factors of asking for the difficult in it. Even like Prisoner Camp Manager Liu Youwang, although personally corrupt and indulging in pleasure. But he was only one person, yet managing a place of a thousand people. Indeed very difficult to discover work hidden dangers—Sanhezui's problem actually cannot be entirely blamed on him.
+"...I personally believe that although Senator Xie's work in Wuzhou had its flaws, it was not a failure. We must recognize that Senator Xie had very few resources at his disposal, yet bore enormous responsibility. His administrative achievements in Wuzhou during this period are plain for all to see. His main mistake was actually in failing to vet his personnel properly. On that point, I think few of us can claim immunity." He gave a light cough. "The real problem is that various departments dispatched too few cadres and armed forces to Wuzhou. Given Wuzhou's importance and the responsibilities placed on Comrade Xie, such limited resource allocation was practically setting him up for failure. Even someone like Liu Youwang, the prisoner camp manager—though personally corrupt and indulgent—was just one man managing a place housing a thousand. It would indeed be difficult to detect hidden dangers. The problems at Sanhezui cannot be blamed entirely on him.
 
-"Then, should we pursue the responsibility of departments dispatching cadres and armed forces to Wuzhou? I personally believe it is also inappropriate. Because Wuzhou's problem is actually a resource allocation problem. Under the premise of insufficient total resources, departments and individuals can hardly make changes to the overall situation. If Senator Xie didn't commit certain mistakes, then similar things might not happen in Wuzhou, but happen in other places. This might be inevitable."
+"Then, should we pursue the responsibility of departments that dispatched cadres and armed forces to Wuzhou? I personally believe that would also be inappropriate. Because Wuzhou's problem is fundamentally a resource allocation problem. When total resources are insufficient, no department or individual can change the overall situation. If Senator Xie hadn't made certain mistakes, something similar might not have happened in Wuzhou—but it might have happened somewhere else. This may simply have been inevitable."
 
 **(End of Chapter)**

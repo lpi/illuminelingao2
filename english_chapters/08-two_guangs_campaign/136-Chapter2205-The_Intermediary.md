@@ -1,6 +1,6 @@
 # Chapter 2205 - The Intermediary
 
-Simply sending word that the bandit chief was invited to surrender and expecting him to come—that sort of thing only happened to Song Jiang in *Water Margin*. Real-world pacification was far more complicated. A go-between might have to shuttle back and forth for lengthy negotiations—much like a business deal, after all, a chief's life and fortune hung in the balance. Unless the outlaws were cornered and desperate, negotiations could drag on for ages.
+Simply sending word that the bandit chief was invited to surrender and expecting him to come—that sort of thing only happened to Song Jiang in *Water Margin*. Real-world pacification was far more complicated. A go-between might have to shuttle back and forth for lengthy negotiations—much like a business deal, with a chief's life and fortune hanging in the balance. Unless the outlaws were cornered and desperate, negotiations could drag on for ages.
 
 When the Ming court pacified Zheng Zhilong, from his first acceptance of terms in 1626 to his formal submission in 1628, the process took over three years, with multiple reversals and several breaks in talks. The success was due partly to Zheng Zhilong's strong desire to surrender and partly to Governor-General Xiong Wencan's sufficient "sincerity"—essentially meeting all of Zheng's demands.
 

@@ -32,7 +32,7 @@ Wang Chuyi discussed the matter with the county cadres.
 
 Sun Dabiao's willingness to withdraw from Dalang Market was certainly good news for Yangshan's overall situation. The key question was whether this might be a "Hongmen Banquet"—a trap.
 
-His "chief strategist" Peng Shou'an privately judged that Sun Dabiao probably did not dare play tricks—but if Wang Chuyi put himself at risk and anything went wrong, Peng Shou'an would be held accountable. So he adopted a "cautiously opposed" stance.
+His "chief strategist" Peng Shou'an privately judged that Sun Dabiao probably didn't dare play tricks—but if Wang Chuyi put himself at risk and anything went wrong, Peng Shou'an would be held accountable. So he adopted a "cautiously opposed" stance.
 
 As for the other naturalized cadres, virtually all opposed. Luo Yiming and You Ciren, who oversaw security, were particularly vocal. Though somewhat skeptical of Sun Dabiao's withdrawal, they acknowledged that given his current situation and strength, he probably had no other options. What they objected to was Wang Chuyi's letting Sun Dabiao off without a "reckoning."
 
@@ -42,17 +42,17 @@ Wang Chuyi's murky dealings with Sun Dabiao—calling it "expediency" while actu
 
 "There's another matter," You Ciren said. "Sun Dabiao and Feng Haijiao have been in close contact. To this day, he has never voluntarily disclosed his relationship with Feng Haijiao. What they're plotting privately—we know nothing. But one thing is clear: Feng Haijiao accepted a Ming commission as *bazong* and is openly recruiting soldiers at Qinglian Market. He clearly intends a showdown with us."
 
-Luo Yiming nodded: "What if Sun Dabiao and Feng Haijiao are secretly in league? County Magistrate Wang, wouldn't you be walking into a trap?"
+Luo Yiming nodded. "What if Sun Dabiao and Feng Haijiao are secretly in league? County Magistrate Wang, wouldn't you be walking into a trap?"
 
-Wang Chuyi was displeased: "If that's your view, what do you suggest?"
+Wang Chuyi was displeased. "If that's your view, what do you suggest?"
 
-Most believed Sun Dabiao's "golden basin" ceremony should never have been permitted—he should have been crushed outright. But matters had reached this point; they were caught between a rock and a hard place. The naturalized cadres fell silent. It was Peng Shou'an who gently coughed and said: "In this student's view, the County Magistrate need not attend the hand-washing ceremony—that would be over-indulging Sun Dabiao. If the County Magistrate trusts me, I am willing to go in his stead. I imagine Sun Dabiao will not dare complain."
+Most believed Sun Dabiao's "golden basin" ceremony should never have been permitted—he should have been crushed outright. But matters had reached this point; they were caught between a rock and a hard place. The naturalized cadres fell silent. It was Peng Shou'an who gently coughed and said, "In this student's view, the County Magistrate need not attend the hand-washing ceremony—that would be over-indulging Sun Dabiao. If the County Magistrate trusts me, I am willing to go in his stead. I imagine Sun Dabiao will not dare complain."
 
-You Ciren said: "Sun Dabiao is counting on the County Magistrate to be his banner. For you to venture alone into the tiger's den—it's not worth it, and not necessary. My advice: simply don't go."
+You Ciren said, "Sun Dabiao is counting on the County Magistrate to be his banner. For you to venture alone into the tiger's den—it's not worth it, and not necessary. My advice: simply don't go."
 
-Peng Shou'an wanted to say more, but Wang Chuyi waved him silent: "Nothing ventured, nothing gained. Let Sun Dabiao play his little game—we'll play along. I say we should attend this golden-basin ceremony."
+Peng Shou'an wanted to say more, but Wang Chuyi waved him silent. "Nothing ventured, nothing gained. Let Sun Dabiao play his little game—we'll play along. I say we should attend this golden-basin ceremony."
 
-"What?!" Everyone in the meeting room was startled. You Ciren was about to object when Wang Chuyi shook his head: "No need to persuade me—I have my own ideas. The bottom line is: Sun Dabiao wants me to come and endorse him, to guarantee his safety for the rest of his life. Fine—I'll give him that. But he won't get off so easily."
+"What?!" Everyone in the meeting room was startled. You Ciren was about to object when Wang Chuyi shook his head. "No need to persuade me—I have my own ideas. The bottom line is: Sun Dabiao wants me to come and endorse him, to guarantee his safety for the rest of his life. Fine—I'll give him that. But he won't get off so easily."
 
 "What does the County Magistrate mean...?" Peng Shou'an asked cautiously.
 
@@ -82,7 +82,7 @@ Using these irregular forces to assault Qinglian Market would be difficult—but
 
 "...As for the assault on Qinglian Market, I'll notify Elder Huang in advance and request reinforcements. That way, we kill two birds with one stone—dealing with Sun Dabiao's men and destroying Feng Haijiao."
 
-"Brilliant! Truly a plan with no loose ends!" Peng Shou'an could not help but flatter him. "County Magistrate Wang is both a civil administrator who can pacify the realm and a military leader who can secure the nation."
+"Brilliant! Truly a plan with no loose ends!" Peng Shou'an couldn't help but flatter him. "County Magistrate Wang is both a civil administrator who can pacify the realm and a military leader who can secure the nation."
 
 Though partly sycophantic, the sentiment was at least half sincere—the "stratagem" perfectly matched Peng Shou'an's aesthetic sensibilities.
 

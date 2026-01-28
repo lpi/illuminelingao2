@@ -1,132 +1,132 @@
 # Chapter 2267: Matters of Elegance
 
-Doubts aside, the Australian orders couldn't be disobeyed. Under the urging of the escort personnel, he braved himself to walk in.
+Doubts aside, Australian orders couldn't be disobeyed. Under the escort's urging, Chang Qingyun steeled himself and walked in.
 
-The Three Headquarters was now the headquarters and barracks of the Wuzhou National Army. Entering the main gate, he saw many National Army soldiers walking back and forth. The naturalized citizen who brought him led him into a service alley, going all the way to the back.
+The Three Headquarters now served as the headquarters and barracks of the Wuzhou National Army. Inside the main gate, numerous National Army soldiers moved about. The naturalized citizen escorting him led him through a service alley, proceeding deep into the compound.
 
-Walking through five or six layers of courtyards, they turned a corner before coming out from a side door. Chang Qingyun looked closely and recognized: this was the place where Xiong Wencan used to rest, three elegant rooms, with garden stones and vegetation dotted in the front and back courtyards. The front courtyard also had a small pond, keeping goldfish and lotus flowers. Secluded and quiet, a good place.
+After passing through five or six courtyards, they turned a corner and emerged from a side door. Chang Qingyun recognized it at once: this was where Xiong Wencan used to rest—three elegant rooms with garden stones and vegetation dotting the front and back courtyards. The front courtyard also featured a small pond stocked with goldfish and lotus flowers. Secluded and refined, it was a fine retreat.
 
-At the entrance of the service alley, there was also a wooden sentry box with guards standing duty. The cadre who sent him took out documents before they were allowed to enter the courtyard.
+At the entrance to the service alley stood a wooden sentry box with guards on duty. The cadre escorting him presented documents before they were allowed into the courtyard.
 
-Such a place would naturally not be where ordinary soldiers lived. Could it be... inhabited by an Australian leader?!
+Such a place wouldn't be ordinary soldiers' quarters. Could this be... the residence of an Australian leader?
 
-Chang Qingyun instantly broke into a layer of cold sweat on his back again—he understood the Australians too well. They didn't put scholars like them in their eyes, let alone him being just a *Juren*. So it was impossible to call him here to recruit him.
+Cold sweat broke out on Chang Qingyun's back again. He understood the Australians all too well. They held scholars like him in no regard—let alone a mere *Juren*. They certainly wouldn't summon him here for recruitment.
 
-Could it be that the matter of Jiang Suo appointing a meeting with him was exposed? On second thought, it shouldn't be. Neither Jiang Suo nor he did anything, not even saying prohibited words. Even if Australians were omniscient, they couldn't speculate out of thin air on things that hadn't happened at all... Besides, with his status, whether handling him over to the Australian factory guards for interrogation or directly executing him was just a matter of one sentence. The Australian leader wouldn't come to interrogate him personally at all.
+Could his encounter with Jiang Suo have been exposed? On second thought, that seemed unlikely. Neither Jiang Suo nor he had done anything concrete—they hadn't even exchanged forbidden words. Even if the Australians were omniscient, they couldn't conjure suspicions from thin air about events that hadn't occurred. Besides, given his status, whether they handed him over for interrogation or simply executed him was merely a matter of a single order. An Australian leader wouldn't personally interrogate him.
 
-While in fear, a fake Australian wearing Australian-style "cadre clothes" came out from inside, walked over and asked: "You are Mr. Chang Qingyun, right?"
+While he trembled with fear, a fake Australian wearing the characteristic "cadre clothes" of the Australians emerged from inside. The man approached and asked: "You are Mr. Chang Qingyun?"
 
-The comer was dignified in appearance and neatly dressed, obviously not an ordinary fake Australian. Calling him, a prisoner, "Mr." was extremely polite. Chang Qingyun hurriedly bowed to the ground, "Dare not, student is Chang Qingyun."
+The newcomer was dignified in appearance and neatly dressed—clearly no ordinary fake Australian. Addressing a prisoner as "Mr." was extremely courteous. Chang Qingyun hastily bowed low. "I dare not presume such honor. I am Chang Qingyun."
 
-"Looking for you today because there is a matter," saying this, the fake Australian nodded to the escort personnel, who immediately withdrew.
+"There's a matter we need you for," the fake Australian said, nodding to the escort, who immediately withdrew.
 
-"This, don't know what matter student is to labor for."
+"What... what service might I provide?"
 
-"Come in and talk."
+"Come inside and we'll talk."
 
-Chang Qingyun was led into the room. He had been here before. The middle room was originally where Xiong Wencan received guests. On the two sides, one was a study, one was a bedroom. Originally the furnishings here were very exquisite because of the Governor's stationing. Now not only was the arrangement clean and neat, but the furnishings were better than in the past. Chang Qingyun clicked his tongue secretly—Australians were known for simplicity; unexpectedly there was such a luxurious Senator!
+Chang Qingyun was led into the building. He had been here before. The central room had served as Xiong Wencan's reception hall. The side rooms were a study and a bedroom. Originally, the furnishings had been quite refined due to the Governor's presence. Now the arrangement was not only clean and orderly but even more elegant than before. Chang Qingyun clicked his tongue silently—the Australians were known for their simplicity. Unexpectedly, there was one with such luxurious tastes.
 
-"I am Zhao Fengtian, Secretary of the Wuzhou City Office." The fake Australian who brought him in introduced himself, "You sit for now."
+"I'm Zhao Fengtian, Secretary of the Wuzhou City Office." The fake Australian who had brought him in introduced himself. "Please, have a seat."
 
-Chang Qingyun inclined his body and sat down.
+Chang Qingyun perched himself on the edge of a chair.
 
-"Calling you here is to ask you to help with a favor." Zhao Fengtian said, "To be honest, originally shouldn't trouble you, just that we have no scholars here, and a more suitable candidate cannot be found locally in Wuzhou..."
+"We've called you here to ask a favor." Zhao Fengtian began. "Frankly, we shouldn't be troubling you, but we have no scholars among us, and we couldn't find a more suitable candidate locally in Wuzhou..."
 
-Hearing this made Chang Qingyun bewildered, so he had to stand up and say: "Whatever matter the Superior Officer has, just order. Student will certainly serve."
+This left Chang Qingyun bewildered. He rose and said: "Whatever the Superior Officer requires, I'm at your service."
 
-"Heard you are a talent, not only of *Juren* origin, but poetry and painting are also both superb."
+"I hear you're quite accomplished—not only of *Juren* origin but also superb in both poetry and painting."
 
-Chang Qingyun’s face reddened, hurriedly saying: "Dare not, dare not, a bit of brush and ink plaything, matters not fit for the stage..."
+Chang Qingyun's face reddened. "I wouldn't dare claim such praise. Just amateur dabbling with brush and ink—nothing worth displaying."
 
-"Don't be humble." Zhao Fengtian’s face had a trace of disdain, but his words were very magnanimous, "I was also a commoner of the Great Ming in the past, knowing this *Juren* of yours didn't come easily." He said, "Now there is an errand for you to do—not troublesome. As long as you do it well, when the situation stabilizes, naturally release you home first, and also give you travel expenses."
+"No need for modesty." A trace of disdain flickered across Zhao Fengtian's face, but his words remained gracious. "I was once a subject of the Great Ming myself. I know your *Juren* degree didn't come easily." He continued: "We have a task for you—not difficult. Complete it well, and once the situation stabilizes, you'll be among the first released. We'll also provide travel expenses."
 
-"Student knows the Senate's preferential treatment policy." Chang Qingyun had a bottom in his heart; ten out of ten it was a matter of playing with writing and ink, "Don't know what kind of errand?"
+"I'm familiar with the Senate's preferential treatment policies." Chang Qingyun felt his footing growing steadier. This was almost certainly something involving writing or painting. "What sort of task is it?"
 
-"Sir, please look." Zhao Fengtian led him to the rear hall. He saw a large painting table placed facing the back courtyard here. On it were listed various painting tools and paper and silk, many of which were top grade. Many books and painting scrolls were placed in the painting vat.
+"Please look, Sir." Zhao Fengtian led him to the rear hall. A large painting table faced the back courtyard, arrayed with various painting tools, paper, and silk—many of top quality. Numerous books and painting scrolls filled the painting vat.
 
-Zhao Fengtian picked up a scroll of painting silk from the table, unrolled it, and pressed it with paperweights on both sides. It was a blue-green landscape painting.
+Zhao Fengtian selected a scroll of painting silk from the table and unrolled it, pressing the ends flat with paperweights. It was a blue-green landscape.
 
-Chang Qingyun was not considered a famous master in painting—to him it was just a hobby, used to pass time usually. But even so, he could see the level of this painting was really not good: the composition was obviously imitated from a certain famous master, yet the brush strokes were weak and the brush intent messy. Although using top-quality painting silk and brush and ink pigments, the painted thing was really unbearable to look at.
+Though Chang Qingyun wasn't considered a master painter—to him it was merely a pastime—he could immediately see the painting's quality was poor. The composition clearly imitated some famous master, yet the brushwork was weak and the intent muddled. Despite using top-quality silk and pigments, the result was frankly painful to look at.
 
-"How does Sir think of this painting?" Zhao Fengtian asked.
+"What does Sir think of this painting?" Zhao Fengtian asked.
 
-Chang Qingyun was suddenly alert: Calling him here with such great trouble, and in a place like the Three Headquarters, with painting tools so exquisite... this painting was nine out of ten from the hand of some Hair thief high official.
+Chang Qingyun was instantly on guard. Given all the trouble of bringing him here to the Three Headquarters, with such exquisite painting supplies... this painting was almost certainly from the hand of some high Taiping official.
 
-Since ancient times high officials and rich merchants mostly liked to pretend to be elegant. Chang Qingyun had seen much. Probably Hair thieves were no exception.
+Since ancient times, officials and wealthy merchants had loved pretending to cultivation. Chang Qingyun had seen plenty of such cases. Presumably the Taipings were no different.
 
-He thought for a moment and said: "This painting obviously came from the brush of a novice, yet has quite some talent, also not easy. If given time, must become a great master!"
+He considered his words carefully. "This painting is obviously from a novice hand, yet it shows considerable natural talent. Given time, the artist could become a great master."
 
-Zhao Fengtian laughed: "Sure enough, a scholar knows how to talk. Just say painted badly and be done with it, why say must become a great master."
+Zhao Fengtian laughed. "Scholars certainly know how to talk. Just say it's badly painted and be done with it—why claim it will 'become a great master'?"
 
-"Yes, yes." Chang Qingyun agreed repeatedly, thinking in his heart: you can say this, I can't!
+"Yes, yes." Chang Qingyun agreed repeatedly, thinking: You can say that—I cannot.
 
-"Let me tell you the truth, this painting was painted by our Chief." Zhao Fengtian said, "His painting skills... you also saw..."
+"To be honest, this painting is by our Chief." Zhao Fengtian said. "His skills... well, you've seen them."
 
-"No wonder, no wonder." Chang Qingyun said repeatedly.
+"Of course, of course." Chang Qingyun said automatically.
 
-"No wonder what?"
+"Of course what?"
 
-"Although the painting cannot be said to be good, it has an air of a hero."
+"Though the painting can't be called good, it has a heroic spirit."
 
-Zhao Fengtian glanced at him, didn't comment further, but the disdain on his face was overflowing in words.
+Zhao Fengtian glanced at him. He made no comment, but disdain practically dripped from his expression.
 
-"...Just as you said, he is a novice. Even if studying diligently and training hard now, he can't paint well in a short while. Moreover, his official duties are busy, and he doesn't have this time..."
+"...As you said, he's a novice. Even with diligent practice, he couldn't paint well in a short time. Besides, his official duties keep him too busy..."
 
-Chang Qingyun originally thought the true Australian wanted to find someone to teach him painting or such, but hearing Zhao Fengtian’s words it didn't seem like it.
+Chang Qingyun had initially assumed the true Australian wanted him to teach painting or something similar. But Zhao Fengtian's next words suggested otherwise.
 
-"...So want to ask Sir to ghostwrite."
+"...So we'd like you to ghostwrite."
 
-So it was ghostwriting! Chang Qingyun thought, this was easier than teaching a true Australian to paint. Spreading it out wouldn't count as "clinging to the powerful" or "bowing and scraping." The reputation would be better.
+So that was it—ghostwriting! Chang Qingyun thought. This was far easier than teaching a true Australian to paint. If word spread, it wouldn't count as "clinging to the powerful" or "fawning"—his reputation would be safe.
 
-"This is easy." Chang Qingyun said, "Just don't know what kind of painting to paint, and what size. Student knowing it can also draft a mental plan."
+"That's simple enough." Chang Qingyun said. "What subject and size should the painting be? If I know, I can begin planning."
 
-"No rush." Zhao Fengtian said, "This ghostwriting is not asking you to paint at will. Sir please look." Saying this he took out another scroll from the painting vat and unfolded it on the table.
+"No rush." Zhao Fengtian said. "This isn't just painting whatever you like." He retrieved another scroll from the painting vat and spread it on the table.
 
-Chang Qingyun looked with one glance; this was a freehand orchid. Three or five strokes of extremely simple outline. Painted fairly okay, only the brush strokes were tender, appearing painted by a woman. There was no inscription on the painting.
+Chang Qingyun examined it. A freehand orchid—three or five strokes of extremely spare outline. Painted reasonably well, though the brushwork was delicate, suggesting a woman's hand. There was no inscription.
 
 "This..."
 
-"The painting painted by Sir, the painting intent should echo with this painting."
+"The painting you produce should echo this one in spirit."
 
-So that was it! Chang Qingyun suddenly realized. No wonder they called him to ghostwrite. With the uncouthness of Hair thieves, not to mention painting, even this painting intent might not be understood.
+Now Chang Qingyun understood. No wonder they had summoned him for ghostwriting. Given the Taipings' uncouth ways, painting was one thing—but understanding "painting intent" would be quite beyond them.
 
-"Student understands." He nodded, "This is not hard. Only, how does the Superior Officer want to echo? Must have a tenet."
+"I see." He nodded. "This isn't difficult. But how should it echo? There must be a theme."
 
-"This..." Zhao Fengtian pondered for a moment, "You just go paint, as long as it's positive and upward!"
+"This..." Zhao Fengtian pondered for a moment. "Just paint—as long as it's positive and uplifting."
 
-"Yes, yes." Chang Qingyun saw him wanting to speak but stopping. Adding the two paintings, his heart understood more than half. This was a woman's matter!
+"Yes, yes." Chang Qingyun noted his hesitation and restraint. Combined with the two paintings, he understood more than half the situation. This was about a woman.
 
-Combining with the furnishings and layout here and those exquisite painting tools, Chang Qingyun guessed that this place was nine out of ten where the Australian Wuzhou Prefect Xie Erren kept a mistress in a golden house! Only he could have this qualification and ability.
+Given the furnishings and layout here, along with those exquisite painting supplies, Chang Qingyun guessed this was almost certainly where the Australian Prefect Xie Erren kept his mistress in a golden house. Only he would have the status and means for such an arrangement.
 
-Unexpectedly this true Australian was so elegant. Chang Qingyun lamented, turns out among Hair thieves not all were rough embryos only knowing fleshly pleasures.
+So this true Australian had refined tastes after all. Chang Qingyun mused. Not all Taipings, it seemed, were crude types who knew only carnal pleasures.
 
-"Whatever painting tools you need, just make a list. I will prepare them for you here. Is it convenient for you to paint at Sanheui?"
+"Whatever painting tools you need, make a list and I'll have them prepared. Can you paint at Sanheui?"
 
-"Convenient, convenient!" Chang Qingyun nodded repeatedly, "Only need a painting table."
+"Yes, quite convenient!" Chang Qingyun nodded eagerly. "I'll just need a painting table."
 
-"This is easy, I'll have someone send one over." Zhao Fengtian said, "You just paint diligently. If there are paintings needing your echo in the future, they will naturally be sent over then. Take this one with you first—how many days to finish painting?"
+"Easily arranged. I'll have one sent over." Zhao Fengtian said. "Just focus on your painting. If there are more paintings requiring your response in the future, they'll be delivered to you. Take this one with you for now—how long to complete it?"
 
-"If materials are complete, one day is enough."
+"If the materials are ready, one day should suffice."
 
-"Good. Then the afternoon of the day after tomorrow I'll send someone to retrieve it—don't soil this painting, the Chief values it very much."
+"Good. I'll send someone the afternoon of the day after tomorrow to collect it. Don't damage this painting—the Chief values it greatly."
 
-"Student understands."
+"I understand."
 
-"I will inform the administrator in the camp, telling them not to assign work to you in recent days. You just do your best to paint."
+"I'll inform the camp administrator not to assign you any work for the next few days. Just concentrate on your painting."
 
-Chang Qingyun returned to Sanheui, his heart even more chaotic. Jiang Suo’s matter hadn't been thought through, and this time the Australians made such a scene again! Didn't know if it was fortune or misfortune?
+Chang Qingyun returned to Sanheui, his mind even more unsettled. He hadn't resolved the matter with Jiang Suo, and now this business with the Australians! Whether it was fortune or misfortune, he couldn't tell.
 
-He didn't know much about Xie Erren. But listening to public praise usually, he was a not bad Australian official. At least with Wuzhou under his rule, the market was peaceful and people harmonious. Wonder whose daughter of a thousand gold this Senator Xie hid? Probably having both talent and beauty; otherwise, this Senator Xie wouldn't be so infatuated for her.
+He didn't know much about Xie Erren. But from what he'd heard around the city, the man seemed a reasonable Australian official. Under his rule, the markets were peaceful and the people content. Whose daughter of great family was Senator Xie hiding away? She must be both talented and beautiful—otherwise, Senator Xie wouldn't be so infatuated.
 
-The next day, a painting table and painting tools were indeed sent to him from the city. The steward of the camp was also very polite, stating: "Mr. Chang just paint; leave other matters to others to do."
+The next day, a painting table and supplies did arrive from the city. The camp steward was quite polite: "Just focus on your painting, Mr. Chang. Leave other matters to others."
 
-Preferential treatment was not only this. Originally clerks like him only had two meals a day; only those going out for physical labor had three meals supplied. Yet this day he not only enjoyed lunch, but it was delivered by a special person—actually a "boxed meal" that only fake Australians could eat, with meat and vegetables, and a bowl of soup. Allowing Chang Qingyun, whose stomach turned sour from eating relief ration paste for many days, to have a good feast.
+The preferential treatment didn't stop there. Clerks like him normally received only two meals a day; only those doing physical labor outside got three. Yet today he not only received lunch, but it was delivered specially—an actual "boxed meal" of the sort only fake Australians ate, with meat and vegetables and a bowl of soup. It allowed Chang Qingyun, whose stomach had soured from days of relief ration paste, to feast properly.
 
-Wine and food satisfied, he picked his teeth while thinking. Being useful to Australians now was naturally excellent. But Jiang Suo's side also had to be dealt with; otherwise, with that rash fellow, he might really run to report him if things went wrong. After all, he dared to lead troops to defend Bang Mountain, a desperate place, back then.
+Wine and food satisfied, he picked at his teeth while thinking. Being useful to the Australians was excellent. But Jiang Suo's situation also required handling. That reckless fellow—if things went wrong, he really might run to report him. After all, he had once led troops to defend Bang Mountain, that desperate position.
 
-He knew the Australian rules: most particular about "ruling the country by law." If Jiang Suo really made a scene, even if he served Xie Erren, the other party had no ability to protect him—not to mention he was a "second-time" captive.
+Chang Qingyun knew the Australian rules: they were most particular about "rule of law." If Jiang Suo truly made a scene, even if he served Xie Erren, the man would have no ability to protect him—especially since he was a "second-time" captive.
 
-Thinking of this, he made up his mind: go meet the "old acquaintance" Jiang Suo mentioned, see exactly who he is, and what he has to say. Then make a decision.
+With this in mind, he reached a decision: go meet the "old acquaintance" Jiang Suo mentioned. See who it was and what they wanted. Then decide.
 
 ---
 **Next Update:** Volume 7 - Guangzhou Governance Part 471

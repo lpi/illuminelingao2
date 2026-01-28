@@ -1,108 +1,110 @@
 # Chapter 2282: Secrets of the Boudoir (1)
 
-This "Australian Hanfu" produced by No. 82, although style similar to Ming Dynasty, used modern cutting technology; wearing was more fitting and beautiful, using top quality fabric too. Plus a set of magnificent handmade hairpins. Cai Lan dressing up was extremely stunning.
+The "Australian Hanfu" from Shop 82, though similar in style to Ming Dynasty fashions, was cut using modern techniques that made it more flattering and elegant, fashioned from the finest fabrics. Paired with a magnificent set of handcrafted hairpins, Cai Lan was absolutely stunning once dressed.
 
-Jiang Qiuchan was somewhat surprised; Cai Lan’s attitude towards Senator Xie’s visit, although couldn't use "Ice Cold" to describe, had quite some perfunctoriness. Bathing and changing clothes quite reluctant; combing makeup done hastily. How come today had meaning of "Makeup for One Who Pleases Oneself"?
+Jiang Qiuchan was rather surprised. Cai Lan's attitude toward Senator Xie's visits had never been warm—not exactly cold, but certainly perfunctory. She bathed and changed clothes reluctantly, styled herself carelessly. Yet today there was a hint of "adorning oneself for one who appreciates beauty."
 
-What exactly did Mr. Hao say to her, making such big change in her state of mind?
+What exactly had Master Hao said to her to bring about such a change?
 
-"Aunt, is this clothes good looking?"
+"Aunt, does this dress look good?"
 
-"Wearing on Miss body, nothing more suitable." Qiuchan praised sincerely; sure enough was "People need clothes, Buddha needs gold"! Cai Lan originally was just middle appearance; even Qiuchan didn't understand why Australian would be so attentive to her. Now this attentive dressing up, indeed different!
+"On you, Miss, nothing could be more perfect." Qiuchan praised her sincerely. The old saying was true: *Fine feathers make fine birds.* Cai Lan was only middling in appearance; even Qiuchan couldn't understand why the Australian was so attentive to her. But with this careful preparation, she was truly transformed!
 
-Corner of Cai Lan’s mouth revealed smile slightly; Qiuchan for first time seeing her having such smile these days, unconsciously full belly of suspicion, dared not ask much either.
+A faint smile curved the corner of Cai Lan's mouth—the first genuine smile Qiuchan had seen from her in days. Though Qiuchan's mind churned with questions, she dared not ask.
 
-Xie Erren came to Three Headquarters sitting in sedan chair. Every time he came to Cai Lan’s place was dusk falling; at this time basically had no pedestrian on street.
+Xie Erren arrived at the Three Headquarters by sedan chair. His visits to Cai Lan's quarters always came at dusk, when the streets were virtually deserted.
 
-Usually he coming to Three Headquarters, always went to inspect National Army stationed here and naturalized citizen personnel of various organs first. But coming to Cai Lan’s place, he went nowhere else; sedan chair entered directly from corner gate, getting off sedan directly in Cai Lan’s yard.
+Normally when he came to the Three Headquarters, he would first inspect the National Army garrison and the naturalized personnel from various offices stationed there. But when visiting Cai Lan, he went nowhere else—the sedan entered directly through the corner gate, and he stepped out right in Cai Lan's courtyard.
 
-Earlier when he came here, Cai Lan was very cold, let alone coming out to welcome. Recently he discovered this woman was passionate to him a bit; seemed to have some attachment emotionally too. This made Xie Erren secretly proud; sure enough picking up girls still had to depend on "Soft Grinding" Kung Fu.
+When he first started coming here, Cai Lan had been cold, never bothering to come out and greet him. Recently, though, he had noticed this woman warming toward him, even developing what seemed like genuine attachment. This secretly pleased Xie Erren; as he'd suspected, winning women over required the "slow and steady" approach.
 
-Today once he got off sedan, Cai Lan already stood before steps, bowing body deeply curtseying.
+Today, the moment he stepped from the sedan, Cai Lan was already standing at the foot of the steps, bowing deeply in greeting.
 
-"Master Ten Thousand Blessings..."
+"May the Master enjoy ten thousand blessings..."
 
-Xie Erren waved hand, didn't speak any words, walked directly into main room. He unbuttoned outer cotton cadre uniform taking off coat. A maid hurriedly came up to receive, propping open with bamboo hanger hanging on coat rack. Another maid fetched straw slippers for him to change on.
+Xie Erren waved a hand without speaking and walked directly into the main room. He unbuttoned his cotton cadre jacket and removed his coat. A maid hurried forward to receive it, spreading it on a bamboo frame and hanging it on the coat rack. Another maid brought straw slippers for him to change into.
 
-"Bath water already heated, please Master change clothes enter bath." Cai Lan said in low voice.
+"The bathwater has been heated. Please change and bathe at your leisure, Master," Cai Lan said softly.
 
-Xie Erren sat in enamel bathtub, lighting a cigar, bathing while appreciating small yard outside window: bathroom was designed and rebuilt by himself; below enamel bathtub was heating chamber, burning fire from outside to heat air then heat whole bathroom and bathtub; this way neither "Boiling Living Person," nor could heat air of whole bathroom—although right now was summer, but estimating he had to work here for a year or two anyway; Wuzhou in Little Ice Age probably wouldn't be warm either.
+Xie Erren settled into the enamel bathtub, lit a cigar, and admired the small courtyard through the window as he soaked. He had designed and renovated this bathroom himself. Beneath the bathtub was a heating chamber, with fires lit outside to warm the air, which in turn heated both the room and the tub. This way he wasn't being "boiled alive," and the entire bathroom stayed comfortable. Though it was summer now, he expected to work here for at least a year or two, and Wuzhou during the Little Ice Age wouldn't be warm.
 
-Opposite bathtub inlaid glass transported from Lingao; outside window was a less than two square meters "Japanese Style Courtyard" built under his own design and supervision. White sand, flake stones, water bowl, grass and trees embellished exquisitely. While bathing smoking while appreciating, letting spirit and body both relax, liberating him from busy official business of daytime. Letting him restore from a Senator, Wuzhou Regional Director... to an ordinary man.
+Opposite the tub was a window inlaid with glass transported from Lingao. Beyond it lay a tiny courtyard, barely two square meters, that he had designed and supervised himself in the Japanese style—white sand, stepping stones, a water basin, artfully arranged grass and trees. Bathing while smoking, contemplating this little garden, he felt both mind and body relax, finding liberation from the busy official duties of the day. It transformed him from a Senator, from Wuzhou Regional Director, back into an ordinary man.
 
-Finished bathing, he changed into silk pajamas specially supplied by No. 82, coming to main room. Maids and servants all avoided already, leaving main room; a kerosene lamp lit snow bright.
+After his bath, he changed into silk pajamas specially supplied by Shop 82 and came to the main room. The maids and servants had already withdrawn; a kerosene lamp burned snow-bright.
 
-A table of wine and dishes not much quantity, but quite exquisite. Cai Lan poured wine for him; Xie Erren drank a few mouthfuls, only felt comfortable all over.
+A table of wine and dishes awaited him—not large quantities, but quite refined. Cai Lan poured his wine. Xie Erren drank a few mouthfuls and felt comfort wash over him.
 
-Looks like, still better coming out for external post; where in Lingao had such particular enjoyment! Xie Erren’s originally soaring grievance also calmed down slightly. Looking at Cai Lan serving head bowed aside, also felt gentler and more beautiful than past; his mood greatly good, casually asked:
+This was what made an outside posting worthwhile—where in Lingao could one enjoy such comforts? Xie Erren's once-simmering grievances settled somewhat. Looking at Cai Lan as she served him with bowed head, he found her gentler and lovelier than before. His mood greatly improved, and he asked casually:
 
-"Few days ago, you went to Dragon Mother Temple to offer incense?"
+"You went to Dragon Mother Temple to offer incense a few days ago?"
 
-"Yes, Slave Maid went."
+"Yes, your servant did."
 
-"Dragon Mother Temple side, how was situation?"
+"How were things there?"
 
-"Actually quiet." Cai Lan said.
+"Quite peaceful," Cai Lan said.
 
-"Oh," Xie Erren got interest, "How about common people?"
+"Oh?" Xie Erren grew interested. "And the common people?"
 
-"Generally passable." Cai Lan said, "Just..."
+"Generally passable." Cai Lan paused. "Only..."
 
-"Just what?" Xie Erren got interest; usually he talking with Cai Lan was one ask one answer; rarely heard Cai Lan having own expression.
+"Only what?" Xie Erren leaned forward. Usually their conversations were stilted question-and-answer affairs; he rarely heard Cai Lan offer her own observations.
 
-"All say grain too expensive." Cai Lan said, "Abbot Wu Yuan spoke to me, saying outside security not good, tenants unwilling to pay rent; this year grain afraid can't count on; rice on market expensive again, about to afford no more."
+"Everyone says grain is too expensive," Cai Lan said. "Abbess Wu Yuan mentioned to me that with security being poor, the tenants refuse to pay rent. She fears they can't count on this year's harvest. And market rice is expensive again—she said they may soon be unable to afford it."
 
-"Doesn't their temple also have registered residence rice to buy?"
+"Doesn't their temple qualify for ration rice purchases?"
 
-"This Slave Maid doesn't know..."
+"That, your servant doesn't know..."
 
-Abbot Wu Yuan indeed said this to her; purpose nothing more than hoping Cai Lan could blow pillow wind to Director Xie, seeing if could strive for some benefits for temple—fawning on favored concubines of high officials and noble families was a method temple tried repeatedly effectively.
+Abbess Wu Yuan had indeed said this to her, hoping Cai Lan might whisper in Director Xie's ear and secure some benefits for the temple. Currying favor with the favored concubines of powerful men was a tried-and-true temple tactic.
 
-"This doesn't count anything. Endure a few more months, ground all quiets down, naturally can collect rent." Xie Erren talk interest burst at this moment, "Besides not long later huge batch of grain arrives Wuzhou, grain price will drop immediately. Need not worry!"
+"That's nothing to worry about. Endure a few more months. Once the region quiets down, they'll collect their rents." Xie Erren was suddenly talkative. "Besides, a large shipment of grain will arrive in Wuzhou soon. Prices will drop immediately. No need for concern!"
 
-Second day after Xie Erren visited, arrived Qiuchan’s rest day again. Jiang Qiuchan’s maiden family was right in Wuzhou city, opening a silk satin shop named "Ruijintang," not counting big business, but also a century old brand inheriting, family bottom quite substantial.
+---
 
-Qiuchan’s father already passed away; only old mother in hall; one managing family business was eldest brother Jiang Rongxian.
+The day after Xie Erren's visit happened to be Qiuchan's rest day. Jiang Qiuchan's maternal family was right here in Wuzhou city, owners of a silk and satin shop called "Ruijintang." It wasn't a large business, but it was a century-old establishment with substantial assets.
 
-At this moment this Jiang family head was sitting straight in accounting room behind brand, eyebrows frowning not spreading.
+Qiuchan's father had already passed away; only her elderly mother remained. The one managing the family business was her elder brother, Jiang Rongxian.
 
-Hearing family member say sister returned, he nodded slightly, threw account book flipped countless times in hand onto table, worrying secretly.
+At this moment, the head of the Jiang household sat rigidly in the accounting room behind the shop, his brow deeply furrowed.
 
-Seeing Mid-Autumn right before eyes, people owing owing people all had to settle clear one by one. Dragon Boat Festival season encountered right after war chaos; shop damaged, households fled. So various families didn't clear accounts. Seeing two more months would be Mid-Autumn; this time, account must be calculated.
+When a servant reported that his sister had returned, he nodded slightly, tossed the ledger he had been poring over onto the table, and continued to worry in silence.
 
-Account book was sent by accountant; he flipped countless times, also flipped on abacus countless times. Worrying was not loss—doing business profit and loss were common things. But this situation of having output no input right now.
+The Mid-Autumn Festival was nearly upon them, and all debts owed and owing had to be settled. The Dragon Boat Festival season had coincided with the chaos of war; shops had been damaged and households had fled. Various families hadn't cleared their accounts then. With only two months until Mid-Autumn, this time the reckoning could not be avoided.
 
-"Ruijintang" in Wuzhou battle three months ago also suffered robbery; funds in shop almost all plundered by government with various names, loss quite heavy. Finally shop and goods still preserved, not yet bankrupt.
+The accountant had brought him this ledger. He had flipped through it countless times, worked the abacus countless times. The problem wasn't losses—profit and loss were normal in business. The problem was the constant outflow with nothing coming in.
 
-Just now although Wuzhou market recovered somewhat, silk satin this thing was business good to do when under heaven peaceful; right now Two Guangs situation, ordinary people livelihood difficult, rich people because repeatedly suffering disasters, unwilling to spend money either. Desolateness of business could be imagined.
+"Ruijintang" had suffered robbery during the Wuzhou battle three months ago. Nearly all the shop's funds had been plundered by the government under various pretexts; the losses were severe. Fortunately, the shop and goods remained intact—they hadn't gone bankrupt.
 
-Business bad, expenses not few. According to Senator Xie’s instruction, no business had to open shop too, not allowed to lay off partners, all had to feed—although not paying wages, feeding these people was also an expense. Jiang family had numerous relatives in Wuzhou; Wuzhou battle, relatives friends bankrupt were not few, coming to beg help one after another. Out of face, Jiang family more or less had to help a bit. Plus after Wuzhou recovered Senator Xie’s "New Policy," all apportioned to various trading firms by Aftermath Bureau. Jiang family only had output, no input; Jiang Rongxian’s worry could be imagined.
+But though the Wuzhou market had recovered somewhat, silk and satin was a trade that flourished in peaceful times. With the Two Guangs in their current state, common people struggled to survive, and the wealthy, having suffered disaster after disaster, were reluctant to spend. The desolation of business was easy to imagine.
 
-Happened at this time, own sister’s husband was killed by chaotic soldiers again; at time of military chaos dared not return to husband family either, bringing child lodging in home. He as elder brother was duty-bound; helpless wife in home wasn't this virtuous, seeing this sister-in-law living in home for three months, had complaints—fortunately recently sister got a job, earning one tael silver back every month, ears finally idle quite a bit.
+Business was poor, but expenses remained. According to Senator Xie's instructions, shops had to stay open whether there was trade or not; partners couldn't be dismissed; everyone had to be fed. Though wages weren't being paid, feeding these people was still an expense. The Jiang family had numerous relatives in Wuzhou, and the battle had ruined many of them. They came one after another seeking help. For the sake of appearances, the Jiangs had to offer at least some assistance. On top of that, Senator Xie's "New Policies" after Wuzhou's recovery had apportioned various levies to different trading firms through the Aftermath Bureau. The Jiangs had only outflows, no income. Jiang Rongxian's distress was easy to imagine.
 
-Deficit before eyes, deducting those on accounts, he himself had a secret account in heart bottom; calculating down generally, probably less than two thousand taels, one thousand big number was there.
+And at just this time, his own sister's husband had been killed by rogue soldiers. During the military chaos, she hadn't dared return to her in-laws' household and had brought her child to stay at his home. As her elder brother, he was duty-bound to help. Unfortunately, his wife was less than virtuous—seeing this sister-in-law living under their roof for three months had provoked considerable grumbling. Fortunately, his sister had recently found employment earning one tael of silver per month, which finally quieted things down somewhat.
 
-His gaze returned to account book, gutting intestines scraping belly looking at which could be "dealt with," which must be paid.
+Looking at the deficit before him, after deducting what was recorded in the books, he ran through a secret accounting in his head. The shortfall came to roughly between one and two thousand taels—certainly at least a thousand.
 
-Fortunately, payment for upstream goods he headache most could delay a bit. Silk satin suppliers were all in Guangzhou Prefecture. In past all sent people to Wuzhou; after collecting debt used silver to purchase goods in Wuzhou, then transport back to Guangzhou to sell, could earn money twice. Now road not peaceful, upstream unlikely to risk wealth being robbed sending people to collect debt.
+His gaze returned to the ledger as he racked his brain over which debts could be "dealt with" and which absolutely had to be paid.
 
-Like this, could subtract nearly one thousand taels payable. Remaining seven or eight hundred taels, some must pay, some greatly could drag first; calculating back and forth, had about five hundred taels silver to pass barrier.
+Fortunately, the payments to upstream suppliers—his greatest headache—could be delayed somewhat. The silk and satin suppliers were all in Guangzhou Prefecture. In the past, they sent agents to Wuzhou to collect debts and use the silver to purchase goods here, which they transported back to Guangzhou for resale, profiting twice. Now, with the roads unsafe, the upstream suppliers were unlikely to risk having their money stolen by sending collectors.
 
-Money, he naturally still had. Shop, home accounting room still stored more than three hundred taels silver. Mother and wife concubine hands had some private savings more or less. Pooling up five hundred taels to deal wasn't hard. But like this, shop and home would have no cash—goods in shop couldn't move; couldn't take satin to offset rice money—rice shop wouldn't agree either.
+This meant he could subtract nearly a thousand taels of payables. Of the remaining seven or eight hundred, some had to be paid, some could be put off. After much calculation, he figured he needed about five hundred taels to get through.
 
-Thinking of rice shop, remembered home fingers numerous; eating rice every month was a huge expense. "Ruijintang" used six partners and three apprentices. Home had five male and female servants. Just buying rice every month was a huge number—happened grain price flying up again! Even "Registered Residence Rice" calculated mouth sold in Australian yamen was two three times more expensive than pre-war.
+Money he still had. The shop and household accounting room held over three hundred taels of silver. His mother and wife had their private savings. Pooling together five hundred taels wouldn't be difficult. But that would leave the shop and household without any cash on hand—and the goods in the shop wouldn't move. He couldn't pay the rice merchant in satin; the rice shop wouldn't accept it.
 
-These days of military chaos horse confusion, when would be a head!
+Thinking of the rice shop reminded him of the many mouths to feed at home. Monthly rice consumption was an enormous expense. "Ruijintang" employed six partners and three apprentices. The household had five servants, male and female. Rice purchases alone were a staggering sum each month—and grain prices were soaring! Even the "Ration Rice" sold at the Australian yamen, calculated per person, cost two to three times more than before the war.
 
-Jiang Rongxian calculated again and again in heart; debt needed to pay still couldn't lack one tael silver. He unconsciously felt irritable—best right now could make a fortune of several hundred taels silver!
+When would this chaos of soldiers and turmoil ever end!
 
-Thinking here, he unconsciously smiled bitterly: didn't expect himself surprisingly would have such absurd thought!
+Jiang Rongxian calculated again and again in his head. The debts that had to be paid couldn't be reduced by a single tael. Frustration welled up—if only he could somehow come into a few hundred taels right now!
 
-He suddenly remembered a matter; own sister now was serving as accompanying woman for Australian Senator Xie’s "Concubine." This concubine was said to be very favored by "True Hair"—if could find some way from this woman, could blow pillow wind giving own family some business then would be good...
+At this thought, he smiled bitterly to himself. When had he become capable of such absurd fantasies?
 
-But he thought depressingly again, own business was silk satin; this thing Australians right now basically couldn't use, not interested either.
+Then he suddenly remembered something. His own sister was now serving as a companion to the "concubine" of Australian Senator Xie. This concubine was said to be greatly favored by the "True Hair." If he could somehow find a way through this woman—get her to whisper in the right ear and bring some business to his family—that would be something...
 
-Speaking of doing what making money most now, needless to say was grain business. Grain shortage in Wuzhou city; price of non-tiger mouth rice already doubled compared to normal price; if anyone could get grain at this time, immediately was double profit!
+But then he thought despondently that his business was silk and satin, something the Australians currently had no use for and no interest in.
+
+As for what trade was most profitable now—well, that went without saying: the grain business. Wuzhou was suffering a grain shortage; non-rationed rice had already doubled from normal prices. Anyone who could get their hands on grain at this moment could double their money instantly!
 
 ---
 **Next Update:** Volume 7 - Guangzhou Governance Part 486

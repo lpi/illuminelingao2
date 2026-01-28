@@ -1,93 +1,95 @@
 # Chapter 2116 - Panic and Confusion
 
-"But doing this, the Governor-General will lose the hearts of the people!"
+"But implementing these measures will cost the Governor-General any remaining popular support!"
 
-"Hearts of the people? What good is that now?!" Chang Qingyun leaped to his feet and thundered: "This whole city of Wuzhou is seething with undercurrents. Every big or small household has probably prepared blue cloth and red paper, incense burners and candlesticks, ready to welcome the heavenly troops and become obedient subjects of the Great Song! The only one who doesn't know is the Governor-General himself!"
+"Popular support? What value does that hold now?!" Chang Qingyun exploded to his feet, voice thundering: "This entire city seethes with seditious undercurrents. Every household—great and small—has doubtless prepared blue cloth and red paper, incense burners and candlesticks, ready to welcome the 'heavenly troops' and prostrate themselves as obedient subjects of the Great Song! The only soul ignorant of this reality is the Governor-General himself!"
 
-Yi Haoran answered: "What you say is true. Yet the sage taught: 'When the ruler treats his subjects like grass and weeds, the subjects treat the ruler like a bandit.' Ever since the soldiers entered the city, discipline has grown worse by the day. From the gentry to the common folk, all have suffered. They came to defend and protect the people, yet they've brought nothing but harm! Today's situation—isn't it of our own making?!"
+Yi Haoran responded evenly: "Your observation holds truth. Yet the sage taught: 'When the ruler treats his subjects like grass and weeds, the subjects treat the ruler like a bandit.' Since the moment our soldiers entered these walls, military discipline has deteriorated with each passing day. From gentry to commoners, all have suffered. Forces dispatched to defend and protect the populace have instead brought only devastation! Today's catastrophic situation—is this not entirely of our own making?!"
 
-Chang Qingyun's face was iron-hard, but he didn't interrupt. When Yi Haoran had finished, he asked: "Very well, then what brilliant plan does Master Yi have?"
+Chang Qingyun's features hardened to iron, but he didn't interrupt. When Yi Haoran finally fell silent, he asked with calculated mildness: "Very well. Then what brilliant stratagem does Master Yi propose?"
 
-At this, Yi Haoran was struck dumb. Every possible stratagem had already been tried. Wuzhou was truly at the end of its rope—nowhere left to turn.
+At this, Yi Haoran found himself struck utterly dumb. Every conceivable measure had already been attempted. Wuzhou truly stood at the terminus of all options—nowhere left to retreat.
 
-If there was any way to save both the city and its people, it was only to open the gates and surrender.
+If any path existed to preserve both city and populace, it could only be throwing open the gates in unconditional surrender.
 
-Yi Haoran stood bewildered. He couldn't bring himself to say the word "surrender."
+Yi Haoran stood paralyzed, bewildered. He could not force the word "surrender" past his lips.
 
-Chang Qingyun said nothing more. He rose and paced the room: "With the Changzhou and Bangshan positions lost, Wuzhou is cut off inside and out. The grain and supplies from Guilin Prefecture can't get through. In a moment, the soldiers in this city will be starving. If we don't seize the stored grain, are we waiting for them to mutiny? Having seized the civilians' grain, if we don't conscript the able-bodied men into militia and keep them under watch, aren't we afraid that among them agents will emerge and open the gates to the enemy as happened in Guangzhou? And leaving women, children, and the elderly inside—is it to let them starve to death in this doomed city, or to let them burn when it falls?"
+Chang Qingyun offered no further comment. He rose and began pacing the chamber: "With Changzhou and Bangshan positions lost, Wuzhou is severed from all external support. Grain and supplies from Guilin Prefecture cannot penetrate the blockade. Imminently, the soldiers garrisoned here will face starvation. If we don't commandeer stored grain reserves, shall we await their inevitable mutiny? Having seized the civilians' grain, if we don't conscript every able-bodied man into militia and maintain them under strict surveillance, shall we not fear that Australian agents will emerge among them to open the gates from within—precisely as occurred at Guangzhou? And leaving women, children, and elderly trapped inside—shall we permit them to starve within this doomed city, or watch them burn when it inevitably falls?"
 
-"But outside the walls there may be nothing to eat. The Hair-Bandits have campaigned far from home—how much grain can they spare for refugees?"
+"But beyond the walls there may be nothing to sustain them. The Hair-Bandits have campaigned far from their home territories—how much grain can they possibly spare for refugees?"
 
-"Aren't the Australians famous for their 'benevolence'?" Chang Qingyun said coldly. "Even if the civilians drink only gruel, the Hair-Bandits will consume quite a bit. Even if they take Wuzhou, they still won't have enough to eat. The Hair-Bandits may be formidable, but at most they can only hold this one city of Wuzhou. Guangxi will remain secure!"
+"Aren't the Australians internationally renowned for their 'benevolence'?" Chang Qingyun's voice dripped acid. "Even if the civilians subsist on watered gruel, feeding them will consume the Hair-Bandits' provisions substantially. Even if they capture Wuzhou, they'll lack sufficient grain to maintain occupation. The Hair-Bandits may be formidable in battle, but at maximum capacity they can hold only this single city. Guangxi itself will remain secure!"
 
-Yi Haoran drew in a sharp breath. His mind went blank. A moment later, he recovered and cried out: "You still intend to burn the city?!"
+Yi Haoran drew a sharp, involuntary breath. His mind went completely blank. A heartbeat later, consciousness returned and he cried out: "You still intend to incinerate the city?!"
 
-"As things stand, the only option is for everything to perish together!" Chang Qingyun said. "We cannot hold it; the Hair-Bandits shall not have it either!"
+"Circumstances have devolved to this extremity—the sole remaining option is mutual annihilation!" Chang Qingyun declared flatly. "We cannot hold Wuzhou; therefore the Hair-Bandits shall not possess it either!"
 
-"I demand to see Governor Xiong!"
+"I demand immediate audience with Governor Xiong!"
 
-Chang Qingyun said: "Governor Xiong is no longer in the city."
+Chang Qingyun's reply came with devastating simplicity: "Governor Xiong is no longer within the city."
 
 "What?!"
 
-"Master Yi, please calm yourself." Chang Qingyun's tone was very mild. "The Governor-General is the viceroy of two provinces. What use is it for him to be trapped in Wuzhou? Naturally he must go out to direct the greater situation."
+"Master Yi, please compose yourself." Chang Qingyun's tone shifted to unnaturally mild. "The Governor-General serves as viceroy of two entire provinces. What strategic value exists in his being trapped within Wuzhou's walls? Naturally he must depart to direct the broader situation."
 
-Yi Haoran felt a stab of disappointment. He had been the staff's rising star these past months—a clear "favorite" of Xiong Wencan's—and yet his patron had slipped away without a word, leaving him behind! Such callousness! More wounding still was the realization that his departure without Yi Haoran meant Xiong Wencan hadn't considered him important.
+Yi Haoran felt a visceral stab of disappointment penetrate his chest. He had been the staff's rising luminary these past months—an unambiguous "favorite" in Xiong Wencan's constellation of advisers—yet his patron had slipped away under darkness without a word, abandoning him! Such callous betrayal! More wounding still was the inescapable realization: Xiong Wencan's departure without informing Yi Haoran meant the Governor-General had never considered him genuinely important.
 
-At least Chang Qingyun was also in the city, which slightly eased his feelings.
+At least Chang Qingyun also remained trapped within the city, which fractionally eased the sting.
 
-"Doesn't Master Yi want to defend Wuzhou to the death? I shall now share life and death with you. Ha ha ha, ha ha ha." Chang Qingyun let out a strange succession of laughs. "Come, let us have tea together…"
+"Doesn't Master Yi desire defending Wuzhou to the death? I shall now share life and death with you in this glorious last stand. Ha ha ha, ha ha ha." Chang Qingyun released a succession of strange, humorless laughs. "Come—let us share tea together while we await our fate..."
 
 ---
 
-Meanwhile, Luo Yangming's mind was in turmoil. The other magnates who had been summoned to the banquet were frantic: not only their stores of grain, but their families too faced disaster—and they themselves would be trapped here. In the distance, screams echoed from time to time. Luo Yangming knew that the Ming soldiers were seizing grain from every household. Clearly the common folk's reserves were negligible; the soldiers had their eyes on the big merchants. Order was tottering; the leash on the rioters was slipping looser and looser. A catastrophe for the people was imminent!
+Meanwhile, Luo Yangming's mind churned in mounting turmoil. The other magnates who had received the banquet summons verged on panic—not merely their grain stores but their entire families faced annihilation, and they themselves would be trapped within this death trap. Distant screams punctuated the gathering darkness with increasing frequency. Luo Yangming understood the reality: Ming soldiers were systematically looting grain from every household. Common folk's meager reserves held no interest for the rioters—the soldiers had fixed their predatory attention on wealthy merchant households. Civil order teetered on complete collapse; the restraints on rampaging troops slipped looser with each passing moment. Wholesale catastrophe loomed imminent!
 
-He and Guild-master Qiao met with the guild heads of various trades in Master Qiao's residence. After deliberation, they reached a consensus. First: the banquet must not be attended—not only must they not go, they must do everything possible to warn nearby magnates not to go either. Going almost certainly meant being burned alive inside. Second: the headmen's militia units must be firmly controlled—they must not be swept up by the soldiers. Third: fire brigades throughout the city must ready their equipment. At the first sign of fire, they must move to extinguish it, with militia escort. Fourth: they must be prepared to fight the soldiers.
+He and Guild-master Qiao convened an emergency meeting with guild heads representing various trades at Master Qiao's fortified residence. After intense deliberation, they achieved consensus on four critical measures. First: the banquet must be boycotted absolutely—not merely refusing attendance themselves, but warning every reachable magnate against participation. Attending almost certainly guaranteed being burned alive. Second: headmen must maintain iron control over their militia units—preventing soldiers from sweeping them into the maelstrom. Third: fire brigades citywide must prepare all equipment immediately. At the first sign of arson, they must deploy to extinguish flames with militia escort providing armed protection. Fourth: they must steel themselves for armed conflict with the soldiers.
 
-Despite their usual rivalries over business, the magnates were willing to cooperate now—after all, Wuzhou was their livelihood. Without much difficulty, they raised twenty thousand taels of silver to distribute among the garrison soldiers, constables, and militia, ensuring their loyalty when the moment came—or at least that they wouldn't join in the looting. At the same time, they promised the officers: if Wuzhou could be delivered safely to the Australians, there would be further rewards afterward.
+Despite their customary fierce commercial rivalries, the magnates demonstrated genuine cooperation now—Wuzhou itself represented their collective livelihood. Without excessive difficulty, they pooled twenty thousand taels of silver for strategic distribution among garrison soldiers, constables, and militia forces, purchasing their loyalty when the critical moment arrived—or at minimum ensuring they wouldn't join the looting. Simultaneously, they promised the officers: if Wuzhou could be delivered intact to Australian control, substantial additional rewards would follow.
 
-At that moment, someone came to report that soldiers were directing the militia at the eastern and western gates to dig open the blocked gateways—apparently to expel civilians tonight.
+At that critical juncture, a messenger arrived reporting that soldiers were directing militia at the eastern and western gates to excavate blocked gateways—apparently preparing to expel civilians that very night.
 
-"Once the gates are opened, the heavenly troops can enter. But it's already dark; the heavenly troops may suspect a trap and not attack."
+"Once the gates stand open, the heavenly troops can enter. But darkness has already fallen; the heavenly troops may suspect a trap and refuse to assault."
 
-"If only someone could risk his life to slip out of the city and make contact with the heavenly troops!" someone proposed.
+"If only someone could risk his life slipping beyond the walls to establish contact with the heavenly troops!" someone proposed urgently.
 
-The suggestion was sensible. Yet the magnates looked at one another, and no one volunteered. Slipping out to make contact wasn't hard—if you were willing to spend money, someone would certainly brave death to go. But to gain the Australians' trust, there must be some credential—inevitably a letter. If that fell into the soldiers' hands, it would be an instant disaster!
+The suggestion carried strategic merit. Yet the magnates exchanged glances, and no one volunteered. Slipping out to make contact wasn't inherently difficult—with sufficient financial incentive, someone would certainly brave death to attempt it. But gaining Australian trust would require credible credentials—inevitably a written message. Should that document fall into soldiers' hands, instant disaster would follow!
 
-"I'll handle it!" With no other choice, Luo Yangming stepped forward. "I've done business with the Australian rice traders at Dachang. I've heard that Dachang is supplying the Australian army's provisions this time—I'm an old trading partner of theirs."
+"I'll undertake this mission!" With no alternative presenting itself, Luo Yangming stepped forward decisively. "I've conducted extensive business with Australian rice traders at Dachang. I've learned that Dachang is supplying provisions for the Australian army's current campaign—I'm an established trading partner of theirs."
 
-With someone volunteering, the magnates all relaxed and rushed to assure him: "Your wife and children—we will care for them as our own. Fear not."
+With a volunteer finally secured, the magnates collectively relaxed and hastily offered reassurances: "Your wife and children—we pledge to care for them as our own. Harbor no fears."
 
-Luo Yangming had no time to judge whether these pledges were sincere or hollow. He hurried out of Master Qiao's residence, bringing his servants, taking back alleys and side lanes, threading through deserted corners, rushing home.
+Luo Yangming possessed no time to evaluate whether these pledges rang sincere or hollow. He rushed from Master Qiao's residence with his servants, navigating back alleys and side lanes, threading through deserted corners, racing homeward.
 
-The city was pervaded by an atmosphere of panic. On the main streets, many houses and shops had already been smashed open. Dead bodies lay in the streets from time to time; everywhere rose howls and weeping.
+The entire city was pervaded by an atmosphere of mounting panic. Along main thoroughfares, many residences and shops had already been violently breached. Corpses lay scattered in the streets with increasing frequency; wails and weeping rose from every quarter.
 
-Luo Yangming couldn't afford to care about any of that. He hurried back to his shop, where his old manager Li Wensheng and Wen Tietou had been waiting anxiously. When they saw him return, they were overjoyed. Li Wensheng, already sixty and a longtime family retainer, immediately began to weep: "Master, the soldiers took all the rice from our warehouse! I couldn't save a single grain!"
+Luo Yangming could spare no attention for such horrors. He hurried directly back to his shop, where old manager Li Wensheng and Wen Tietou had been waiting with mounting anxiety. When they spotted his return, relief flooded their features. Li Wensheng—already sixty years old and a longtime family retainer—immediately dissolved into tears: "Master, the soldiers seized every grain of rice from our warehouse! I couldn't preserve even a single measure!"
 
-Wen Tietou also looked sheepish, mumbling: "The soldiers were many, with swords and spears. I was alone… outnumbered…"
+Wen Tietou also exhibited sheepish discomfort, mumbling: "The soldiers came in force, bristling with swords and spears. I was alone... hopelessly outnumbered..."
 
-The rice depot Luo Yangming operated was, strictly speaking, property of the Council of Elders. Still, as the nominal merchant, losing so much rice pained him nonetheless. But now was not the time for recriminations. He said reassuringly:
+The rice depot Luo Yangming operated was, strictly speaking, property of the Australian Council of Elders. Still, as the nominal proprietor, losing such substantial inventory pained him nonetheless. But this was emphatically not the moment for recriminations. He offered reassurance:
 
-"Let them take the rice if they want. These soldier-bandits won't be eating much rice for long! As long as people are safe, everything else can be worked out." He then instructed Wen Tietou to look after the family in the back courtyard and called Li Wensheng into the study.
+"Let them take the rice if they wish. These soldier-bandits won't be consuming much rice for long! As long as our people survive, everything else can be reconstructed." He instructed Wen Tietou to guard the family in the rear courtyard, then summoned Li Wensheng into his private study.
 
-Li Wensheng had originally been a clerk at Luo Yangming's rice shop in Sanshui. After the shop was seized, Li Wensheng had been left homeless. When Luo Yangming came to Wuzhou as an intelligence operative, he encountered the destitute Li Wensheng in Sanshui and recruited him again—an asset for running the Wuzhou rice depot. Though Luo Yangming never revealed any intelligence work to Li Wensheng, and rarely even mentioned his experiences in Lingao, he still trusted this old retainer who had watched him grow up—now his head clerk.
+Li Wensheng had originally served as clerk at Luo Yangming's rice shop in Sanshui. After that shop was confiscated, Li Wensheng had been rendered destitute. When Luo Yangming arrived in Wuzhou as an intelligence operative, he encountered the impoverished Li Wensheng in Sanshui and recruited him again—an invaluable asset for managing the Wuzhou rice depot. Though Luo Yangming never revealed his intelligence work to Li Wensheng, and rarely even mentioned his Lingao experiences, he trusted this old retainer who had watched him grow from childhood—now his senior clerk.
 
-The old man was elderly—a doddering appearance—but "expelling the old and weak" would let him blend into the crowd without a problem. And his body was actually quite robust; he could still manage a trek through the mountains.
+The elderly man presented a doddering appearance—but the "expulsion of the old and weak" would allow him to blend seamlessly into the refugee crowd without attracting scrutiny. Moreover, his constitution remained quite robust despite his years; he could certainly manage a mountainous trek.
 
-Luo Yangming wrote a letter in cipher and instructed Li Wensheng that when he got outside the city, he absolutely must deliver this letter to an Australian officer.
+Luo Yangming composed a letter in cipher and instructed Li Wensheng that upon reaching the exterior, he must absolutely deliver this message to an Australian officer.
 
-"If they won't let you see an Australian chief, tell them you have intelligence for the Australian chiefs. If that still doesn't work, say you were sent by 'Lone Wolf.' Just that one phrase—remember it well."
+"If they refuse you access to an Australian commander, inform them you carry intelligence for the Australian leadership. If that still fails, state you were dispatched by 'Lone Wolf.' Just that single phrase—commit it to memory."
 
-"Master, this old servant will not fail the mission. Only, after we part tomorrow, who knows when we'll meet again." The loyal old clerk wept as he spoke.
+"Master, this old servant will not fail his mission. Only... after we part tomorrow, who knows when we shall meet again." The loyal old clerk wept as he spoke.
 
 "We will meet again."
 
-That evening, the Governor's yamen banquet to host the city's merchants saw almost none of the expected magnates or headmen. Only Guild-master Qiao came—and instead of coming alone, he brought a mob of commoners: several hundred people blocking the yamen gate to petition. Somehow the rumor had spread that Governor Xiong intended to burn the city, taking everyone—men, women, and children—down with it. The old and infirm knelt in the street, wailing, begging Governor Xiong to "have mercy on the people and surrender the city without bloodshed."
+---
 
-The news spread like wildfire; within half an hour, the entire city was in uproar. Wuzhou seethed with chaos; people ran through the streets like headless flies.
+That evening, the Governor's yamen banquet intended to host the city's merchants and magnates saw virtually none of the expected attendees. Only Guild-master Qiao appeared—and rather than coming alone, he brought a mob of several hundred common people who blockaded the yamen gate to present a petition. Somehow rumors had proliferated that Governor Xiong intended to incinerate the city, consuming everyone—men, women, and children—in the conflagration. The elderly and infirm knelt in the street, wailing, begging Governor Xiong to "show mercy to the people and surrender the city without bloodshed."
 
-The commotion and tumult inside the city caught the attention of the Fubo Army's reconnaissance patrols outside the walls. They couldn't tell exactly what was happening inside. From the confessions of soldierswho had come out to surrender over the past few days, they knew the situation inside was unstable, order was collapsing. But exactly how chaotic it had become, and what the officials from Xiong Wencan on down intended to do—the surrendered soldiers knew little.
+The news propagated like wildfire; within mere half an hour, the entire city was in uproar. Wuzhou seethed with chaos; people ran through the streets like headless flies.
 
-From those confessions, however, Zhu Mingxia had a rough idea that the soldiers might set fires once the city fell. This worried him greatly. Once the soldiers torched the city, Wuzhou might be destroyed, and the grain he had counted on requisitioning locally would go up in smoke. So after taking Bangshan, he immediately began deploying troops and preparing to attack—to seize Wuzhou as quickly as possible.
+The commotion and tumult within the city caught the attention of Fubo Army reconnaissance patrols stationed outside the walls. They couldn't discern precisely what transpired inside. From confessions of soldiers who had surrendered over recent days, they knew the internal situation was unstable, order collapsing. But exactly how chaotic conditions had deteriorated, and what the officials from Xiong Wencan downward intended to implement—the surrendered soldiers possessed little knowledge.
+
+From these confessions, however, Zhu Mingxia had developed a rough understanding that soldiers might set fires once the city fell. This worried him profoundly. Should the soldiers torch Wuzhou, the city might be completely destroyed, and the grain he had counted on requisitioning locally would vanish in smoke. Therefore, after capturing Bangshan, he immediately commenced deploying troops and preparing for assault—intending to seize Wuzhou with maximum speed.
 
 *(End of Chapter)*

@@ -1,123 +1,123 @@
 # Chapter 2406: Reorganizing the Family Business (III)
 
-Chen Lin walked around the village. Following the etiquette of a junior returning home, he visited the elders of the clan one by one. For the deceased, he kowtowed before their spirit tablets; for the living, he sat down and chatted for a few sentences.
+Chen Lin walked through the village. Following the etiquette of a junior returning home, he visited the clan elders one by one. For the deceased, he kowtowed before their spirit tablets; for the living, he sat and exchanged a few words.
 
-His family had a very high status in the clan, so even the elders had to be polite to him. But he sensed uneasiness revealed in the elders' words and expressions.
+His family had always held high status within the clan, so even the elders treated him with courtesy. But he sensed uneasiness beneath their words and expressions.
 
-He originally thought this uneasiness was related to Second Uncle seizing the silk workshop: fearing that once he returned, uncle and nephew would fight and cause trouble in the clan. Only from the conversation did he realize that what they were more uneasy about was Second Uncle colluding with "outsiders" after seizing clan power by colluding with the Australians.
+He had initially assumed this uneasiness stemmed from Second Uncle seizing the silk workshop—fear that his return would spark a conflict between uncle and nephew, causing turmoil within the clan. Only through conversation did he realize their greater anxiety: Second Uncle had seized clan power by allying with the Australians, then colluded with "outsiders."
 
-Although there were not many outsiders in Nansha, they accounted for almost one-third of the population. Most were laborers and tenant farmers. These outsiders had always been submissive under the rule of the Chen family in the past. Occasionally if a few restless ones appeared, the clan elders just needed a word to deal with them.
+Though outsiders in Nansha were not numerous, they accounted for nearly a third of the population—mostly laborers and tenant farmers. These outsiders had always been submissive under Chen family rule. When an occasional troublemaker appeared, a word from the clan elders was sufficient to deal with the matter.
 
-Chen Lin's Second Uncle, Chen Xuan, was a profligate son with no prestige in the clan. Even though he became the "Liaison Officer" and rose to power relying on the Australians, his words didn't carry weight in Nansha, and the clan's younger generation was unwilling to be driven by him. Naturally, Chen Xuan could only bring in external aid.
+Chen Lin's Second Uncle, Chen Xuan, was a profligate with no prestige in the clan. Though he had risen to power as the Australians' "Liaison Officer," his words still carried no weight in Nansha. The clan's younger generation refused to serve him. Naturally, Chen Xuan could only bring in external support.
 
-The Australians were too far away for him, and for such a village "Liaison Officer," the Australians wouldn't specifically send people to back him up. So Chen Xuan targeted these "outsiders."
+The Australians were too distant to rely upon, and for a mere village "Liaison Officer," they wouldn't specifically send people to back him. So Chen Xuan had turned to these "outsiders."
 
-Regardless of how the Chen elders claimed they treated outsiders not thinly in the past, the fact was that outsiders were not grateful for this. With Chen Xuan's instigation, they immediately began to "repay kindness with enmity."
+Regardless of how the Chen elders claimed they had never treated outsiders poorly, the fact remained that these outsiders felt no gratitude. With Chen Xuan's instigation, they immediately began "repaying kindness with enmity."
 
-Now not only was the village administration controlled by outsiders, but even the newly established Village Braves were fully controlled by outsiders. Relying on their support, Chen Xuan could practically do whatever he wanted in the village.
+Now village administration was controlled by outsiders. Even the newly established Village Braves were entirely in outsider hands. With their support, Chen Xuan could do virtually whatever he pleased.
 
-"...Nowadays, the outsiders are terrible. Tenants perform rent strikes and force landlords to reduce rent and interest; those working in workshops, whether long-term or short-term laborers, demand wage increases. Even the servants of various families in the clan are restless, speaking wild words. Sigh, sigh, truly lawless..." The clan elders lowered their voices to complain. "Whoever disobeys their will is beaten and scolded lightly, or robbed heavily... They even threatened to kill people."
+"...Nowadays, the outsiders are terrible. Tenants organize rent strikes, forcing landlords to reduce rent and interest. Workshop workers—long-term or short-term—demand wage increases. Even household servants have grown restless, speaking wild words. Truly lawless..." The clan elders lowered their voices to complain. "Those who disobey their wishes get beaten or cursed at best, robbed at worst... They've even threatened to kill people."
 
-"Second Uncle doesn't care?"
+"Doesn't Second Uncle intervene?"
 
-"Him? He relies on the power of this gang of outsiders now. Besides, people have to communicate to you first (be willing to listen to you)."
+"Him? He relies on this gang of outsiders now. Besides, people have to be willing to listen before you can communicate with them."
 
-Hearing these words, Chen Lin's mood became increasingly heavy. Honestly, the family workshop being seized by Second Uncle was a small matter—after all, same ancestor. But Second Uncle colluding with outsiders was a big matter! If he was allowed to mess around like this, this Chen family foundation in Nansha would be destroyed in his hands!
+Hearing this, Chen Lin's mood grew heavier. Honestly, having the family workshop seized by Second Uncle was a small matter—they shared the same ancestors, after all. But Second Uncle colluding with outsiders was a grave concern. If allowed to continue like this, the Chen family's foundation in Nansha would be destroyed by his hands.
 
-"Let's go, return to the Ancestral Hall to look." Chen Lin said.
+"Let's go—I want to visit the Ancestral Hall." Chen Lin said.
 
-Currently, he had no place to stay. Sister-in-law Guihua was a widow; it was fine for his sister to lodge there, but inconvenient for him and Chen Qing, two men. They could only stay in the Ancestral Hall for a few days to see the situation.
+Currently he had nowhere to stay. Sister-in-law Guihua was a widow; his sister could lodge there, but for him and Chen Qing—two men—it would be inappropriate. They could only stay at the Ancestral Hall for a few days and observe the situation.
 
-The Ancestral Hall also looked very miserable; doors and windows were all smashed, though the plaque remained. Two able-bodied men holding spears stood guard in front of the door—what kind of rule was this?
+The Ancestral Hall also looked quite battered. The doors and windows had all been smashed, though the main plaque remained. Two able-bodied men holding spears stood guard at the entrance. What kind of arrangement was this?
 
-Full of suspicion, Chen Lin was about to enter the Ancestral Hall when he was shouted at before stepping up the stairs:
+Full of suspicion, Chen Lin was about to enter when he was shouted at before he could mount the steps:
 
-"Stand still! What do you do?"
+"Halt! What's your business?"
 
-Chen Qing quickly said: "This is Chen Lin, Ninth Master of the 'Upper Second Branch'!"
+Chen Qing quickly spoke up: "This is Chen Lin, Ninth Master of the Upper Second Branch!"
 
-Upper Two Households was his branch. The Chen family in Nansha was divided into Upper Three Branches, North Three Branches, and Lower Seven Branches, totaling thirteen branch houses. Among them, the Upper Three Branches were the direct line close branches, and the Clan Leader was customarily served by children of these three branches.
+"Upper Two Households" was their branch. The Chen family of Nansha was divided into Upper Three Branches, North Three Branches, and Lower Seven Branches—thirteen branch households in total. Among them, the Upper Three Branches were the direct lineage, and by custom, the Clan Leader was always selected from these three branches.
 
-Chen Lin ranked ninth among the peers in the clan. Usually only outsiders and servants called him this. But Chen Qing took one look and didn't recognize the two guards, knowing they were not clansmen.
+Chen Lin ranked ninth among his generation in the clan. Usually only outsiders and servants addressed him this way. But Chen Qing had taken one look and recognized neither guard as clansmen.
 
-"What Upper Second Branch or Upper Latrine Branch, eight nine ten," the young guard looked disdainful and waved his long spear. "This is Nansha Village Office! If nothing matters, roll far away!"
+"Upper Second Branch, Upper Latrine Branch—eight, nine, ten, who cares?" The young guard looked disdainful and waved his spear. "This is the Nansha Village Office! If you have no business, clear off!"
 
-Chen Lin was startled: *My own ancestral hall has changed name and surname?!* Just as he was about to speak, the other older guard scolded: "What nonsense are you talking! This is Ninth Master Lin! Master Chen Paijia's own nephew!" After saying this, he welcomed him with a smile, bowed, and said: "Ninth Master, don't lower yourself to this brat's level! He's only been in Nansha a few days and doesn't recognize you..."
+Chen Lin was startled: *My own ancestral hall has changed names?* He was about to speak when the older guard scolded his companion: "What nonsense are you spouting! This is Ninth Master Lin—Master Chen Paijia's own nephew!" He then hurried forward with a smile, bowing: "Ninth Master, please don't lower yourself to this boy's level! He's only been in Nansha a few days and doesn't recognize you..."
 
-Chen Lin looked at the older guard and found him familiar but couldn't recall who he was. The current situation was obviously not the time to pretend to be a big master, so he smiled very politely immediately: "You are..."
+Chen Lin studied the older guard. He looked familiar but couldn't be placed. Given the situation, this was no time to play the grand master, so he immediately adopted a cordial manner: "You are...?"
 
-"Small one is Wu Quan," the guard busily said, "Originally a long-term worker in North First Branch..."
+"This humble one is Wu Quan," the guard said quickly. "I was a long-term worker for the North First Branch..."
 
-"You are the long-term worker of Uncle Kuan's family?"
+"You're from Uncle Kuan's household?"
 
-"Yes, yes, hard for Ninth Master to still remember." Wu Quan's face blossomed with joy. "This brat is a distant relative of mine, just introduced here to serve as militia—to scramble for a meal. He doesn't recognize you, Old Sir; please don't blame..." After saying this, he scolded again: "Still not coming up to apologize!"
+"Yes, yes—how kind of the Ninth Master to remember." Wu Quan's face lit up with pleasure. "This boy is a distant relative of mine, just brought here to serve as militia—scrambling for a meal. He doesn't recognize you, sir. Please don't blame him..." He scolded the young man again: "Hurry up and apologize!"
 
-Chen Lin quickly waved his hand: "Those who don't know are not guilty." Seeing the young man looking reluctant, he quickly copied the new trend in Guangzhou city and said, "Now it's the New Life Movement; this set isn't popular!" Saying so, he quickly diverted the topic: "Is Second Uncle in?"
+Chen Lin quickly waved his hand. "Those who don't know aren't at fault." Seeing the young man's reluctant expression, he borrowed the new trend from Guangzhou: "This is the New Life Movement now—such formalities are out of fashion!" He swiftly changed the subject: "Is Second Uncle in?"
 
-"In, in," Wu Quan busily said. "Second Master Xuan is now the Paijia of this village, managing all matters of assigning duties and grain; busy as can be! You came at a good time, Old Sir; otherwise, he would be going out to handle matters in a while."
+"Yes, yes," Wu Quan said eagerly. "Second Master Xuan is now the Paijia of this village, handling all matters of duty assignment and grain collection. He's incredibly busy! You've come at the right time, sir—otherwise he'd be heading out to handle business shortly."
 
-Chen Lin wondered in his heart: *It's almost dark; where is Second Uncle going to handle matters?* Ignoring these, he said: "I just returned from Guangzhou and want to pay respects to Second Uncle..."
+Chen Lin wondered privately: *It's almost dark. Where is Second Uncle going to handle business?* Setting the thought aside, he said: "I've just returned from Guangzhou and wish to pay my respects to Second Uncle..."
 
-"Good to say, good to say," Wu Quan nodded repeatedly and immediately instructed the young man: "Xiao Min, you go report!"
+"Of course, of course." Wu Quan nodded repeatedly and instructed the young man: "Xiao Min, go announce him!"
 
-Chen Lin thought Second Uncle's airs were so big! In the past, clansmen didn't need to report to see the Clan Leader; at most, a shout at the door was enough.
+Chen Lin reflected that Second Uncle certainly put on airs these days. In the past, clansmen never needed to be announced to see the Clan Leader—at most, a shout at the door sufficed.
 
-After a short while, the young man came out and said: "Master Paijia says please let Ninth Master Lin enter."
+After a short while, the young man returned: "Master Paijia invites Ninth Master Lin to enter."
 
-His mood at this moment was quite complex. From this posture, Second Uncle held great power in the village and was obviously already an existence whose word was law.
+His feelings at this moment were complicated. From all appearances, Second Uncle wielded great power in the village, clearly having become someone whose word was law.
 
-Although Chen Lin was young, he understood the ways of the world. The world feared "a small man intoxicated by success" the most. Second Uncle now was an out-and-out small man intoxicated by success. His heart tightened involuntarily, secretly calculating if he and his father had offended him in the past.
+Though young, Chen Lin understood worldly ways. Nothing was more dangerous than "a small man intoxicated by success." Second Uncle now embodied that phrase completely. His heart tightened involuntarily as he calculated whether he or his father had ever offended the man.
 
-Speaking of major offenses, it seemed there were none. After all, when he embezzled silk back then, they only suspended his duties and still gave him an allowance. But as an elder brother, Old Dad hadn't scolded this brother any less. When Second Aunt forced Second Uncle to write the divorce letter back then, Second Uncle cried in the Ancestral Hall wanting the clan elders to stand up for him. It was his dad who said the family was in the wrong; although the other party forcing a divorce letter was excessive, it was excusable.
+Major offenses? There seemed to be none. After all, when Second Uncle had embezzled silk, they had only suspended his duties while still providing an allowance. But as an elder brother, Father had certainly scolded him plenty. And when Second Aunt forced Second Uncle to write the divorce letter years ago, Second Uncle had wept in the Ancestral Hall, begging the clan elders to stand up for him. It was Father who declared the family was in the wrong—that while forcing a divorce letter was excessive, it was understandable given the circumstances.
 
-The final decision for the clan not to stand up was a consensus of the elders, but the one who started it was Old Dad. If Second Uncle held a grudge for "taking away his wife"...
+The final decision not to intervene had been a consensus among the elders, but Father had been the one to start it. If Second Uncle bore a grudge over having his wife "taken away"...
 
-Thinking of this, Chen Lin broke into a cold sweat. It was chaotic times now. Once Second Uncle had power in hand, guarantee he wouldn't use public office to avenge private wrongs...
+The thought made Chen Lin break into a cold sweat. These were chaotic times. With power in his hands, who could guarantee Second Uncle wouldn't use his position to settle private scores?
 
-He secretly regretted coming to the Ancestral Hall to lodge; still too rash! Didn't consider the critical points before and after clearly!
+He secretly regretted coming to the Ancestral Hall so rashly. He hadn't thought through the implications.
 
-But now it was impossible to say "not going"—this would only anger Second Uncle. He had to brace himself and follow the village brave in.
+But it was too late to say "never mind." That would only provoke Second Uncle's anger. He steeled himself and followed the village brave inside.
 
-The inside of the Ancestral Hall was tidy. The spirit tablets of ancestors of various branches were enshrined intact, and there were offerings and incense candles on the altar table. It looked like someone was organizing and cleaning. Chen Lin felt slightly relieved: at least the Ancestral Hall was unharmed.
+The interior of the Ancestral Hall was tidy. The spirit tablets of ancestors from all branches were enshrined intact, with offerings, incense, and candles arranged on the altar table. Someone was clearly maintaining the space. Chen Lin felt slightly relieved—at least the Ancestral Hall itself was unharmed.
 
-He was led to the three main rooms in the East Cross Courtyard—this was where the clan handled matters. In the past, Father only came here to handle matters. Now the courtyard remained, but the people had changed.
+He was led to the three main rooms in the East Cross Courtyard—this was where the clan conducted its business. In the past, Father had worked here. The courtyard remained, but the people had changed.
 
-At this moment, Chen Lin's feelings were mixed, but the most important thing right now was himself. He steadied his mind, straightened his clothes and cap, and walked in.
+Chen Lin's emotions churned, but what mattered most now was his own situation. He steadied his nerves, straightened his clothes and cap, and walked in.
 
-Second Uncle Chen Xuan was sitting squarely on the Grand Preceptor Chair. This famous profligate of the Chen family was not yet forty, but years of loose living had made the skin and flesh on his face loose. Generally speaking, direct descendants of such local farming-reading clans mostly had dignified appearances. Chen Xuan, however, had a sinister face. As he aged and his flesh loosened, with drooping eyes and brows, he appeared increasingly insidious and cunning.
+Second Uncle Chen Xuan sat squarely in the Grand Preceptor Chair. This notorious profligate of the Chen family was not yet forty, but years of dissipation had left his facial flesh loose and sagging. Normally, direct descendants of such landowning, scholarly clans had dignified appearances. Chen Xuan, however, had a sinister face. As he aged and his flesh loosened, his drooping eyes and brows made him look increasingly crafty and cunning.
 
-After entering, Chen Lin paid his respects respectfully and called out: "Second Uncle."
+Upon entering, Chen Lin paid his respects courteously and called out: "Second Uncle."
 
-"You came back." Chen Xuan looked that this nephew up and down, saw the white cloth wrapped around his waist (mourning), harrumphed, and said: "Smooth journey?"
+"You've returned." Chen Xuan looked his nephew up and down, noted the white cloth wrapped around his waist for mourning, harrumphed, and asked: "Smooth journey?"
 
-"Smooth journey." Chen Lin thought since Second Uncle had become the Australians' Paijia, he might as well flatter him on this. "Speaking of which, the road was much more peaceful than in the past. There were militia patrols and sentries everywhere along the way. The common people looked quiet too. The Australians indeed govern with method."
+"Smooth journey." Chen Lin reasoned that since Second Uncle had become the Australians' Paijia, he might as well flatter him on this point. "Speaking of which, the roads were much more peaceful than before. Militia patrols and sentries everywhere. The common people seemed quiet too. The Australians certainly know how to govern."
 
-"Naturally," Chen Xuan was quite proud of his choice. "Worthy Nephew came from Guangzhou; I wonder how the situation in Guangzhou is?"
+"Naturally." Chen Xuan was quite proud of his choice. "Nephew has come from Guangzhou—tell me, how are things there?"
 
-"It can be called 'River clear and Sea calm' (peaceful times)." Seeing Second Uncle liked listening, Chen Lin couldn't care about being mushy now. "If the world could be like Guangzhou, it would truly be a rare prosperous age..."
+"One might call it 'rivers calm and seas peaceful.'" Seeing that Second Uncle enjoyed such talk, Chen Lin couldn't afford to hold back now. "If the whole world could be like Guangzhou, it would truly be a rare prosperous age..."
 
-"Hahaha," Chen Xuan laughed loudly. "Worthy Nephew speaks well. The Australians are indeed formidable!" He restrained his smile and asked: "Tell me about the situation in Guangzhou."
+"Hahaha!" Chen Xuan laughed heartily. "Well spoken, Nephew. The Australians are indeed formidable!" He restrained his smile and said: "Tell me about the situation in Guangzhou."
 
-"I wonder which aspects Second Uncle wants to hear?"
+"What aspects does Second Uncle wish to hear about?"
 
-"Pick the important big events to say!"
+"Pick the major events!"
 
-Seeing Second Uncle liked to listen, Chen Lin selected major events after the Australians entered the city to narrate one by one, and also spoke of the Australians' administration and managing people, especially the New Life Movement. Chen Xuan listened with fascination. Chen Lin spoke for almost an hour before being interrupted.
+Since Second Uncle was receptive, Chen Lin selected the significant developments since the Australians entered the city and narrated them one by one. He also described the Australians' governance and management of people, especially the New Life Movement. Chen Xuan listened with fascination. Chen Lin spoke for nearly an hour before being interrupted.
 
-"Interesting! Interesting! It seems what they said is true!" Chen Xuan sighed with emotion. "I originally thought it was somewhat exaggerated. Unexpectedly, Worthy Nephew came and solved my confusion! Good! Good!"
+"Fascinating! Fascinating! So what they said is true!" Chen Xuan sighed with emotion. "I originally thought it somewhat exaggerated. Unexpectedly, Nephew's arrival has resolved my confusion! Excellent! Excellent!"
 
-Chen Lin didn't know who "they" in Second Uncle's mouth were, nor where exactly was "Good." But he immediately thought of what his sister said: the ones managing the weaving workshop were Short-hairs. The so-called "they" probably referred to these people.
+Chen Lin didn't know who "they" referred to, nor precisely what was "excellent." But he immediately thought of what his sister had mentioned: the workshop was now managed by Short-hairs. This "they" probably meant these people.
 
-He responded with a vague "Yes."
+He responded with a vague acknowledgment.
 
-Chen Xuan turned the conversation and asked: "Have you gone to visit your dad's grave?"
+Chen Xuan shifted the conversation: "Have you visited your father's grave?"
 
-"Yes." Chen Lin quickly stood up. "I only hate that I was in Guangzhou at the time and failed to personally handle Father's funeral affairs; it all relied on the uncles and clan relatives..."
+"Yes." Chen Lin quickly stood. "I only regret being in Guangzhou at the time, unable to personally handle Father's funeral arrangements. It all relied on the uncles and clan relatives..."
 
-"Big Brother died miserably," Chen Xuan put on a deeply grieving appearance. "The clan and village were all ruined by chaotic soldiers, and several elders also passed away. Thanks to the Australians' trust, now only I can shoulder this heavy burden."
+"Elder Brother died miserably." Chen Xuan assumed an expression of deep grief. "The clan and village were all ravaged by the soldiers, and several elders also passed away. Thanks to the Australians' trust, only I can now shoulder this heavy burden."
 
-"Yes, thanks to Second Uncle's utmost efforts, Nansha Village is kept safe up and down."
+"Yes, thanks to Second Uncle's utmost efforts, Nansha Village remains safe."
 
-Chen Xuan glanced at this nephew, secretly feeling proud in his heart—*You father and son were polite to me on the surface in the past, but when did you ever look at me straight in the heart? Now even a dragon has to coil for me!*
+Chen Xuan glanced at his nephew, secretly pleased. *In the past, you and your father were polite enough to my face, but when did you ever truly respect me? Now even a dragon must coil before me!*
 
 **(End of Chapter)**

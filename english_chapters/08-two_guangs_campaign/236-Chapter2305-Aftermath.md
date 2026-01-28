@@ -1,117 +1,117 @@
 # Chapter 2305 - Aftermath
 
-"We are the main cadres in Wuzhou currently; let's not sigh and groan first." Seeing them all lapsing into the slackness that follows extreme tension, Zhao Fengtian reminded them, "There are many things to do now. We have to hurry and get started. Don't forget the grain fleet is arriving tomorrow..." He checked his pocket watch. "It's already 4:00 AM. There's not much time. Let's discuss, split up, and get the aftermath work done as soon as possible."
+"We are the principal cadres in Wuzhou right now. Let's not sit around sighing and groaning." Seeing them all succumbing to the slackness that follows extreme tension, Zhao Fengtian reminded them, "There's much to be done. We need to get started. Don't forget the grain fleet arrives tomorrow..." He checked his pocket watch. "It's already four in the morning. We don't have much time. Let's discuss, divide the work, and finish the cleanup as quickly as possible."
 
-"The aftermath work is nothing, and transporting grain isn't critical," Zhu Si frowned. "The problem is, how do we report to our superiors?"
+"The cleanup isn't the problem, and the grain transport isn't critical," Zhu Si said, frowning. "The problem is how do we report this to our superiors?"
 
-This question touched the core of the problem. Whatever happened, such a big incident in Wuzhou could not be hidden. After all, a Senator being captured was unprecedented. The higher-ups would inevitably take action. Zhao Fengtian knew that Elder Xie could no longer hold the position of Wuzhou Director; he would likely be "transferred back to Lingao for another appointment" or simply sent for "vacation-style recuperation."
+This question struck at the heart of the matter. Whatever else happened, an incident of this magnitude in Wuzhou couldn't be concealed. A captured Senator was unprecedented. The higher-ups would inevitably take action. Zhao Fengtian knew that Elder Xie could no longer hold the position of Wuzhou Director—he would likely be "transferred back to Lingao for another appointment" or simply sent for "vacation-style recuperation."
 
-They were all senior naturalized cadres and knew that even if a Senator made a sky-high mistake, they would only be stripped of authority and placed in idle retirement. But they wouldn't be so lucky.
+They were all senior naturalized cadres and understood that even if a Senator committed an egregious blunder, the worst they faced was being stripped of authority and placed in idle retirement. But they themselves wouldn't be so fortunate.
 
-Qian Duo, Zhao Fengtian, and Zhu Si all bore responsibility in this matter, but there was room regarding the magnitude of that responsibility. Comparatively, Qian Duo was a Volte Army officer. The army always protected its own, and frontline warfare was tight. If he were transferred to the front line, even a sky-high matter would turn into nothing. But for local military and political cadres like Zhao Fengtian and Zhu Si, escaping wouldn't be so easy.
+Qian Duo, Zhao Fengtian, and Zhu Si all bore responsibility for this incident, though the extent varied. Comparatively speaking, Qian Duo was a Volte Army officer. The army always protected its own, and with the frontline campaigns needing men, he could likely be transferred there—and once at the front, even major scandals had a way of disappearing. But for local military and political cadres like Zhao Fengtian and Zhu Si, there would be no easy escape.
 
-Zhao Fengtian pondered for a moment and said, "This matter is of grave importance. Chief Xie hasn't fully regained consciousness yet. Some things still need his decision. We don't need to be too anxious right now. Do the work at hand well, and wait for him to wake up before discussing—he is still the highest administrative chief of Wuzhou. The big ideas must come from him. It's not appropriate for us to make decisions first."
+Zhao Fengtian pondered for a moment. "This matter is extremely serious. Chief Xie hasn't fully regained consciousness yet, and some decisions require his input. There's no need to be too anxious right now. Let's do the work at hand well and wait for him to wake up before discussing further. He's still the highest administrative authority in Wuzhou. The big decisions have to come from him. It wouldn't be appropriate for us to act unilaterally."
 
-Everyone agreed. They divided the labor on the spot. Qian Duo readjusted the city's defenses and immediately sent men to Sanhezu to understand the specific damages. Zhu Si was responsible for organizing the battlefield cleanup and continuing to purge any possible remnant enemies in the city.
+Everyone agreed. They divided the labor on the spot. Qian Duo would readjust the city's defenses and immediately send men to Sanhezu to assess the damage. Zhu Si would organize the battlefield cleanup and continue purging any possible remnant enemies in the city.
 
-After they dispersed, Zhao Fengtian ordered Luo Yangming to be invited into the office.
+After they dispersed, Zhao Fengtian sent for Luo Yangming.
 
-"Thanks to you this time!" Zhao Fengtian held his hand, not knowing what to say for a good while. "Sit, sit!"
+"This time, we have you to thank!" Zhao Fengtian clasped his hand warmly, momentarily at a loss for words. "Please, sit down!"
 
-"I was lucky," Luo Yangming didn't stand on ceremony, plonking himself into a chair and smiling bitterly. "I gambled right."
+"I was lucky," Luo Yangming said. He didn't stand on ceremony, dropping into a chair with a bitter smile. "I gambled right."
 
-"In the end, you were prepared, and we were unprepared. We were paralyzingly careless," Zhao Fengtian said. "What do we do now?"
+"In the end, you were prepared and we were not. We grew complacent," Zhao Fengtian said. "What do we do now?"
 
-These words carried heavy weight, but it was natural for Zhao Fengtian to ask. If there was one beneficiary in this matter, it was Luo Yangming.
+The question carried considerable weight, but it was only natural for Zhao Fengtian to ask. If anyone had emerged from this affair as a beneficiary, it was Luo Yangming.
 
-Luo Yangming was a Hidden Cadre. Aside from reporting situations, he was not responsible for any specific decision-making work. Now, with the merit of bravely rescuing a Senator, he sat securely on the fishing platform (was in an unassailable position).
+As a Hidden Cadre, Luo Yangming wasn't responsible for any specific decision-making work aside from reporting situations. Now, with the merit of bravely rescuing a Senator, he sat in an unassailable position.
 
-After the event, the Senate would inevitably send an investigation team down to inquire. Luo Yangming's report would be the most critical. When dealing with follow-up issues, they naturally had to value his opinion. Zhao Fengtian mentally calculated his work interactions and conversations with Luo Yangming and felt there were generally no problems.
+After the incident, the Senate would inevitably send an investigation team. Luo Yangming's report would be the most critical piece of evidence. When dealing with follow-up issues, his opinion would naturally carry great weight. Zhao Fengtian mentally reviewed his work interactions and conversations with Luo Yangming and felt there were generally no problems.
 
-Luo Yangming was certainly not stupid and understood the meaning in Zhao Fengtian's words. He thought for a moment and said, "This matter should still take Chief Xie's intention as the standard..."
+Luo Yangming was no fool—he understood the implications behind Zhao Fengtian's words. After a moment's thought, he said, "This matter should still take Chief Xie's intentions as the guiding principle..."
 
-Zhao Fengtian sighed, "I'm just worried about Chief Xie's attitude."
+Zhao Fengtian sighed. "That's precisely what worries me—Chief Xie's attitude."
 
-The Liangguang campaign had been advancing triumphantly, with reports of victory everywhere. Although there was Yao unrest in Northern Guangdong and bandit disturbances everywhere, the overall situation was booming. No major blunders had occurred. Wuzhou had genuinely produced a massive scandal this time. Once reported, Elder Xie's time in Wuzhou was done, needless to say; he would surely have to step down and go home. In the future, within the Senate, he would likely be a marginalized character. With Zhao Fengtian's experience, Elder Xie's first reaction upon waking would surely be to try his best to conceal this failure.
+The Liangguang campaign had been advancing triumphantly, with reports of victory everywhere. Though there was Yao unrest in Northern Guangdong and bandits causing trouble throughout the region, the overall situation was booming. No major blunders had occurred—until now. Wuzhou had genuinely produced a massive scandal. Once reported, Elder Xie's time in Wuzhou was finished; he would surely have to step down. In the future, within the Senate, he would likely become a marginalized figure. Based on Zhao Fengtian's experience, Elder Xie's first reaction upon waking would surely be to try to conceal this failure.
 
-If Xie Erren wanted to conceal it, the worst consequence would be getting sidelined after exposure—the same result as confessing frankly. So nine out of ten times, Elder Xie would do this.
+If Xie Erren chose to cover it up, the worst consequence of exposure would be getting sidelined—the same result as confessing frankly. So nine times out of ten, Elder Xie would attempt the cover-up.
 
-But as subordinates, they would be very passive. Chief Xie would definitely require them to cooperate in concealing the truth. But once exposed, the consequences would be unimaginable. The best result would be a transfer to Jeju Island or Taiwan Island. That was a completely different matter from being a cadre in Guangdong.
+But as subordinates, they would be put in an extremely awkward position. Chief Xie would certainly require them to cooperate in concealing the truth. But once exposed, the consequences would be unimaginable. The best outcome would be a transfer to Jeju Island or Taiwan Island—a far cry from being a cadre in Guangdong.
 
-If they opposed him directly, even if Xie Erren was sidelined and became an idle Senator, it would still be effortlessly easy for him to deal with a few naturalized cadres.
+If they openly opposed him, even a sidelined Xie Erren, as an idle Senator, could still destroy a few naturalized cadres without breaking a sweat.
 
-Furthermore, if they concealed it, Luo Yangming's great merit would go down the drain. How could he let the matter rest? He was a vertically managed cadre; a single official document could be sent directly to Lingao.
+Furthermore, if they covered it up, Luo Yangming's great merit would vanish into thin air. How could he let that happen? He was a vertically managed cadre—a single official document could go directly to Lingao.
 
-Luo Yangming had mixed in the business world for many years and done underground work for a long time; he was best at understanding the meaning within words. Zhao Fengtian's worry was not unreasonable. As Xie Erren's direct subordinates, they were indeed in a tough spot.
+Having spent years in the business world and done underground work for a long time, Luo Yangming excelled at reading between the lines. Zhao Fengtian's worry was reasonable. As Xie Erren's direct subordinates, they were indeed caught between a rock and a hard place.
 
-He thought for a moment and said, "Presumably, the Chief won't be that muddled. The commotion was so big; I'm afraid more than just a few of us know..."
+After considering the matter, he said, "Presumably, the Chief won't be that foolish. The commotion was too great—I'm afraid more than just a few people know..."
 
 Zhao Fengtian nodded. "I thought of that too. It's just that when the time comes, the Chief's will—"
 
-"We naturally must explain the situation fully to the Chief," Luo Yangming said. "Presumably, the Chief understands the key points within."
+"We must naturally explain the full situation to the Chief," Luo Yangming said. "Presumably, the Chief understands the key considerations."
 
-"That is the only way." Zhao Fengtian thought. Luo Yangming was right; trying their best to persuade Elder Xie not to conceal it was the best policy.
+"That's the only course." Zhao Fengtian thought it over. Luo Yangming was right—persuading Elder Xie not to attempt a cover-up was the best policy.
 
-"...Right now, we should clarify the case as soon as possible, especially the backgrounds of that Hao Ran, as well as Cai Lan and Jiang Qiuchan. We also caught some captives in the city; interrogate them all together. Try to make the matter clear so we have something to say when reporting," Luo Yangming reminded.
+"Right now, we should clarify the case as quickly as possible, especially the backgrounds of that Hao Ran, as well as Cai Lan and Jiang Qiuchan. We also captured some prisoners in the city—interrogate them together. Try to get the facts straight so we have something substantial to present when we report," Luo Yangming suggested.
 
-"I'll instruct Zheng Ergen to handle this immediately. Even if they are made of iron, we'll pry open their mouths!" Zhao Fengtian said murderously.
+"I'll instruct Zheng Ergen to handle this immediately. Even if they're made of iron, we'll pry their mouths open!" Zhao Fengtian said with grim determination.
 
-Luo Yangming originally wanted to remind him "don't kill them, or it will be hard to explain," but on second thought, he swallowed the words back. He said, "There is one thing I need your help with."
+Luo Yangming had been about to remind him not to kill them—corpses couldn't be explained to investigators—but on second thought, he swallowed the words. Instead he said, "There's one thing I need your help with."
 
-"Speak."
+"What is it?"
 
-"This time, the dock foreman Wen Tietou and his men exerted great effort. There were quite a few casualties. They aren't naturalized citizens; in the end, they did it for money. The pensions and rewards cannot be scrimped, otherwise, it's easy to chill people's hearts..."
+"The dock foreman Wen Tietou and his men made a tremendous contribution tonight. There were quite a few casualties. They aren't naturalized citizens—in the end, they did it for money. The pensions and rewards can't be skimped, or we risk alienating people."
 
-"I can make the decision on this," Zhao Fengtian said. "But you must be responsible for telling them to keep it secret."
+"I can authorize that," Zhao Fengtian said. "But you must be responsible for ensuring their silence."
 
-"Rest assured, I only told them we were saving a generic high official, not a Chief—anyway, they don't recognize Elder Xie."
+"Rest assured. I only told them we were rescuing some high official—not a Chief. They don't recognize Elder Xie anyway."
 
-"Draft an application for how much money is needed and how to distribute it. bring it over, and I'll arrange it immediately." Zhao Fengtian smiled bitterly. "Another huge expense!"
+"Draft an application detailing how much money is needed and how to distribute it. Bring it to me, and I'll arrange it immediately." Zhao Fengtian smiled bitterly. "Another huge expense!"
 
-Xie Erren "woke up" when the sky was thoroughly light. Actually, he had woken up on the stretcher, but he really didn't have the face to sit up immediately and say he was "fine."
+Xie Erren "woke up" when the sky had grown fully light. In truth, he had regained consciousness on the stretcher, but he couldn't quite bring himself to sit up immediately and declare himself "fine."
 
-A naturalized doctor examined his body; aside from some flesh wounds, there were no major issues. But he still feigned grogginess and lay there until dawn before barely opening his eyes.
+A naturalized doctor examined his body and found only minor flesh wounds—nothing serious. Even so, he continued to feign grogginess, lying there until dawn before barely opening his eyes.
 
-Seeing he had "woken up," the orderly watching over him immediately went out to notify others. Before long, Zhao Fengtian arrived.
+Seeing he had "awakened," the orderly watching over him immediately went out to notify the others. Before long, Zhao Fengtian arrived.
 
-"Chief!" Zhao Fengtian came over and held his hand tightly. "Are you alright!"
+"Chief!" Zhao Fengtian hurried over and grasped his hand tightly. "Are you all right?"
 
-"I'm fine, I'm fine, just my head is still dizzy." Xie Erren touched his head—there was indeed a lump there. He didn't know what had hit him, but it was now bandaged with gauze. He feigned calm. "A small injury. How is the situation in the city?"
+"I'm fine, fine. Just a bit dizzy still." Xie Erren touched his head—there was indeed a lump there. He didn't know what had struck him, but it was now bandaged with gauze. He affected calm. "A minor injury. How is the situation in the city?"
 
-"The enemies who infiltrated have been wiped out by us. We also caught quite a few captives and are interrogating them together. Everything is normal in the city; no main cadres were casualties."
+"The infiltrators have been eliminated. We also captured quite a few prisoners and are interrogating them now. Everything is normal in the city—no main cadres were casualties."
 
 "What about Sanhezu?"
 
-"The enemy failed to capture it and has fled. Qian Duo sent men to check the specific situation."
+"The enemy failed to capture it and has withdrawn. Qian Duo sent men to investigate the specifics."
 
 "That's good."
 
-After saying this, the two fell into an awkward silence. Although they tacitly avoided mentioning Xie Erren's capture, both understood that there had to be an explanation for this matter.
+After this, the two fell into awkward silence. Though both tactfully avoided mentioning Xie Erren's capture, each understood that there would have to be an explanation.
 
-After a long while, Zhao Fengtian whispered, "Chief, how do you think we should report this to the superiors?"
+After a long pause, Zhao Fengtian whispered, "Chief, how do you think we should report this to our superiors?"
 
-Xie Erren smiled bitterly. "How to report? Naturally, report it as it is! You guys can't shoulder this responsibility."
+Xie Erren smiled bitterly. "How to report? Report it as it happened, of course. You people can't shoulder this responsibility."
 
 "Chief..."
 
-Now that the topic was broached, Xie Erren stopped being secretive and vented, "Don't I know the nature of the Senate? Besides Luo Yangming, I'm afraid there's more than one plant placed in this Wuzhou City! Right now, they are probably busy writing reports under the lamp! Hmph, pervasive! They just don't know how to guard against Ming spies!"
+Now that the subject was broached, Xie Erren stopped being coy and vented his frustration. "Don't I know the nature of the Senate? Besides Luo Yangming, there's probably more than one plant in Wuzhou! Right now, they're probably burning the midnight oil writing their reports! Hmph, all-pervasive! Yet somehow they can't guard against Ming spies!"
 
-Zhao Fengtian hurriedly said, "Chief! Chief!" He originally wanted to tell him "don't talk nonsense," but the other party was a Senator; how could he tell him "don't talk nonsense"? But spewing anger at the Senate like this all the way... if he spat out some Senate secrets, he would be fine, but would Zhao himself survive hearing them?
+Zhao Fengtian hastily interjected, "Chief! Chief!" He wanted to tell him not to speak recklessly, but how could one tell a Senator not to speak recklessly? If he kept venting about the Senate and let slip some of its secrets, the Elder might be fine, but could Zhao himself survive hearing them?
 
-However, Xie Erren's lack of intent to conceal gave him a huge sigh of relief. once Xie Erren's tone calmed down a bit, Zhao Fengtian said, "Chief, the enemy was merely a small force infiltrating the city for harassment. Although the commotion wasn't small, it didn't cause any serious consequences. Moreover, it exposed the enemy's lurking organization in the city, removing hidden worries for Wuzhou. The gains outweigh the losses."
+However, Xie Erren's lack of intent to cover up the incident brought him tremendous relief. Once the Elder's tone had calmed somewhat, Zhao Fengtian said, "Chief, the enemy was merely a small infiltration force conducting harassment. Though the commotion wasn't small, it didn't cause serious consequences. Moreover, it exposed the enemy's covert network in the city, removing a hidden threat. The gains outweigh the losses."
 
-Xie Erren was a reporter originally; how could he not understand the meaning in Zhao Fengtian's words. His heart was clear as a mirror: the routine of covering up failure and shifting blame probably wouldn't work this time—too many people knew. It wasn't easy to muddy the waters completely. He could only make the matter of his capture look a bit "better."
+Xie Erren had been a reporter—he understood perfectly what Zhao Fengtian was suggesting. His heart was clear as a mirror: the typical routine of covering up failure and shifting blame probably wouldn't work this time. Too many people knew. It wouldn't be easy to muddy the waters completely. He could only make the matter of his capture look somewhat better.
 
-He suddenly thought of Cai Lan, and a surge of hatred welled up in his heart. He asked, "Have the relevant suspects been arrested?"
+He suddenly thought of Cai Lan, and a surge of hatred welled up. "Have the relevant suspects been arrested?"
 
-"They have all been arrested." Zhao Fengtian saw the fierce light in his eyes and knew his thoughts. "Interrogation is underway. I will report to you after we investigate thoroughly to the bottom."
+"They've all been arrested." Zhao Fengtian saw the fierce light in his eyes and recognized his thoughts. "Interrogation is underway. I'll report to you once we've investigated thoroughly."
 
-Xie Erren nodded silently and asked again:
+Xie Erren nodded silently, then asked:
 
 "Who chased them to the city wall?"
 
 "It was Luo Yangming, leading the dock porters."
 
-"I didn't expect this Hidden Cadre to have such a move. Truly a talent!" Xie Erren suddenly felt a wave of deep loneliness, feeling that he had lost interest in everything between heaven and earth. The painstaking efforts of these days had turned into bubbles in the blink of an eye!
+"I didn't expect this Hidden Cadre to have such a trick up his sleeve. Truly a talent!" Xie Erren suddenly felt a wave of profound loneliness wash over him. Everything he had worked for these past days had turned to bubbles in the blink of an eye.
 
 **(End of Chapter)**

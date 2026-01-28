@@ -4,7 +4,7 @@ Yang Zeng set up his command post on Zhushan Hill, from which he could observe t
 
 The reconnaissance reports had made it clear: the Ming garrison was approximately equal in strength to the 8th Battalion, well-supplied with firearms and bows. Sheltering in their trenches, they presented tiny targets. Before committing to an assault, Yang Zeng needed a plan that wouldn't cost him half his battalion.
 
-He returned to the command post. The staff had prepared a simple sand-table model, and several company commanders clustered around it, debating attack plans.
+He returned to the command post. The staff had prepared a simple sand table model, and several company commanders clustered around it, debating attack plans.
 
 "If we attack head-on up the south slope, we'll take fire from both flanks despite the easier terrain," said one company commander. "But attacking from the sides means climbing steep grades—we'll be slow and exposed."
 
@@ -16,7 +16,7 @@ Yang Zeng listened quietly, then spoke. "The brigade artillery can barely touch 
 
 He traced the approach on the sand table. "Three approach trenches—here, here, and here. We'll need the engineer company to lead, with civilian laborers doing the heavy lifting. Light infantry provides covering fire to suppress any defender who shows himself."
 
-"How long to close the distance?" 
+"How long to close the distance?"
 
 "If we push hard, we can be within assault range by late afternoon. The mountain howitzers go into position here"—he pointed to the bend in the central trench—"and hit their forward positions with shrapnel before we go in."
 

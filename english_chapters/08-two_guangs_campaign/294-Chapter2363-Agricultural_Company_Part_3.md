@@ -1,109 +1,109 @@
 # Chapter 2363: Agricultural Company (Part 3)
 
-"How much land does his family have now?"
+"How much land does his family hold now?"
 
-"Estimated to be five or six thousand mu. Besides the land distributed to him at that time, later the municipal government opened up wasteland for cultivation, and he applied for new land deeds several times. At least three thousand mu or more. His family has always been the second largest in the local prominent households, so land is indispensable." Yuan Fei said.
+"I'd estimate five or six thousand mu. Besides what was allocated when he first arrived, he applied for new land deeds several times as the municipal government opened up wasteland for cultivation. At least three thousand more. His family has always been the second-largest among the local gentry, so land is never in short supply for them." Yuan Fei said.
 
-Opening up and planting six thousand mu of land in a place like Sanya was indeed quite a lot. Xu Yanliang nodded secretly; this Hu Wumei was a management talent.
+Developing and planting six thousand mu in a place like Sanya was no small feat. Xu Yanliang nodded to himself; this Hu Wumei had real talent for management.
 
-In fact, if Xu Yanliang cared more about the outside situation, he should have known that Hu Wumei had always been a typical "New Farmer" set up by the Senate. Not only had his relevant deeds appeared in "Lingao Times," but he had also participated in commendation meetings in Lingao and attended the representative meeting of the Hainan Provincial Consultative Council. He was a rising star.
+In truth, if Xu Yanliang had paid more attention to outside affairs, he would have known that Hu Wumei had long been held up as a model "New Farmer" by the Senate. His accomplishments had been featured in the *Lingao Times*, and he had attended commendation meetings in Lingao and participated in the representative assembly of the Hainan Provincial Consultative Council. He was a rising star.
 
-In a short while, Hu Wumei had changed his clothes and came out from the inner residence.
+Shortly, Hu Wumei emerged from the inner residence, freshly changed.
 
-He was wearing a semi-new short-sleeved shirt, linen trousers, and rattan sandals on his bare feet. He looked both solemn and simple. A fountain pen was inserted in his shirt pocket, and he wore a wristwatch on his wrist—this wristwatch was no small thing; it was a prize for him participating in the Senate's Agricultural Front Commendation Conference and obtaining the title of "New Era Agricultural Leader."
+He wore a semi-new short-sleeved shirt, linen trousers, and rattan sandals on bare feet. The look was both dignified and simple. A fountain pen was clipped in his shirt pocket, and a wristwatch adorned his wrist—no ordinary timepiece, but a prize awarded for his participation in the Senate's Agricultural Front Commendation Conference, where he had earned the title of "New Era Agricultural Leader."
 
-The whole outfit plus his hairstyle made him look very much like a "cadre" of the Senate. This was also the image he specially created for himself—unlike many members of the Consultative Council who more or less kept, or even deliberately kept, their past attire, Hu Wumei tried his best to wash away everything from the past.
+His entire ensemble, including his hairstyle, made him look very much like a Senate "cadre." This was a deliberate image he had cultivated for himself. Unlike many Consultative Council members who retained—or even deliberately maintained—remnants of their former attire, Hu Wumei strived to erase every trace of his past.
 
-He was originally supervising work in the newly opened coconut plantation today. The family sent a child to call him back, saying a Senator had arrived. At first, he was a bit puzzled. Because there was only one Senator, Mayor Tang, in the entire Sanya. And Mayor Tang just came to his farm a few days ago. He wouldn't come to his farm casually for no reason.
+He had been supervising work at the newly opened coconut plantation that day. When the messenger child arrived saying a Senator had come, he was initially puzzled. The only Senator in all of Sanya was Mayor Tang, and Mayor Tang had visited his farm just a few days earlier. He wouldn't make a casual visit without reason.
 
-So it meant a new Senator had come. Hu Wumei began to calculate in his heart on the way back to the farm. He was an old timer who took root here since landing in Sanya. He had fully experienced Sanya from the initial hustle and bustle to the current loneliness. Since Senator Wang left office and Senator Tang took over, Sanya's development had become slower and slower, and could even be said to be stagnant. Accompanying this, there were fewer and fewer Senators in Sanya. The original Senators left office one after another, and almost no new Senators came to take office.
+This meant a new Senator had arrived. On his way back to the farm, Hu Wumei began calculating. As a veteran who had taken root here since first landing in Sanya, he had witnessed the city's transformation from initial bustle to its current quiet. Since Senator Wang left office and Senator Tang took over, Sanya's development had slowed to a crawl—stagnated, even. With this stagnation came a steady exodus of Senators. The original ones departed one by one as their terms ended, and almost no new ones arrived to replace them.
 
-When he went to the Sanya Consultative Council meeting last Monday, Senator Tang did not mention that a new Senator was coming to take office. If it was a short-term business trip, the most likely one was a Senator from the agricultural sector—otherwise, he couldn't figure out why they would want to see him.
+At Monday's Sanya Consultative Council meeting, Senator Tang had made no mention of a new Senator coming to take office. If this was a short-term business trip, the most likely visitor would be someone from the agricultural sector—otherwise, Hu Wumei couldn't fathom why they would want to see him.
 
-However, the child who delivered the message was too small and couldn't even say the Senator's surname, only knowing it was a "man" and "came by bike." This range was too large, covering almost more than 70% of the Senators.
+Unfortunately, the messenger child was too young to provide useful details. He couldn't even state the Senator's surname, only that it was a "man" who had "arrived by bicycle." This narrowed nothing—it covered over seventy percent of all Senators.
 
-Sure enough, he didn't know this Senator—obviously not from the agricultural sector, and he claimed to be "just transferred"—but Senator Tang hadn't said a new Senator was coming... Who exactly was this Senator who suddenly arrived, and what did he plan to do? Hu Wumei felt somewhat apprehensive in his heart.
+Sure enough, Hu Wumei didn't recognize this Senator. The visitor clearly wasn't from the agricultural sector and claimed to have been "just transferred"—yet Senator Tang had mentioned nothing about a new arrival... Who exactly was this suddenly appearing Senator Xu, and what were his intentions? A knot of unease formed in Hu Wumei's chest.
 
-However, there was one thing he could confirm: this Senator Xu was not an important figure in the Senate.
+Of one thing, however, he was certain: this Senator Xu was not an important figure in the Senate.
 
-He changed his clothes and hurriedly came to the courtyard again to pay respects to Xu Yanliang.
+He changed his clothes and hurried back to the courtyard to pay his respects.
 
-"Hey, hey, you don't need to be so polite. I'm just walking by and casually looking." Seeing him so respectful and fearful, Xu Yanliang was a bit unaccustomed, "You are doing well here; Yuan Fei said you are also a model in the agricultural sector, a demonstration farm!"
+"Please, there's no need for such formality. I was merely passing by and decided to look around." Seeing his excessive deference, Xu Yanliang felt somewhat uncomfortable. "You're doing well here. Yuan Fei tells me you're also recognized as a model in the agricultural sector—a demonstration farm!"
 
-"It's all the Senate's kindness; I'm just doing my meager bit." Hu Wumei said a few humble words.
+"It's all thanks to the Senate's generosity. I've only done my small part." Hu Wumei offered a few humble words.
 
-Don't look at Hu Wumei appearing respectful and extremely fearful when seeing a Senator; in fact, he had seen many Senators and had been a guest of Wen Desi, Wang Luobin, Wu De, Wu Nanhai, and others. Mayor Tang Menglong's official residence was also open for him to visit at any time. He knew the hierarchy within the Senate very clearly. But he grasped one point in place, that is, when facing a Senator, he never revealed the slightest conceit, always wearing a "tears of gratitude" expression.
+Despite his outward display of respect and reverence before this Senator, Hu Wumei had in fact met many Senators and had been received as a guest by Wen Desi, Wang Luobin, Wu De, Wu Nanhai, and others. Mayor Tang Menglong's official residence was always open to him. He understood the hierarchy within the Senate with perfect clarity. But he had grasped one essential principle: when facing any Senator, he never revealed the slightest hint of pride, always wearing an expression of tearful gratitude.
 
-"...Ultimately, it's the Senate's policies that are good. Speaking of me, Hu Wumei, I was also a good hand at farming in my hometown. If not for the Ming Kingdom being too chaotic and pirates looting, I wouldn't have engaged in the pirate trade." Hu Wumei did not shy away from his history, "As long as the imperial court can ensure social peace, the common people will naturally be peaceful and happy. No matter how poor, they won't be driven to desperation; there will always be a glimmer of hope."
+"...In the end, it's the Senate's policies that are wise. As for me, Hu Wumei, I was a decent farmer back in my hometown. If the Ming Kingdom hadn't been so chaotic, if pirates hadn't ravaged everything, I would never have taken up that trade." He made no attempt to hide his history. "As long as the imperial court can ensure peace and order, the common people naturally live in peace. No matter how poor, they won't be driven to desperate measures—there's always a glimmer of hope."
 
-These words flattered the Senate without showing a trace. Everyone loves flattery, and Hu Wumei's flattery was much more subtle than praises like "recreating parents." Xu Yanliang was instantly "greatly pleased."
+This was flattery so artfully delivered it left no trace. Everyone loves compliments, and Hu Wumei's were far more refined than crude phrases like "savior and benefactor." Xu Yanliang found himself instantly pleased.
 
-"You are right. A government should be able to do this!" Xu Yanliang said, "Your farm here—I see it's called Baocheng Company?"
+"Well put. A government should be able to achieve precisely that!" Xu Yanliang said. "Your farm here—I notice it's called Baocheng Company?"
 
-"Exactly, Baocheng is the name of my former hometown village. Using it as a name counts as 'not forgetting one's roots.' Although I have taken root in Sanya and will spread branches and leaves in the future, I cannot forget where my own 'roots' are. As for registering a company, that was suggested by Chief Da Wan of the Tiandihui. He said my family business is big now, might as well register a company. It's convenient for diversified operations and applying for loans—no need to go through small farmer loans specially; I can apply for loans according to the qualifications of agricultural enterprises."
+"Exactly. Baocheng was the name of my former hometown village. Using it means 'never forgetting one's roots.' Though I've taken root in Sanya and will branch out further in the future, I cannot forget where my 'roots' lie. As for registering a company, that was suggested by Chief Da Wan of Tiandihui. He said my family business had grown large enough to warrant incorporation. It's convenient for diversified operations and applying for loans—no need to go through small farmer loan programs; I can apply according to the qualifications of agricultural enterprises."
 
 "Da Wan?"
 
-"It's Senator Wan Lihui from the agricultural sector." Yuan Fei explained.
+"Senator Wan Lihui from the agricultural sector," Yuan Fei explained.
 
-"Oh, it's him." Among the Wan brothers, Wan Lihui was the eldest, so naturally he was "Da Wan." From this description, this Farm Owner Hu's assets were indeed considerable.
+"Ah, him." Among the Wan brothers, Wan Lihui was the eldest, hence "Da Wan." From this description, Farm Owner Hu's assets were substantial indeed.
 
-"So you have opened quite a few factories." Xu Yanliang said, "Can you tell me in detail."
+"So you've established quite a few factories." Xu Yanliang said. "Could you elaborate?"
 
-Hu Wumei's heart tightened; what kind of approach was this? But thinking again, the Senate knew his little assets clearly, so there was nothing to hide. Immediately, he put on a frank look and laughed: "Calling them factories is a bit too arrogant; they are just some small workshops."
+Hu Wumei's heart tightened. What was the purpose of this line of questioning? But on reflection, the Senate knew his modest assets inside and out—there was nothing to hide. He immediately adopted a frank demeanor and laughed: "Calling them factories is rather generous—they're just small workshops."
 
-It turned out that besides the mill, his farm also had several small factories such as a hemp rope factory, a coir mattress factory, and a preserved fruit factory.
+It turned out that besides the mill, his farm also operated several small facilities: a hemp rope workshop, a coir mattress workshop, and a preserved fruit workshop.
 
-"...And there is the newly opened aquatic product processing factory over at the port. Called a factory, it's actually just a few workshops. At minimum a dozen people, at most only thirty to fifty people. And it operates seasonally. This way workers have work to do all year round."
+"...And there's the newly established aquatic products processing factory at the port. 'Factory' is a grand term—really just a few workshops. The smallest has a dozen workers, the largest only thirty to fifty. And they operate seasonally. This way, the workers have employment year-round."
 
-These were all agricultural product processing enterprises. Xu Yanliang was slightly disappointed. But thinking again, the Senate hadn't spread any decent light industry to Sanya either. It was considered good for a private enterprise like his to have this level.
+These were all agricultural processing enterprises. Xu Yanliang was slightly disappointed. But on reflection, the Senate hadn't established any significant light industry in Sanya either. For a private enterprise to achieve this level was already commendable.
 
-"Who is responsible for technical guidance?"
+"Who provides technical guidance?"
 
-"All hired through Tiandihui. Hu Wumei said, "Installing machines, debugging, production... one-stop service. No problems. It's just troublesome when machines break down. Repairmen have to be invited from Tiandu, and operations stop for several days once stopped."
+"All arranged through Tiandihui," Hu Wumei said. "Installing machines, debugging, production—one-stop service. No problems there. The headache comes when machines break down. Repairmen have to be summoned from Tiandu, and operations halt for several days."
 
-"That must use a lot of workers. How many workers does the farm employ?"
+"That must require considerable manpower. How many workers does the farm employ?"
 
-"Not too many actually. Not counting Nanyang slaves, there are about two hundred male and female workers. Plus children and elderly, there are over three hundred people."
+"Not that many, actually. Excluding Nanyang slaves, we have about two hundred workers, male and female. Add in children and elderly, and it's over three hundred people."
 
 "What? You still use slaves here?"
 
-"Of course use," Hu Wumei looked at Xu Yanliang somewhat strangely, "All large-scale farms here use them."
+"Of course," Hu Wumei looked at Xu Yanliang with some puzzlement. "All the large farms here do."
 
-Xu Yanliang knew very little about the Senate's slave issue. He only knew that a large number of slaves were used when developing Tiandu and Kaohsiung. He didn't expect slave labor to have spread to the private sector.
+Xu Yanliang knew little about the Senate's slavery practices. He was aware that large numbers of slaves had been used in developing Tiandu and Kaohsiung. He hadn't realized that slave labor had spread to the private sector.
 
 "How many slaves?"
 
-"About fifty. Originally there were more. Last year, female slaves were matched to workers. Considered as release from slave status."
+"About fifty. Originally there were more. Last year, female slaves were married off to workers. That counted as manumission."
 
 "What work do you use so many slaves for?"
 
-"They are used everywhere, farming, clearing wasteland, working in factories. To be honest, they are not very good at working and have poor physiques. Last winter digging drainage ditches, seven or eight died of exhaustion at once! A big loss!"
+"They're used everywhere—farming, clearing wasteland, working in factories. To be honest, they're not very capable workers and have poor constitutions. Last winter while digging drainage ditches, seven or eight died of exhaustion at once. A significant loss!"
 
-Xu Yanliang looked at his indifferent face and felt a chill in his heart: This is the "New National" we cultivated! However, he also understood that human nature is unreliable in the face of profit, not to mention that the person in front of him was once a pirate who killed without blinking.
+Xu Yanliang studied his matter-of-fact expression and felt a chill run through him. *This is the "New Citizen" we've cultivated!* Yet he also understood that human nature proved unreliable in the face of profit, particularly when the person before him had once been a pirate who killed without blinking.
 
 "So the mortality rate is quite high."
 
-"Higher than farm workers, but not that much higher." Hu Wumei said, "I bought them with money; I lose if they die. To be honest, if they weren't cheap enough, I really wouldn't be willing to use them..."
+"Higher than among farm workers, but not dramatically so." Hu Wumei said. "I paid good money for them—when they die, I lose money. Honestly, if they weren't so cheap, I really wouldn't be willing to use them..."
 
-"Oh, why?"
+"Oh? Why is that?"
 
-"Physique is not good—I just said that; moreover, they are people with hands and feet, and were captured, so they are always dissatisfied in their hearts. Treat them too well, they slack off. Treat them harshly, they run away. Running away is one thing, but they gang up outside to rob, kill, and steal..."
+"Poor constitution—as I mentioned. Moreover, they're able-bodied people who were captured by force, so they harbor perpetual resentment. Treat them too well, and they slack off. Treat them harshly, and they run away. Running away is one thing, but then they band together outside and rob, kill, and steal..."
 
-"No wonder your place is heavily guarded."
+"No wonder your place is so heavily fortified."
 
-"Dare not be unguarded. There was a riot here last summer." Hu Wumei seemed to still have lingering fears, "One or two hundred slaves from the mines killed the guards and ran out, robbing small farms in remote local areas all the way, killing and committing arson, expanding their team. Before long, it became three or four hundred people. By the time the garrison at Yulin Fortress wiped them out, they had already harmed dozens of households and killed over a hundred people..."
+"One dare not let one's guard down. There was a riot here last summer." Hu Wumei still seemed to bear lingering fear. "One or two hundred slaves escaped from the mines after killing the guards, raiding isolated small farms as they went, killing and burning, growing their numbers. Before long, they'd swelled to three or four hundred. By the time the garrison from Yulin Fortress suppressed them, they had ravaged dozens of households and killed over a hundred people..."
 
-A shocked expression appeared on Xu Yanliang's face. He didn't remember this incident. He tried hard to recall for a long time before vaguely remembering seeing a few relevant news items in "Weekly News." But there were no specific details.
+A shocked expression crossed Xu Yanliang's face. He had no memory of this incident. After racking his brain, he vaguely recalled seeing a few related news items in *Weekly News*, but they had contained no specific details.
 
-He asked Yuan Fei: "Are there many such incidents?"
+He asked Yuan Fei: "Are such incidents common?"
 
-Yuan Fei nodded: "There are quite a few sporadic incidents, but none had such a large scale. Thanks to the local militia, several large local farms served as shelters. Otherwise, the loss would have been greater. After this riot, all farms strengthened their precautions."
+Yuan Fei nodded. "There are quite a few sporadic cases, but none on that scale. Thanks to the local militia and several large farms that served as strongholds, the damage was limited. Otherwise, losses would have been far greater. After that uprising, all the farms strengthened their defenses."
 
-"So that's how it is." Xu Yanliang muttered to himself. Hearing these things shocked his heart greatly. He actually didn't agree with slavery much originally. Back then, he felt it was "tolerable" considering the loss of naturalized citizens in developing Tiandu and Kaohsiung was too great. But now it seemed that this system was not only quite cruel but its various negative impacts were also expanding.
+"I see." Xu Yanliang murmured. Learning these things had deeply unsettled him. He had never been particularly supportive of slavery. Back then, he had considered it "tolerable" given the catastrophic losses of naturalized citizens during the development of Tiandu and Kaohsiung. But now it seemed this system was not only cruel but also generating expanding negative consequences.
 
-It seems necessary to push for the abolition of slavery as soon as possible. He thought. Otherwise, continuing like this would cause endless trouble.
+*It seems necessary to push for the abolition of slavery as soon as possible,* he thought. *Otherwise, continuing like this will create endless trouble.*
 
-At this moment, he didn't delve deeper into this issue with Hu Wumei. He asked again: "Then is your labor force here sufficient?"
+For now, he didn't pursue the topic further with Hu Wumei. Instead, he asked: "So is your labor supply here adequate?"
 
 **(End of Chapter)**

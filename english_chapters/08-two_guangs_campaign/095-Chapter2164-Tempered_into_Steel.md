@@ -1,77 +1,79 @@
 # Chapter 2164 - Tempered into Steel
 
-The speaker was a Sergeant of the Fubo Army. Seeing he couldn't afford to offend him, Yang Erdong had to shut his mouth. He then saw another detachment of the Fubo Army arrive; their collar insignia were different from those of Lieutenant Mi's unit. He wondered inwardly where this new unit had come from.
+The speaker was a Fubo Army sergeant. Recognizing he couldn't afford to offend the man, Yang Erdong clamped his mouth shut. Moments later, another Fubo Army detachment arrived—their collar insignia differed from Lieutenant Mi's unit. He wondered silently where this new force had originated.
 
-Before long, Mi Longtao and the Left Detachment also returned. The troops came back beaming with joy, escorting captives and carrying all sorts of spoils. The enemies who fled the village hadn't gone a few miles before they were netted by Mi Longtao's ambush. Over seventy captives were taken, and the rest became corpses scattered across the paddy fields.
+Before long, Mi Longtao and the Left Detachment returned as well. The troops came back radiant with victory, escorting captives and hauling miscellaneous spoils. The bandits fleeing the village hadn't covered three miles before running straight into Mi Longtao's ambush. Over seventy prisoners taken; the rest now lay scattered as corpses across the paddies.
 
-Mi Longtao was radiant, repeatedly praising Zhu Si for "fighting well." The attack on Lizui was clean and efficient, forcing the bandits out of the village in no time.
+Mi Longtao practically glowed, lavishing praise on Zhu Si for "fighting brilliantly." The Lizui assault had been clean and decisive—bandits driven from the village in record time.
 
-"To be honest, I didn't quite trust your company at first, but you're really a talent, brother!" Mi Longtao praised Zhu Si profusely. "I know the troops you lead are a motley crew hastily assembled, but to be able to go into battle and charge like that—this counts as a top-notch performance. Getting this result, brother, is your massive contribution."
+"To be honest, I didn't entirely trust your company initially—but you're a genuine talent, brother!" Mi Longtao's commendations seemed boundless. "I know you're commanding a hastily assembled motley crew, yet they charged into battle like veterans. That's top-tier performance. This result, brother, represents your tremendous contribution."
 
-Zhu Si, overwhelmed by the praise, quickly made some humble remarks, saying it was all due to Mi Longtao's "excellent strategy" and that he had merely "executed it firmly." Although Mi Longtao didn't pick up on that comment, his smile was quite brilliant. Yang Erdong and a few others felt rather indignant: these were clearly all Captain Li's ideas, yet this Zhu Si was shamelessly claiming them as his own.
+Overwhelmed by such praise, Zhu Si quickly deployed humble deflections—everything owed to Mi Longtao's "excellent strategic vision," while he'd merely "executed orders firmly." Though Mi Longtao didn't acknowledge the comment directly, his smile blazed brilliant enough. Yang Erdong and several others burned with quiet indignation: those tactics had originated entirely from Captain Li, yet this Zhu Si was shamelessly appropriating credit.
 
-Indignant as they were, they were just ordinary soldiers. Having been steeped in the culture of "an officer one rank higher can crush you to death" for years, they naturally didn't dare to comment freely. But they couldn't help muttering a few words in private.
+Indignant though they were, they remained mere soldiers. Years steeped in the culture of "one rank higher crushes you to death" ensured they dared not speak freely. Still, they couldn't resist muttering complaints in private.
 
-After the bandits' ravages, Lizui had no residents left except for a few abducted women who had been left behind. It was already getting dark, and since the place was hard to defend and far from the West River, Mi Longtao decided to withdraw troops back to Xugang immediately.
+After the bandits' ravages, Lizui harbored no residents beyond a handful of abducted women left behind. Darkness approached, and since the location proved difficult to defend and lay far from the West River, Mi Longtao ordered immediate withdrawal to Xugang.
 
-Inside Xugang Village, security remained tight. Although the Fubo Army had won a victory, the tense situation caused by recent events persisted. After nightfall, the streets were deserted, with only joint patrols of militia and National Army soldiers circulating. Torches and lanterns were lit at every intersection and bridge, and barricades were set up.
+Inside Xugang, security remained stringent. Though the Fubo Army had secured victory, tension from recent events persisted. After nightfall, the streets emptied save for joint militia and National Army patrols. Torches and lanterns blazed at every intersection and bridge; barricades bristled everywhere.
 
-Many civilians from the surrounding areas had fled to Xugang for refuge. Although Master Xu was worried about insufficient food with the Aussies in the village, he didn't dare to openly expel them, so they were sheltered in several temples and ancestral halls.
+Countless refugees from surrounding settlements had fled to Xugang for sanctuary. Though Master Xu fretted over food supplies with the Ausländer present, he dared not openly expel anyone. The displaced sheltered in temples and ancestral halls.
 
-Because the bandit situation outside was unclear, to maintain instant readiness, the squads were not dispersed into houses but concentrated to camp out in the open. The Wuzhou Company was still settled on the threshing floor. Several bonfires were lit, and as the night dew was heavy, they wrapped themselves in blankets.
+With the bandit threat still nebulous, maintaining combat readiness meant no dispersing squads into houses—troops concentrated outdoors instead. The Wuzhou Company settled again on the threshing floor. Several bonfires crackled to life; heavy night dew meant wrapping in blankets.
 
-Xugang sent a few old men and women to help them boil water and cook. Because the siege was lifted and many bandits were annihilated, this dinner was a "reward" from Xugang: not only was there enough rice, but chickens, ducks, and fresh fish were also sent over.
+Xugang sent elderly men and women to assist with water boiling and cooking. With the siege lifted and bandits annihilated, this dinner constituted a "victory feast": not merely sufficient rice, but chickens, ducks, and fresh fish besides.
 
-After a whole day of continuous marching and fighting, the camaraderie among the comrades, who originally had some estrangement, deepened significantly. The nervousness of first-time combat also vanished. The soldiers stacked their spears and sat around the bonfires, wolfing down their food, boasting to each other about their achievements and the foolish things others had done. especially the few unlucky ones who went missing during the landing—they had wandered around the mountains and riverbanks, tired and scared, and only managed to grope their way to Xugang with great difficulty. One of them actually burst into tears upon seeing the Fubo Army soldier standing guard at the village entrance.
+After a full day of continuous marching and combat, camaraderie among initially estranged comrades deepened significantly. First-battle nervousness evaporated. The soldiers stacked spears and gathered around bonfires, wolfing food while boasting about individual accomplishments and others' foolish blunders—especially the unfortunate souls who'd gone missing during the landing. They'd wandered mountains and riverbanks, exhausted and terrified, barely managing to grope their way to Xugang. One had actually burst into tears upon spotting the Fubo Army sentry at the village entrance.
 
-Speaking of which, they couldn't be blamed. Getting lost in this unfamiliar place, encountering bandits would mean a self-evident fate. During training in Wuzhou, they had heard plenty of news about bandit atrocities. Stragglers or lost Fubo Army soldiers, isolated naturalized cadres... once they fell into bandit hands, death was certain.
+In fairness, they couldn't be blamed. Getting lost in unfamiliar territory with bandits prowling meant a self-evident fate. During Wuzhou training, they'd heard abundant tales of bandit atrocities. Stragglers, isolated Fubo Army soldiers, lone naturalized cadres... once fallen into bandit hands, death came certain.
 
-Li Pudun swept through the rice in his mess tin like a whirlwind, then went to the big pot and ladled himself another full tin of vegetable soup.
+Li Pudun demolished the rice in his mess tin like a whirlwind, then returned to the pot and ladled another full measure of vegetable soup.
 
-"Eating so much, be careful you don't burst," Luo Mao laughed.
+"Careful eating so much—you'll burst," Luo Mao laughed.
 
-"The food in Wuzhou was too lousy; it's rare to see meat." Li Pudun smacked his lips. "That gruel was killing me..."
+"Wuzhou food was abysmal. Meat's a rarity." Li Pudun smacked his lips. "That gruel was killing me..."
 
-From their departure from the Guangzhou recruit camp to the end of training in Wuzhou, the National Army's main food was "military rations"—most of which were refugee relief rations produced during the Engine Operation that hadn't been consumed—only starving refugees wouldn't disdain them.
+From departing the Guangzhou recruit camp through completing Wuzhou training, the National Army's staple had been "military rations"—predominantly unconsumed refugee relief supplies produced during the Engine Operation. Only starving refugees wouldn't scorn them.
 
-"Uncle, this place of yours is quite nice!" Sated, Li Pudun was in a great mood.
+"Uncle, this place of yours is rather nice!" Sated, Li Pudun radiated contentment.
 
-"If it weren't for the bandits, it would be not bad," the old man said with a bitter face. "With this bandit trouble, we can't farm in peace, dare not pick mulberries, and didn't raise silkworms this year. Lost a huge amount of income, yet the expenses apportioned to us have increased a lot—life is hard!"
+"Without the bandits, it wouldn't be terrible," the old man replied, face bitter. "This bandit trouble means we can't farm peacefully, dare not harvest mulberries, didn't raise silkworms this year. Lost tremendous income, yet our apportioned expenses increased substantially. Life is harsh!"
 
-"Once we wipe out the bandits, life will be better, right?" Luo Mao said. "I think the bandits aren't much, pretty weak!"
+"Once we eliminate the bandits, life improves, correct?" Luo Mao offered. "The bandits don't seem formidable—pretty weak, actually."
 
-"Sir! You have guns and cannons, naturally you're not afraid. But for us common folk, the mention of the words 'Great Heaven's Second' is like seeing a ghost. Although some militiamen were recruited, they are rookies who haven't fought or seen blood—if you hadn't come today, this Xugang would have suffered a great disaster!"
+"Sir! You wield guns and cannons—naturally you're fearless. But for common folk, merely hearing 'Great Heaven's Second' feels like encountering ghosts. Though we recruited militia, they're green boys who haven't fought or spilled blood. Without your arrival today, Xugang would've suffered catastrophic disaster!"
 
-He spoke of how, due to the bandit turmoil these days, neighbors had fled to Xugang, which was the largest and strongest place locally. The village had gathered several thousand people, many of whom were women, children, and the elderly. He went on to describe the atrocities of the bandits operating nearby, feeling both indignation and sorrow.
+He described how bandit turmoil drove neighbors to Xugang—the largest, strongest settlement locally. The village now sheltered several thousand people, predominantly women, children, and elderly. He recounted nearby bandit atrocities, voice thick with indignation and sorrow.
 
-"The dead and wounded, those robbed and raped... although they are strangers to me and I don't know them, when I think about it, they are just ordinary folks like me who eat, work, and sleep every day... days go by one by one. Life is bitter, but at least we can live... Now they are harmed indiscriminately—some lose their whole families... It feels terrible just thinking about it... Common folk don't hope for fine clothes and food, just peace! even peace is so hard!"
+"The dead and wounded, those robbed and violated... though strangers to me, unknown personally—when I consider it, they're ordinary folks like myself who eat, labor, sleep each day. Days pass one by one. Life is bitter, yet at least survivable... Now they're harmed indiscriminately—some lose entire families. Merely thinking about it feels terrible. Common people don't hope for fine clothing and delicacies, just peace! Yet even peace proves so difficult!"
 
-Hearing him say this, the soldiers sighed repeatedly. Luo Mao quickly comforted him: "Uncle, don't be sad, the Fubo Army is here! Once we wipe out all the bandits, everyone will naturally be able to live a stable life."
+Hearing this, the soldiers sighed repeatedly. Luo Mao quickly consoled him: "Uncle, don't grieve. The Fubo Army is here! Once we exterminate these bandits, everyone can naturally live stably."
 
-"...If the village had really been broken by bandits today, that would have been a massacre... It's a sin..." the old man sighed with gratitude. "You've really done a good deed and accumulated great virtue; you will surely have blessings in the future..."
+"Had the village truly fallen to bandits today, it would've been massacre... such sin..." The old man sighed with profound gratitude. "You've genuinely performed good deeds, accumulated great virtue. Surely blessings await you..."
 
-"What are you saying." The crowd felt a bit embarrassed. In their hearts, they felt a sense of military honor and responsibility for the first time. During political study in the training team, the officers repeatedly taught that "The Fubo Army is the people's own army, the cornerstone of defending the country and protecting the people." Everyone just listened back then, but now they suddenly understood: why exactly they came here to fight.
+"You're too kind." The men felt somewhat embarrassed. Yet simultaneously, military honor and responsibility stirred within them for the first time. During political study in the training team, officers had repeatedly taught: "The Fubo Army is the people's own army, cornerstone of defending the country and protecting the people." Everyone merely listened then. Now they suddenly understood—precisely why they'd come here to fight.
 
-"Password!" the sentry on the threshing floor suddenly shouted.
+"Password!" the threshing floor sentry suddenly challenged.
 
-"Pursuit!" came Li Dong's voice. The soldiers were all energized and stood up one after another. In today's battle, the Right Detachment made repeated strange contributions, and Li Dong's prestige had already been established among many soldiers.
+"Pursuit!" Li Dong's voice answered. The soldiers energized instantly, rising as one. In today's battle, the Right Detachment had earned repeated distinctions. Li Dong's authority now stood firmly established among the troops.
 
-Li Dong and Zhu Si had just attended the officer meeting hosted by Mi Longtao in the Xu Ancestral Hall. Now, besides Mi Longtao's troops from Fengchuan and their Wuzhou Composite Company, a company from Sanshui had also arrived at Xugang.
+Li Dong and Zhu Si had just attended the officers' conference hosted by Mi Longtao in the Xu Ancestral Hall. Beyond Mi Longtao's Fengchuan forces and their Wuzhou Composite Company, a Sanshui company had also reached Xugang.
 
-This company was originally an expeditionary force prepared to reinforce Lianzhou and Hezhou: composed of one Fubo Army infantry platoon and one National Army squadron. They were originally supposed to go to Fengchuan County seat for a short rest before proceeding along the Lian River. But on the way, they received orders: according to the latest intelligence, a large gathering of bandits was found at the junction of Fengchuan and Yu'nan counties, and they were ordered to join the encirclement battle. Therefore, this detachment came to Xugang under new orders to rendezvous with Mi Longtao's troops.
+This company originally constituted an expeditionary force prepared to reinforce Lianzhou and Hezhou: one Fubo Army infantry platoon plus one National Army squadron. Originally destined for brief rest at Fengchuan County seat before proceeding along the Lian River, they'd received new orders en route. Latest intelligence revealed major bandit concentrations at the Fengchuan-Yu'nan county junction; they were redirected to join the encirclement operation. Consequently, this detachment reached Xugang under fresh orders to rendezvous with Mi Longtao's forces.
 
-Because of this operation, Zhu Si's Wuzhou Composite Company was also relieved of its patrol escort duties and placed under Mi Longtao's command to carry out clearing operations.
+Due to this operation, Zhu Si's Wuzhou Composite Company was relieved from patrol escort duties and placed under Mi Longtao's command for clearing operations.
 
-The captured prisoners were interrogated by the probationary officers accompanying the team, yielding much useful information. According to the confession of one of the leaders, they had only gathered from various places a little over ten days ago—the leaders were mostly local tycoons and bandit "Stronghold Chiefs," responsible for providing pay and grain, as well as some firearms. The members, besides local ruffians and bandits, were mostly Ming army soldier-ruffians who had scattered from various places. There was even a portion of Yao people.
+Captured prisoners underwent interrogation by probationary officers accompanying the expedition, yielding valuable intelligence. According to one leader's confession, they'd assembled from disparate locations merely ten days prior. The leadership consisted primarily of local strongmen and bandit "Stronghold Chiefs," responsible for providing pay, grain, and some firearms. Members included local ruffians and bandits, but predominantly scattered Ming army deserters. A Yao contingent existed as well.
 
-"This indicates that the intelligence department's deduction that the bandits rising everywhere now are politically motivated is correct. Someone is secretly inciting and providing support behind the scenes." Mi Longtao said at the meeting, "It seems now that there is a trend of convergence between the Yao rebellion in the Eight Row Yao area and the bandit riots in the West River basin."
+"This confirms the intelligence department's theory that current bandit uprisings are politically motivated—someone's secretly inciting and supporting them from behind," Mi Longtao stated at the meeting. "It appears now that convergence trends are emerging between the Yao rebellion in the Eight Row Yao territories and the bandit disturbances throughout the West River basin."
 
-The situation was very tense, and the suppression operation appeared very urgent. At this moment, Zhu Si was holding a combat meeting inside the ancestral hall, while Li Dong was ordered to return to reorganize the troops and prepare for combat.
+The situation remained tense; the suppression operation demanded urgency. At this moment, Zhu Si attended the combat conference inside the ancestral hall while Li Dong received orders to return, reorganize troops, and prepare for combat.
 
-His mood wasn't relaxed. Today, the Composite Company's performance was very eye-catching and received unanimous affirmation from Mi Longtao and others at the combat meeting. But the casualty figures weren't pretty: the whole squadron had six dead and over twenty wounded. The entire Composite Company was only a little over one hundred and twenty men, so the actual casualties exceeded ten percent. This was very unfavorable for the morale of a new unit.
+His mood was anything but relaxed. Today the Composite Company's performance had proven eye-catching, earning unanimous commendation from Mi Longtao and others at the combat conference. But casualty figures told an uglier story: the entire squadron suffered six dead and over twenty wounded. With the Composite Company totaling merely one hundred twenty-odd men, actual casualties exceeded ten percent—deeply unfavorable for a green unit's morale.
 
-Many problems were exposed in combat. He originally suggested Zhu Si hold a company combat summary meeting, but Zhu Si was obviously not interested. Besides, he had to stay at headquarters to discuss operational details with Mi Longtao and others, so he told Li Dong to go back and hold this meeting.
+Combat had exposed numerous problems. He'd initially suggested Zhu Si convene a company-level after-action review, but Zhu Si showed obvious disinterest. Besides, he needed to remain at headquarters discussing operational details with Mi Longtao and others—so he'd instructed Li Dong to conduct this meeting instead.
 
-In fact, he had just listened to the soldiers' chat in the dark for a while—this kind of "eavesdropping" could most truthfully reveal the soldiers' thoughts and morale. Now that he had heard everyone's discussion, he felt his worries were a bit superfluous: it seemed the soldiers not only didn't waver but had a much stronger desire to fight than in previous days.
+In truth, Li Dong had just spent time listening to soldiers' conversations from the shadows. This variety of "eavesdropping" revealed troops' genuine thoughts and morale most faithfully. Having heard their discussions now, he felt his earlier concerns somewhat superfluous. The soldiers apparently hadn't wavered—if anything, their combat appetite had intensified dramatically compared to previous days.
 
-It seems fighting battles really tempers the troops! Li Dong thought. In Wuzhou, no matter how strict the training was, the troops' behavior after boarding the ships was still unreliable in various ways. Yet after fighting a whole day today, they had become much calmer and more composed—like soldiers.
+So battle truly does temper troops into steel! Li Dong reflected. In Wuzhou, regardless of training strictness, the men's shipboard behavior had remained unreliable in countless ways. Yet after today's full day of fighting, they'd become markedly calmer, more controlled—like actual soldiers.
+
+(Chapter End)

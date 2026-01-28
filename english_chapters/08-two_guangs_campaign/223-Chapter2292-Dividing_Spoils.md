@@ -1,118 +1,118 @@
 # Chapter 2292: Dividing Spoils
 
-"Didn't think dozing off someone delivers pillow." Yi Haoran smiled, "Wonderful ah."
+"Who would have thought—just as I'm dozing off, someone delivers a pillow." Yi Haoran smiled. "Wonderful."
 
-"I also feel among it has opportunity to take advantage, just don't know how to use."
+"I also sense there's an opportunity here, but I can't quite see how to use it."
 
-"How to use Student also wants to think well. But now this Sanheui is already silk shirt removed clean, letting me and others do whatever we want." Yi Haoran usually rarely spoke frivolous words; this moment couldn't help starting driving car (making dirty joke).
+"How to use it—I'll need to think on that as well. But right now, Sanhezu has stripped off its defenses completely, leaving itself wide open for us." Yi Haoran rarely spoke so lightly; at this moment, he couldn't help a bit of levity.
 
-"Sir loves joking."
+"You jest, sir."
 
-"Really not joking." Yi Haoran said, "Right now, first help him settle this matter of three hundred *dan* grain." He asked: "This Liu Youwang wants how much silver one *dan*."
+"I'm not joking." Yi Haoran grew serious. "First, let's help him settle this matter of the three hundred *dan* of grain." He asked, "How much silver per *dan* does Liu Youwang want?"
 
-"Two taels is fine—he anxious to sell off. Wants ready money, must be gold silver."
+"Two taels will do—he's eager to sell. Wants cash, must be gold or silver."
 
-"Easy to say." Yi Haoran thought, this business ready made someone does; that was exactly Jiang Rongxian. Matter of joint capital buying grain he already participated in; right now this deal could get grain immediately; also could resell once while taking advantage of high grain price.
+"Easy enough." Yi Haoran thought it over. There was a ready-made buyer for this business: Jiang Rongxian. He was already involved in the joint-capital grain-buying scheme. This deal could get him grain immediately, which he could then resell while prices were high.
 
-"Also this Opera Chest problem, also not easy to handle... I am not local person either." Chang Qingyun said.
+"Then there's this opera chest problem—that's not easy to solve either... I'm not a local myself," Chang Qingyun said.
 
-"Wuzhou city I am familiar than you; let me help you look." Yi Haoran agreed fully.
+"I know Wuzhou better than you. Let me look into it." Yi Haoran agreed readily.
 
-Conspiracy started with tight gongs dense drums. To reduce Luo Yangming’s suspicion on himself, Yi Haoran every day besides Rice Firm - Dock two points one line, didn't run everywhere, also extremely rarely met outsiders. Jiang Suo rushing back from Gou Er place responsible for running contacting work.
+The conspiracy was now advancing at a furious pace. To reduce Luo Yangming's suspicions, Yi Haoran had confined himself to traveling only between the rice shop and the dock each day, avoiding unnecessary outings and rarely meeting outsiders. Jiang Suo, who had rushed back from Gou Er's hideout, took charge of the running and coordination.
 
-During this period their private activities, besides contacting Gou Er bandit gang and Song Ming’s remnant department, also successively gathered some lost scattered personnel. These people mostly were scattered soldiers wandering braves and small officials having blood debt civil anger, impossible to be forgiven by Hair thieves. Yi Haoran coerced with this, plus temptation of "Merit," letting them join into this conspiracy.
+During this period, their clandestine activities—aside from liaising with Gou Er's bandit gang and the remnants of Song Ming's forces—had also successively gathered scattered personnel. Most were roving soldiers, wandering braves, and petty officials with blood debts and public enmity who could never be forgiven by the Australians. Yi Haoran used this threat along with the temptation of "meritorious service" to draw them into the conspiracy.
 
-Now he through layer layer control, mastered a gang of about one hundred people. Inside had many people working under Australians; many people working in Security Team, assisting National Army’s night patrol and standing sentry. Also some people, through National Army’s on spot supplement, directly entered National Army being soldiers. Also some, simply drilled into City Government office serving as messenger.
+Now, through layered control, he commanded a gang of roughly one hundred men. Many worked under the Australians; many served in the Security Team, assisting the National Army's night patrols and sentry duty. Some had been locally conscripted directly into the National Army. Others had simply wormed their way into the City Government as messengers.
 
-Through these people, Yi Haoran smoothly found out night shift, patrol situation of City Gates and Three Headquarters etc places. This was crucial to their raid.
+Through these people, Yi Haoran had smoothly mapped out the night shift and patrol schedules at the city gates, the Three Headquarters, and other key locations. This intelligence was crucial to their raid.
 
-Through traitors they also got weapons. After Wuzhou Recovery, whether confiscated defeated soldiers surrendered soldiers' weapons or battlefield cleaning recovered weapons, mostly piled in warehouse near dock waiting for sending back. Heavy fire weapons like cannons mostly already transported back Guangzhou as resource recycling. Better quality light fire weapons, sabers spears and armors distributed to Village Braves Militia of various villages, using for armed self defense.
+They had also obtained weapons through their traitors. After Wuzhou's recovery, whether confiscated from defeated or surrendered soldiers or recovered from the battlefield, most arms had been piled in warehouses near the dock, awaiting shipment back. Heavy artillery had already been transported to Guangzhou for recycling. Better-quality light firearms, sabers, spears, and armor had been distributed to the village braves and militia of various settlements for armed self-defense.
 
-Just like this remaining not transported away weapons still not few. Whether Xie Erren, Luo Yangming or Qian Duo, in their eyes, this wasn't pile of broken copper rotten iron without value. But to Yi Haoran and them, this was best equipment to arm riot personnel. Jiang Suo even got several suits of armors for Gou Er bandit gang, burying in hidden place outside city in advance.
+Yet even so, plenty of weapons remained. To Xie Erren, Luo Yangming, and Qian Duo, these were just a pile of scrap metal with no value. But to Yi Haoran and his men, they were the finest equipment for arming their insurgents. Jiang Suo had even procured several sets of armor for Gou Er's bandit gang, burying them at a hidden location outside the city in advance.
 
-Chang Qingyun through Yi Haoran’s relation contacted Jiang Rongxian. Shopkeeper Jiang hearing had such good chance, immediately agreed following Chang Qingyun to go to Sanheui to see.
+Through Yi Haoran's connection, Chang Qingyun made contact with Jiang Rongxian. When Shopkeeper Jiang heard of such a golden opportunity, he immediately agreed to accompany Chang Qingyun to Sanhezu to inspect the goods.
 
-This going business immediately hammered down; Jiang Rongxian not only bought all grain embezzled by Liu Youwang and others, also bought all various cloth, miscellaneous goods down. At once let them income almost one thousand taels silver.
+On that visit, the deal was struck at once. Jiang Rongxian bought not only all the grain Liu Youwang and his associates had embezzled but also all the cloth and miscellaneous goods. In one transaction, they netted nearly one thousand taels of silver.
 
-Liu Youwang whole life never saw so many white flowering silver. He surrounded official box full of silver looking and looking; holding silver ingots of different sizes different shapes in hand, rubbed unknown how many times. Whole body shivering. So much silver! Don't say himself, even his Liu family’s eighteen generations ancestors added together, probably never earned this much silver!
+In his entire life, Liu Youwang had never seen so much gleaming white silver. He circled the official box filled with ingots, staring and staring, turning silver pieces of various sizes and shapes over in his hands, rubbing them countless times. His whole body trembled. So much silver! Forget himself—even if you added up all eighteen generations of his Liu family ancestors, they probably had never earned this much!
 
-Thinking back then, self was a little beggar almost starving to death no one cared, wandering begging in Lingao; don't say able to ask silver money; even getting a bowl of proper cooked rice, was today luck exploring shed. Who thought self today surprisingly had such a situation!
+He thought back to his youth: a little beggar nearly starving to death, wandering and begging in Lingao, ignored by everyone. Forget silver—even getting a bowl of properly cooked rice was a stroke of luck, dependent on someone offering him a meal. Who could have imagined he would rise to such heights!
 
-All were Chief’s kindness! Liu Youwang at this moment, almost grateful to Senate adding nothing more. All say kindness like giving birth parents—actually Liu Youwang had completely no impression to speak of towards parents; also couldn't say gratitude. Gratitude to Senate was emitted from inner heart.
+It was all thanks to the Chief's grace! At this moment, Liu Youwang felt gratitude toward the Senate welling up from the depths of his heart. People spoke of grace like that of one's birth parents—but in truth, Liu Youwang had no impression of his parents whatsoever, let alone gratitude. His gratitude toward the Senate came from the very core of his being.
 
-Thinking here, his tears instantly fell down. Chang Qingyun at side somewhat surprised, asked: "Old Master why sad?"
+At this thought, tears suddenly streamed down his face. Chang Qingyun, standing beside him, was rather surprised and asked, "Why is the Master sad?"
 
-"I am not sad, is gratitude." Liu Youwang said, "Senate’s kindness truly mountain high water deep! Imperial Grace vast and mighty!"
+"I'm not sad—it's gratitude," Liu Youwang said. "The Senate's grace is truly as high as the mountains and as deep as the sea! Imperial grace, vast and mighty!"
 
-Listening to his nondescript metaphor, Chang Qingyun secretly funny; heart said Hair thief if giving more kindness to goods like you, Great Ming would have save!
+Hearing his jumbled metaphor, Chang Qingyun secretly found it amusing. *If the Australians showed more kindness to people like you*, he thought, *the Great Ming would be saved!*
 
-He holding laugh, persuaded: "Old Master says right; all is Chief’s kindness deep thick."
+Suppressing his laughter, he agreed: "The Master speaks truly. It is all due to the Chief's deep and generous kindness."
 
-"Fart, you received what Chief’s kindness?" Liu Youwang mood extremely good, taking Chang Qingyun to joke, "You since are Juren Old Master, Grandfather Father must be Wealthy East Big House family."
+"Bullshit—what kindness has the Chief shown you?" Liu Youwang was in excellent spirits and teased Chang Qingyun. "You're a *juren*! Your father and grandfather must have been from a wealthy, prominent family."
 
-Chang Qingyun slightly awkwardly smiled, said: "My home where counts as Wealthy East! Otherwise come here being what Advisor! But since captured by Chief, still can get sparing life dragging living in world, isn't it Chief’s great great grace..."
+Chang Qingyun smiled awkwardly. "My family was hardly wealthy! Otherwise, why would I be here serving as an advisor? But since being captured by the Chief, I've at least been spared my life and allowed to drag out an existence in this world—isn't that the Chief's great, great grace..."
 
-"Speaking is also; if Chief also same style as your Great Ming’s officials, one sentence is: 'Pull out behead', your this head estimated already rotted clean."
+"There's some truth in that. If the Chief were like your Great Ming officials—one word and 'drag him out to be beheaded'—your head would have rotted away by now."
 
-Chang Qingyun hehe dry laughed two sounds: "If head all rotted clean, how to handle errand for Old Master."
+Chang Qingyun gave a dry laugh. "If my head had rotted away, how could I handle errands for the Master?"
 
-"Speaking also right; so Senate are all our great benefactors. Old Chang you are truly a capable person na." Chang Qingyun three down two down settled buyer of grain for Liu Youwang, making Liu Youwang look at him more with new eyes; in words also close much.
+"True enough. So the Senate are all our great benefactors. Old Chang, you really are a capable fellow!" Chang Qingyun had settled Liu Youwang's grain buyer in no time at all, which raised him considerably in Liu's estimation. His tone grew much warmer.
 
-"Old Master praises wrongly, praises wrongly."
+"You flatter me, Master—you flatter me."
 
-"That Opera Chest..."
+"The opera chests..."
 
-"All on Student body; guarantee Old Master satisfied!"
+"Leave it all to this student. I guarantee the Master will be satisfied!"
 
-"Good good," Liu Youwang patting his own belly; had heart wanted to take an ingot silver from box rewarding Chang Qingyun, but unwilling; hesitated for good a while then said, "You leave first."
+"Good, good." Liu Youwang patted his belly. He was tempted to take an ingot from the box and give it to Chang Qingyun as a reward, but found himself unwilling. He hesitated for a long while, then finally said, "You may go."
 
-Liu Youwang watching Chang Qingyun leave, heart secretly annoyed. Early knew this Chang Qingyun was such talent, should force him out early "Assisting" self; why need mix with Jiang Yougong? This one thousand some taels silver vainly want to share to him four hundred taels; thinking huge unwillingness in heart.
+Liu Youwang watched Chang Qingyun leave, secretly annoyed. Had he known earlier that Chang Qingyun was this talented, he should have pressed him into "service" sooner! Why had he ever bothered partnering with Jiang Yougong? Now four hundred taels of this thousand-odd in silver would have to go to that man. The thought filled him with bitter reluctance.
 
-Thinking here, he more thinking more annoyed; felt Jiang Yougong this goods "Not authentic." Had heart wanted not to share to him. But thinking this Sanheui still had to rely on his protection; had to swallow this thought back. However, he left a back hand; only said sold grain; didn't mention sold cloth miscellaneous goods; swallowed two hundred taels silver first.
+The more he dwelt on it, the more resentful he became. He felt Jiang Yougong was being "unfair." He was tempted not to share with him at all. But considering that he still needed Jiang Yougong's protection here at Sanhezu, he swallowed that thought. He did, however, leave himself a hedge: he mentioned only the grain sale to Jiang Yougong, saying nothing of the cloth and miscellaneous goods—quietly pocketing an extra two hundred taels for himself.
 
-Jiang Yougong where knew Liu Youwang’s mind; hearing grain sold out, immediately came over discussing how to send silver to Zhu Si.
+Jiang Yougong had no inkling of Liu Youwang's scheming. When he heard the grain had been sold, he immediately came over to discuss how to deliver the silver to Zhu Si.
 
-Directly holding silver to Zhu Si’s lodging was not working—Wuzhou Prefecture Yamen where National Army Battalion HQ located had many people mixed eyes; one hundred silver heavy heavy, not good to carry not good to hide. Australians very vigilant to subordinates taking bribes; and current pay and provisions used all silver dollar circulation coupons. This one hundred taels silver once seen by people, this Zhu Si couldn't explain.
+Carrying silver directly to Zhu Si's quarters was out of the question. The Wuzhou Prefecture Yamen, where the National Army Battalion Headquarters was located, was crowded with people. A hundred taels of silver was heavy, difficult to carry and conceal. The Australians were highly vigilant about bribery among their subordinates, and all current pay was issued in silver dollar circulation coupons. If Zhu Si were seen with a hundred taels of silver, he'd have no way to explain it.
 
-"Inviting him here giving him isn't it fine?" Liu Youwang said, "My place absolutely safe."
+"Why not invite him here and give it to him?" Liu Youwang suggested. "My place is absolutely safe."
 
-"He collecting silver here of course safe; but how bring back? This is one hundred taels silver. Heavy heavy can't put in pocket; need to prepare special box—returning to Battalion HQ, someone seeing how to say?"
+"Collecting silver here is safe enough. But how does he carry it back? A hundred taels of silver is heavy—it can't go in his pocket. He'll need a special box. When he returns to battalion headquarters and someone sees it, what does he say?"
 
-"Could it be still have daring to ask him?"
+"Surely no one would dare question him?"
 
-"This but hard to say ah," Jiang Yougong low voice said, "You always should know, Chief everywhere has eye lines..."
+"That's hard to say," Jiang Yougong said, lowering his voice. "You should know—the Chief has eyes everywhere..."
 
-This sentence made Liu Youwang who lived comfortably recently scared out a body cold sweat. Senate everywhere having ears eyes eye lines this matter, naturalized citizens more or less knew a bit; however, never had people daring to discuss these matters publicly.
+This remark sent a chill down Liu Youwang's spine. That the Senate had ears and eyes everywhere was something all naturalized citizens knew to some degree, but no one dared discuss such matters openly.
 
-"This I of course know; otherwise how say my place safe? Anyhow not a single naturalized citizen."
+"Of course I know that. Why else do you think my place is safe? There isn't a single naturalized citizen here."
 
-"Problem is city inside everywhere are!"
+"The problem is the city is crawling with them!"
 
-"This is hard."
+"That's troublesome."
 
-Two people both fell into silence. Liu Youwang no experience; Jiang Yougong didn't have either: he defected to Hair for these years, not that didn't meet corruption things; but first didn't have such big amount; second Lingao long gone silver this saying; all using circulation coupons; instead convenient much. Great Ming’s experience possessed not few; but no way to apply directly.
+Both fell silent. Liu Youwang had no experience with this; neither did Jiang Yougong. He'd seen his share of corruption since defecting to the Australians, but the amounts had never been this large. Besides, silver had long been phased out in Lingao—everything was in circulation coupons, which was far more convenient. He had plenty of experience from his Great Ming days, but none of it applied directly here.
 
-"This matter you also no use!" Liu Youwang said, "I see, better invite Mr. Chang to discuss!"
+"You're useless for this!" Liu Youwang said. "I think we'd better consult Mister Chang!"
 
-"Also only so." Jiang Yougong said, "I avoid a bit first; avoiding he seeing people many unwilling to open mouth."
+"That's our only option." Jiang Yougong said, "I'll make myself scarce first. If he sees too many people, he might be reluctant to speak freely."
 
-Chang Qingyun called back hearing was this matter, brain instantly turned a few turns. Heart calculated properly, then opened mouth asked: "Method has; but also only can be temporary..."
+When Chang Qingyun was called back and heard what this was about, his mind raced through several calculations. He came up with a plan and then said, "There is a method, but it can only be temporary..."
 
-"You say first!"
+"Go on!"
 
-"Method not sending silver directly many are; just under Australian rule mostly can't use. But right now has a method usable." Chang Qingyun said, "Fine a substantial shop without too much interaction with Australian..."
+"There are many ways to avoid delivering silver directly, but most don't work under Australian rule. However, there is one approach we can use now." Chang Qingyun explained, "Find a substantial shop with minimal dealings with the Australians..."
 
-Specific operation was depositing silver into this shop; other party issuing a secret mark small seal would do. When needing, directly write a strip, stamp small seal; as long as within quota, shopkeeper seeing this seal would give silver directly.
+The specifics were to deposit the silver at this shop, which would issue a secret token—a small seal. Whenever the silver was needed, one simply wrote a slip, stamped it with the seal, and as long as the amount was within the quota, the shopkeeper would hand over the silver directly upon seeing the seal.
 
-Wanting more complex method of course also had; not only could deposit withdraw silver anytime; also could wash money white. But Chang Qingyun thought no this necessity—now was war time state; making too complex, instead would attract people suspicion.
+More sophisticated methods existed, of course—ones that allowed deposits and withdrawals at will and could launder money clean. But Chang Qingyun saw no need for that. In wartime, excessive complexity would only arouse suspicion.
 
-"This method good! Then how say only can temporary?" Liu Youwang asked.
+"An excellent method! But why do you say it's only temporary?" Liu Youwang asked.
 
-"Australians all use circulation coupons; now war affairs tense; this matter temporarily shelved; wait war affairs calm, naturally want to assume; at that time silver withdraw exchange will be troublesome..."
+"The Australians use circulation coupons exclusively. Right now, with military affairs pressing, this has been temporarily shelved. But once things calm down, they'll surely take it up again. At that point, withdrawing and exchanging silver will become troublesome..."
 
-"You TM worry blindly JB!" Liu Youwang laughed, "This not count matter! I deposited silver have to give silver; others care his ball."
+"You're worrying about nothing, damn it!" Liu Youwang laughed. "That doesn't matter! I deposited silver, so they give me silver. Who cares about the rest?"
 
-He thought thought, said: "This method good; I see my that part also can save like this; otherwise placing by body also not peace heart; afraid people check, afraid people steal. According to your this method much proper! Just handle according to your idea!"
+He thought it over and said, "This method is good. I think I'll save my share this way too—otherwise, keeping it on me makes me nervous. Afraid of inspections, afraid of thieves. Your method is much more sensible! Handle it just as you've described!"
 
 ---
 **Next Update:** Volume 7 - Guangzhou Governance Part 496

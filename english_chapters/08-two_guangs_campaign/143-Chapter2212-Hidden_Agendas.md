@@ -4,7 +4,7 @@
 
 "Precisely!" Peng Shou'an leisurely stroked his long beard. "Sun Dabiao was originally the eldest of the three brothers and the strongest. Then the Yao caught him off guard and dealt him a heavy blow. He was already seething. Now Feng Haijiao has beaten him to a *bazong* commission—his heart must be churning with envy and hatred. This is our golden opportunity!"
 
-Peng Shou'an fancied himself a strategist plotting from within his tent. He rallied his spirits and continued: "Since that's the case, it's simple. Let's use a 'one stone, two birds' stratagem. First, agree to Sun Dabiao's conditions and give him grain and cloth. Then promise him a National Army Squadron Commander title and the post of Dalang Market *lizheng*—on the condition that he captures Feng Haijiao's head."
+Peng Shou'an fancied himself a strategist plotting from within his tent. He rallied his spirits and continued. "Since that's the case, it's simple. Let's use a 'one stone, two birds' stratagem. First, agree to Sun Dabiao's conditions and give him grain and cloth. Then promise him a National Army Squadron Commander title and the post of Dalang Market *lizheng*—on the condition that he captures Feng Haijiao's head."
 
 "Can he pull it off?"
 
@@ -18,7 +18,7 @@ The next day, Wang Chuyi summoned Zhang Tianbo, praised him warmly, and laid out
 
 "...As long as he delivers Feng Haijiao's head—or captures him alive and delivers him to the county yamen—I will grant all his conditions. I will also recommend him to the Council of Elders for promotion. You must know the Council of Elders is urgently seeking capable men. As long as he serves wholeheartedly, there's no reason he can't secure honors for himself and his descendants—and a good outcome for his men as well."
 
-Zhang Tianbo's heart sank; his face changed. Wang Chuyi smiled: "Well? Any difficulty?"
+Zhang Tianbo's heart sank; his face changed. Wang Chuyi smiled. "Well? Any difficulty?"
 
 "There... no, there isn't..." Zhang Tianbo swallowed. "Your Honor! This is indeed hard to manage! Feng Haijiao and Sun Dabiao are sworn brothers. Asking Sun Dabiao to do this would betray *jianghu* loyalty. He... he probably won't agree..."
 
@@ -36,9 +36,9 @@ Far from calming things, the meeting sparked even greater resistance. The strong
 
 "Why use such trickery?" he countered. "Dalang Market was sacked by the Yonghua Yao once before. Sun Dabiao took a heavy beating and still hasn't recovered—merchants who've been there say even the walls haven't been fully repaired. True, we're short on troops, but we can mobilize the Yonghua Yao to help—they've had a grudge against Sun Dabiao for years. If we move against him, the Yonghua Yao will turn out in force..."
 
-"Inadvisable, inadvisable." Peng Shou'an shook his head repeatedly. "It's true the Yao have grievances with Sun Dabiao. But if we drive them into battle, they will demand reward afterward—with what will Director Wang pay them? If it's salt, that's manageable. But if they seize Dalang Market and refuse to leave—what then? Dalang Market controls the throat of the Yonghua Yao. I have served as an official here for years; I know the local terrain well enough. If they take Dalang Market, the Yao can threaten the entire county—even all three Lianyang cities—at will. And if they choose to resist imperial forces, they can hold the position..."
+"Inadvisable, inadvisable." Peng Shou'an shook his head repeatedly. "It's true the Yao have grievances with Sun Dabiao. But if we drive them into battle, they will demand reward afterward—with what will Director Wang pay them? If it's salt, that's manageable. But if they seize Dalang Market and refuse to leave—what then? Dalang Market controls the throat of the Yonghua Yao. I've served as an official here for years; I know the local terrain well enough. If they take Dalang Market, the Yao can threaten the entire county—even all three Lianyang cities—at will. And if they choose to resist imperial forces, they can hold the position..."
 
-"They wouldn't dare seize Dalang Market!" Luo Yiming found Peng Shou'an's character and schemes distasteful. He spoke loudly: "What is our National Army Squadron for? We crushed even the Eight Pai Yao—far more numerous—and the Yonghua Yao are already our defeated foe. Would they dare strut about in Yangshan?"
+"They wouldn't dare seize Dalang Market!" Luo Yiming found Peng Shou'an's character and schemes distasteful. He spoke loudly. "What is our National Army Squadron for? We crushed even the Eight Pai Yao—far more numerous—and the Yonghua Yao are already our defeated foe. Would they dare strut about in Yangshan?"
 
 Ordinarily, Peng Shou'an would not argue with naturalized cadres. First, it was beneath his dignity—after all, most naturalized cadres came from common origins. Second, as a surrendered official, he needed to stay out of trouble. But ever since Elder Huang had spoken encouragingly to him and Wang Chuyi had placed such trust in him, Peng had developed a sense of "repaying one who recognizes one's worth." Now he rose to defend his position:
 
@@ -46,9 +46,9 @@ Ordinarily, Peng Shou'an would not argue with naturalized cadres. First, it was 
 
 "Your plan is too idealistic. What if Sun Dabiao doesn't take the bait?" Luo Yiming pressed on. "Sun Dabiao is licking his wounds and drifting through his days. Will he go fight Feng Haijiao for this? What if Feng Haijiao kills him first? Even if he wins and kills Feng, why should he trust Director Wang to honor his word? Who guarantees it? If we can see through these pitfalls, surely a few bandits can too?"
 
-Peng Shou'an's expression soured. He gave a snort but said nothing more. Sun Dabiao might well see through their "drive the tiger to swallow the wolf" scheme—but that hardly mattered: Sun Dabiao had few options. Drifting on was a dead end. Even if the Australians did not deal with him, sooner or later the Yonghua Yao would come down from the hills to settle accounts. As for accepting Ming's pacification—Ming had no reach whatsoever in the Lianyang region. Titles like *bazong*, *shubi*, *dusi*... they sounded grand but were utterly useless.
+Peng Shou'an's expression soured. He gave a snort but said nothing more. Sun Dabiao might well see through their "drive the tiger to swallow the wolf" scheme—but that hardly mattered: Sun Dabiao had few options. Drifting on was a dead end. Even if the Australians didn't deal with him, sooner or later the Yonghua Yao would come down from the hills to settle accounts. As for accepting Ming's pacification—Ming had no reach whatsoever in the Lianyang region. Titles like *bazong*, *shubi*, *dusi*... they sounded grand but were utterly useless.
 
-Yet he was too weary to explain further. How could these rough men understand what "momentum" meant? At present, the Australians' momentum in Guangdong—in Lianyang—was irresistible, sweeping all before it. Those who followed it would prosper; those who opposed it would... perish. A petty band like Sun Dabiao's could never resist such momentum. Peng was fully confident: even if Sun Dabiao saw through the scheme, he would still have to bite the hook.
+Yet he was too weary to explain further. How could these rough men understand what "momentum" meant? At present, the Australians' momentum in Guangdong—in Lianyang—was irresistible, sweeping all before it. Those who followed it would prosper; those who opposed it would perish. A petty band like Sun Dabiao's could never resist such momentum. Peng was fully confident: even if Sun Dabiao saw through the scheme, he would still have to bite the hook.
 
 In the end, Wang Chuyi made the final call and settled on the plan.
 
@@ -56,7 +56,7 @@ As a precaution—and to be ready to strike at any moment—both National Army s
 
 With Zhang Tianbo in the lead, the rice and cloth were escorted to Dalang Market. News that Sun Dabiao was about to accept Australian pacification and become an official spread quickly.
 
-Seeing the grain and cloth arrive, Sun Dabiao was so delighted he could hardly close his mouth. He nearly burst out: "My parents gave me life, but only Director Wang loves me!"
+Seeing the grain and cloth arrive, Sun Dabiao was so delighted he could hardly contain himself. He nearly burst out, "My parents gave me life, but only Director Wang loves me!"
 
 "Elder Brother, this gift may be sweet, but swallowing it comes with a hook," Zhang Tianbo reminded him, seeing his brother giddy with joy.
 
@@ -70,7 +70,7 @@ Seeing the grain and cloth arrive, Sun Dabiao was so delighted he could hardly c
 
 Yet the Australians' current offer was quite obviously a "drive the tiger to swallow the wolf" stratagem—designed to provoke Sun and Feng into killing each other so the Australians could reap the fisherman's profit.
 
-All he could do was warn again: "Elder Brother, whether you accept the Australian pacification or Ming's, the goal should be harmony and profit for all. Do not fall into their 'borrow a knife to kill' trap! Above all, do not start slaughtering each other..."
+All he could do was warn again. "Elder Brother, whether you accept the Australian pacification or Ming's, the goal should be harmony and profit for all. Do not fall into their 'borrow a knife to kill' trap! Above all, do not start slaughtering each other..."
 
 "Ha! What's come over you? Suddenly so cautious." Sun Dabiao stood and laughed. "The other day when Old Feng came here, weren't you the one suggesting we seize him on the spot and hand him over to the Australians?"
 

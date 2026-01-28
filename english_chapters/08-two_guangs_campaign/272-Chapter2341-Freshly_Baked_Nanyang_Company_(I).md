@@ -1,123 +1,123 @@
 # Chapter 2341 - Freshly Baked Nanyang Company (I)
 
-"This isn't a F-king document, it's..." Zhou Wei held the file *"Reply on Establishing Nanyang Company"* in hand, flipping through again and again, "It's... It's..." He couldn't think of what vocabulary to use for a time.
+"This isn't a goddamn document, it's..." Zhou Wei clutched the file titled *Reply on Establishing Nanyang Company*, flipping through its pages again and again. "It's... It's..." For a moment, he couldn't find the right words.
 
 "It's a gold mine!"
 
-"Gold mine counts as a fart! This is wealth and merit for thousands of autumns and ten thousand generations!" Zhou Wei put down this document read by him unknown how many times, strictly word by word almost able to recite, excited uncontrollable himself. He leaned back, falling heavily onto the sofa in Nanhai Coffee House private room, lying facing heaven with limbs spread, truly not letting down these few months of his painstaking planning and secret operation! Lobbying all the way, making promises, pulling heads (recruiting)... Zhou Wei felt he wasn't much different from selling insurance or doing pyramid schemes.
+"A gold mine? That doesn't even begin to cover it! This is wealth and merit for a thousand autumns, ten thousand generations!" Zhou Wei set down the document he'd read so many times he could practically recite it word for word. Unable to contain his excitement, he leaned back and collapsed heavily onto the sofa in Nanhai Coffee House's private room, arms and legs splayed out as he stared at the ceiling. All those months of painstaking planning and covert maneuvering had paid off! The endless lobbying, making promises, recruiting supporters... Zhou Wei felt he'd come dangerously close to resembling an insurance salesman or pyramid scheme operator.
 
-A burst of wild laughter erupted from the crowd in the private room. They were all hardcore elements of Southbound Faction. Number not many. Among them were "Old South" constantly advocating "Empire's future is in Nanyang" since D-Day, also "New South" lobbied because of distress over stagnation, believing "Only going South can solve all current problems".
+Wild laughter erupted from the crowd gathered in the private room. They were all hardcore members of the Southward Faction—not many, but dedicated. Among them were the "Old South" contingent, who had advocated that "the Empire's future lies in Nanyang" since D-Day itself, as well as the "New South" members, recruited from those frustrated by stagnation, who believed that "only going South can solve all our current problems."
 
-On the red sandalwood table in the private room, piled full of large and small wine bottles and dinner plates, a mess on the ground. Visible the liveliness degree of this gathering.
+The red sandalwood table in the private room overflowed with wine bottles and dinner plates large and small. The floor was a mess. The scene spoke to the liveliness of the gathering.
 
-Whether "Old South" or "New South", at this moment the private room overflowed with a cheerful atmosphere. This successful internal operation made everyone have a feeling of "World is mine". What did this Senate's wealth count as? This Southeast Asia, and even North and South America were the true splashing-sky wealth.
+Whether Old South or New South, the private room brimmed with jubilation. This successful internal operation had given everyone the intoxicating feeling that the world was theirs for the taking. What did the Senate's current wealth amount to? Southeast Asia—and for that matter, North and South America—those were where the real fortunes lay.
 
 First master the company, then master the Senate, finally master the whole Human Empire...
 
-Just at this time, the private room's doorbell rang. Waitress came in to report: "There is a phone call looking for Chief Zhou."
+Just then, the private room's doorbell rang. A waitress entered to report: "There's a phone call for Chief Zhou."
 
-"Oh, who is calling?" Zhou Wei crawled up from sofa, looking at the waitress at the door.
+"Oh? Who's calling?" Zhou Wei propped himself up on the sofa and looked at the waitress standing by the door.
 
-"It's from Organization Section, saying please go answer the phone immediately."
+"It's from Organization Section. They said please come answer the phone immediately."
 
-"Fart!"
+"Screw that!"
 
 "Let him wait!"
 
-"Any big matter is more important than us celebrating now?!"
+"What could possibly be more important than our celebration right now?"
 
-"Tell him, Chief Zhou has no time!"
+"Tell him Chief Zhou is busy!"
 
-"Right, tell him to come find Chief Zhou himself!"
+"Right—if it's so urgent, he can come find Chief Zhou himself!"
 
 ...
 
-Zhou Wei waved hand, saying: "I come immediately."
+Zhou Wei waved them off. "I'll be right there."
 
-Saying that he pulled clothes hem clean, walking out quickly.
+He straightened his clothes and walked out quickly.
 
-The telephone on this floor of Nanhai Club had a separate telephone room. After walking in he closed the door, only then picked up the phone.
+The telephone for this floor of the Nanhai Club had its own booth. After stepping inside and closing the door, he picked up the receiver.
 
-"I am Zhou Wei."
+"This is Zhou Wei."
 
-"Hello, I am Ming Lang of Organization Section." Ming Lang's voice in the phone was exactly same as usually when they contacted, a kind of "friendly", but tone without any emotional color, "Do you have time between ten and eleven tomorrow morning? We want to talk with you alone."
+"Hello, this is Ming Lang from Organization Section." Ming Lang's voice sounded exactly as it always did during their previous contacts—"friendly" yet utterly devoid of emotional coloring. "Do you have time between ten and eleven tomorrow morning? We'd like to speak with you privately."
 
-"Have time, have time." Zhou Wei said hurriedly. A burst of ecstasy in his heart, *there is a door (chance)!*
+"Yes, absolutely." Zhou Wei could barely contain his elation. *There's a chance!*
 
-"That's good, we settle it then: Tomorrow morning ten o'clock. Wish you work smoothly!"
+"Excellent. Then it's settled: tomorrow morning at ten. Best wishes with your work!"
 
 "Serve the Senate and People!"
 
-This cliché Zhou Wei said unknown how many times, this time he really counted as from bottom of heart. He finally was going to "Serve the Senate and People"!
+Zhou Wei had uttered this platitude countless times before. This time, he truly meant it from the bottom of his heart. He was finally going to "Serve the Senate and People" for real!
 
-Why Ming Lang called he knew clearly in heart. Just when Senate General Assembly passed relevant resolution, before formal document came out, he already started drafting the plan for newly established Nanyang Company.
+He knew perfectly well why Ming Lang was calling. The moment the Senate General Assembly passed the relevant resolution, before the formal document was even issued, he had already begun drafting a proposal for the newly established Nanyang Company.
 
-He had written this plan long ago. Of course, in the past he wrote as "Colonization Division Chief", now since changing to company operation, naturally had to write according to commercial operation mode. This was a piece of cake for him. Back then in the bank he read countless such reports and plans. Completely knew how to write this plan beautifully and substantially.
+He'd written this proposal long ago, of course. Back then, he'd drafted it as "Colonization Division Chief." Now that they were switching to commercial operations, it naturally had to be rewritten according to business management principles. This was child's play for him—in his banking days, he'd reviewed countless such reports and proposals. He knew exactly how to make this proposal look both impressive and substantial.
 
-Purpose of writing this thing was to apply for Chairman, General Manager or Director... etc. of the newly baked company. Regardless called what, anyway it was the position of sect master (leader).
+The purpose of writing it was to apply for the position of Chairman, General Manager, or Director of the freshly minted company—whatever they chose to call it, the point was to become its leader.
 
-As soon as job recruitment news appeared on internal website, he submitted his registration form and this heavy plan at the first time.
+The moment the job recruitment notice appeared on the internal website, he submitted both his registration form and this substantial proposal at the first opportunity.
 
-Although right now Southbound Faction was beaming with joy, a group of harmony. But before heavy interest everyone was equal. In case someone was plastic brotherhood, that would be bad. And judging from current situation, someone wanting to play the trick of two peaches killing three knights wasn't necessarily impossible—he didn't plan to make wedding dress for others after spending several years to get things done.
+Though the Southward Faction was currently basking in collective joy and harmonious brotherhood, everyone was equal before substantial profits. Should someone turn out to be a fair-weather friend, that would spell trouble. And judging by the current situation, it wasn't impossible that someone might try playing tricks—like the famous story of two peaches used to kill three warriors. He hadn't spent years engineering this outcome just to make someone else's wedding dress.
 
-Making the plan solid and good himself left ample room for counterattack. Even if someone wanted to play tricks they had to weigh it.
+By preparing a solid proposal himself, he'd left ample room for counterattack. Even if someone wanted to play games, they'd have to think twice.
 
-Now it seemed, his planning ahead had effect. Ming Lang indeed came to interview him. According to normal organization process, after interview, appointment for him would be issued soon... Thinking of here, he couldn't suppress his joy.
+Now it appeared his foresight had paid off. Ming Lang was indeed scheduling an interview. According to normal organizational procedures, his appointment would be issued shortly after the interview... At this thought, he could barely suppress his joy.
 
-From a mere Planning Academy clerk, empty-shelf Colonization Division Chief rising to National Policy Company Sect Master, this leap was historic for him personally, for his future whole family!
+From a mere clerk in the Planning Academy, an empty-titled Colonization Division Chief, to the head of a National Policy Company—this leap was historic, not just for him personally, but for his entire family's future!
 
-He returned to the private room calmly.
+He returned to the private room with studied composure.
 
-"What did Ming Lang say to you."
+"What did Ming Lang want?"
 
 "He asked me to submit a detailed report on Colonization Division work..."
 
-"This isn't under his charge either!"
+"But that's not even under his jurisdiction!"
 
-"Is it Organization Inspection!" Zhou Wei said nonchalantly, "Should transfer me to Nanyang Company to take office soon."
+"It's an organizational inspection!" Zhou Wei said nonchalantly. "Should be about transferring me to the Nanyang Company soon."
 
-From bottom of heart, he didn't want to tell everyone this news. After all before formal appointment came out there would still be many unknown factors. More people knowing, spreading out, heaven knew what things would happen.
+In truth, he hadn't wanted to share this news with everyone. After all, until the formal appointment came through, many unknown factors remained. The more people who knew, the more it would spread, and heaven only knew what complications might arise.
 
-But keeping mouth shut meant no go either. Everyone understood what Organization Section did. Wait until appointment publicity came out, these New South Old South would definitely feel he was "not enough friend (loyal)".
+But keeping quiet wasn't really an option either. Everyone understood what Organization Section did. Once the appointment was publicly announced, these New South and Old South members would feel he hadn't been "a true friend."
 
-"Haha, maybe wanting you to be Chairman!"
+"Ha! Maybe they want you to be Chairman!"
 
-"There is this possibility." Zhou Wei nodded lightly, "But Chairman is a bit high, those people in the Cabinet willing to let go?"
+"There's that possibility." Zhou Wei nodded lightly. "Though Chairman might be aiming a bit high—will those people in the Cabinet really let go?"
 
-"Fart! If they unwilling to let go we force them to let go! Except you, who else is more suitable?"
+"Screw them! If they won't let go, we'll make them! Who else is more qualified than you?"
 
-"Correct, this victory fruit cannot fall into others' hands!"
+"Exactly, we can't let this victory fall into someone else's hands!"
 
-"Except you Zhou Wei, we recognize no one!"
+"If it's not you, Zhou Wei, we won't accept anyone!"
 
-For a time the whole private room was chaotic. A group of people all immersed in this beautiful longing for future. Only Zhou Wei returned to thinking after experiencing temporary excitement.
+The private room erupted in chaos. Everyone was lost in beautiful visions of the future. Only Zhou Wei returned to careful contemplation after the initial surge of excitement faded.
 
- Taking office as Nanyang Company leader was already nailed on board. This was certainly a congratulable thing, but analyzing prospects carefully, difficulty was really not small.
+Taking over as Nanyang Company's leader was already a foregone conclusion. That was certainly cause for celebration. But examining the prospects carefully, the challenges ahead were considerable.
 
-He rose by relying on public opinion. If unable to hand out an answer satisfying the Senate quickly, especially unable to satisfy those long-term scarce materials in industrial sector, he would soon become a lone man.
+He had risen on the strength of public opinion. If he couldn't quickly deliver results that satisfied the Senate—especially regarding those industrial materials that had been in chronic shortage—he would soon find himself isolated.
 
-The Senate's reply this time adhered to traditional routine of "Not Giving Resources Giving Policy". To a certain extent "Giving Policy" was better than "Giving Resources". Since wanting people to dig food themselves, couldn't restrict too much. How did old saying go? "Whoever F-king gives more money, I work for whom".
+The Senate's response this time followed their traditional approach of "Giving Policy, Not Resources." In a way, "Giving Policy" was better than "Giving Resources." If they wanted people to dig for their own food, they couldn't impose too many restrictions. How did the old saying go? "Whoever pays more gets my loyalty."
 
-Judging from the document, this Nanyang Company obtained extremely large authorization: Counting down, except three core powers of Minting, Army Building and Diplomacy, almost obtained power of "Acting at Discretion" in all aspects. Force cannot be said not big. However compared to those few "East India Companies" currently running rampant in Southeast Asia, these powers were still far behind. Crucially, Southeast Asia Company didn't obtain the vital power of "Trade Monopoly".
+Judging from the document, the Nanyang Company had obtained extraordinarily broad authorization. Running down the list, except for the three core powers of minting currency, raising an army, and conducting diplomacy, they had been granted virtually unlimited discretion in everything else. The power was substantial. Yet compared to the various "East India Companies" currently rampaging through Southeast Asia, these powers still fell short. Crucially, the Southeast Asia Company hadn't obtained the vital power of trade monopoly.
 
-Not obtaining Southeast Asia's "Trade Monopoly Right", meant they had to eat from same pot with current Foreign Trade System. Moreover they also had no right to expel those merchant ships of British, Dutch, Japanese etc. foreigners sailing to Sanya, Lingao, Guangzhou, Kaohsiung. They all sailed over under the banner of the Senate's "Free Trade".
+Without "Trade Monopoly Rights" for Southeast Asia, they would have to eat from the same pot as the current Foreign Trade System. Moreover, they had no authority to expel those merchant ships from Britain, the Netherlands, Japan, and other foreign nations that sailed to Sanya, Lingao, Guangzhou, and Kaohsiung. They all arrived flying the banner of the Senate's "Free Trade" policy.
 
-"Engaging in Free Trade in 17th Century, this is F-king idiot behavior! Let Europeans earn how much money in vain!" Zhou Wei slandered this policy secretly more than once.
+"Engaging in Free Trade in the 17th century—that's idiotic behavior! Look how much money we're letting the Europeans earn for nothing!" Zhou Wei had privately cursed this policy more than once.
 
-However slandering Trade Freedom naturally wouldn't do. After all this counted as Senate Consensus. And regular arrival of foreign merchant ships saved transport capacity to a large extent, lowering prices. Especially in these years Dutch East India Company transporting large amount of rice to Lingao could be said to have greatly relieved the Senate's food pressure.
+But openly opposing Free Trade was out of the question. After all, it counted as Senate Consensus. And the regular arrival of foreign merchant ships saved considerable shipping capacity while lowering prices. Especially in recent years, the Dutch East India Company had transported vast quantities of rice to Lingao, greatly relieving the Senate's food pressure.
 
-Pity Dutch technology gap with Senate was too much. Senate could persuade Dutch to plant rubber and oil palm in East Indies, but had no way to tell them how to mine various non-ferrous metal minerals urgently needed by industrial sector. Even willing to teach hand in hand, Dutch might not have motivation to do this business of large investment and small profit. After all selling locally produced rice to Senate was easier.
+Unfortunately, the technology gap between the Dutch and the Senate was simply too vast. The Senate might persuade the Dutch to plant rubber and oil palm in the East Indies, but they had no way to teach them how to mine the various non-ferrous metal ores that the industrial sector desperately needed. Even if they were willing to provide hands-on training, the Dutch probably lacked the motivation for such high-investment, low-profit business. After all, selling locally produced rice to the Senate was far easier.
 
-Such bone-gnawing things naturally only we come to do, Zhou Wei roasted secretly.
+*Such bone-gnawing work naturally falls to us,* Zhou Wei grumbled inwardly.
 
-However, the Senate gave him another opening. That is trade within whole Southeast Asia range, Foreign Trade Company wouldn't intervene. Nanyang Company could act at discretion. Organizing trade activities in Southeast Asia region autonomously.
+However, the Senate had given him another opening: throughout the whole of Southeast Asia, the Foreign Trade Company would not intervene. The Nanyang Company could operate freely, organizing trade activities across the region independently.
 
-As for army, he didn't care too much. All stationed-abroad stations had no army, but they could more or less pull some armed forces themselves. And once colony established, could establish armed forces in the name of organizing "Militia" perfectly justifiably. Simultaneously applying for National Army stationing. These National Army arriving in Southeast Asia would still be under company command all the same.
+As for military forces, he wasn't too concerned. None of the overseas stations had regular armies, but they could all cobble together some armed forces on their own. Once colonies were established, they could legally organize armed forces under the guise of "militia." They could also apply for National Army deployments—and once those National Army troops arrived in Southeast Asia, they would still fall under company command.
 
-Minting power he himself didn't care either. Originally this wasn't something enterprise could ask for. And once colony and Southeast Asia local trade network formed climate, could also help Reserve Bank expand usage area of Silver Yuan and Silver Yuan Notes. Cheng Dong and others would only be more grateful to him.
+Minting rights didn't concern him either. That was never something an enterprise could demand. And once colonies and local Southeast Asian trade networks reached critical mass, they could help the Reserve Bank expand the circulation of Silver Yuans and Silver Yuan Notes. Cheng Dong and his colleagues would only be grateful.
 
-As for Diplomacy, Senate had fart diplomacy now. Just sent a Consul to Batavia. Of course this wasn't anything either. What he was interested in was engaging in colony construction and mining, not signing some friendly commerce clauses.
+As for diplomacy—what diplomacy did the Senate even have at the moment? They'd only sent a Consul to Batavia. Not that it mattered. His interest lay in building colonies and mining operations, not signing commercial treaties.
 
-Where should his first step land? As freshly baked Nanyang Company General Manager, Zhou Wei started calculating in heart. From deep in his heart, managing Vietnam had always been his main goal. And Senate had foundation in Vietnam. Besides Hong Gai Coal Mine, these years through trade and armed penetration, intervening in chaotic war between Northern and Southern Dynasties, already obtained quite a few interests in Vietnam.
+Where should his first step fall? As the freshly appointed General Manager of the Nanyang Company, Zhou Wei began calculating. Deep in his heart, Vietnam had always been his primary objective. The Senate already had a foundation there. Besides the Hong Gai Coal Mine, years of trade and armed intervention in the civil war between the Northern and Southern Dynasties had already secured considerable interests in Vietnam.
 
 **(End of Chapter)**

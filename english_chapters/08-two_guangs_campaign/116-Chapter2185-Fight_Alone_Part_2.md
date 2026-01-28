@@ -1,107 +1,107 @@
 # Chapter 2185 - Fight Alone (Part 2)
 
-The *crack-crack* of gunshots drowned out the enemy's footsteps. From behind the low breastwork, a thin line of less than a hundred men suddenly spewed a sheet of white smoke. The bandits charging in front seemed to hit a wall of air, and instantly twenty or thirty of them fell. The vanguard was immediately reduced by half. They had no experience dealing with organized firearm units, and the rebellion hadn't had any serious organization for months. Eating a volley, some immediately turned their heads to run, while others wanted to take advantage of the National Army reloading to rush up for melee. Advancing and retreating lost coordination, and they fell into chaos themselves first.
+Rifle fire drowned out the enemy's footsteps. From behind the low breastwork, less than a hundred men erupted in a sheet of white smoke. The charging bandits seemed to strike an invisible wall—twenty to thirty fell instantly. The vanguard was cut in half. Inexperienced with organized firearm units and lacking serious military structure after months of rebellion, they devolved into chaos from a single volley. Some turned to flee while others rushed forward to exploit the reload gap, advancing and retreating without coordination.
 
 "Ready... Fire!"
 
-The command for the second volley was given, yet less than half of the rifles completed the reload-fire process in time. Most soldiers simply couldn't reload in time.
+The second volley command came, yet less than half the rifles completed the reload-fire cycle in time. Most soldiers simply couldn't reload fast enough.
 
-Malay's hands and feet trembled uncontrollably. He dropped the percussion cap several times. Because ammunition management was strict during training, Malay had suffered quite a few sticks from the training sergeant for dropping percussion caps, so he subconsciously went to pick it up as soon as it dropped. Hearing the order for the second volley again, he got anxious and even more flustered, tossing and turning for several minutes without loading properly.
+Malay's hands and feet trembled uncontrollably. He dropped the percussion cap repeatedly. Ammunition management in training had been strict—Malay had suffered many beatings from training sergeants for dropping caps, so he instinctively bent to retrieve it. Hearing the second volley order, panic seized him—he fumbled for several minutes without loading properly.
 
-"Stop picking it up; use a new one!" The squad leader kicked him and roared, "Quick!"
+"Stop picking it up! Use a new one!" The squad leader kicked him and roared, "Quick!"
 
-"Fire at will!" Knowing the squadron's training level wasn't enough to support continuous volley fire by the whole squadron, Li Dong had to issue this order.
+"Fire at will!" Recognizing the squadron's training level couldn't support continuous volleys, Li Dong issued the order.
 
-Malay finally put on the percussion cap, raised the rifle, and aimed. At this time, the top of the breastwork was full of gunpowder smoke; he could only vaguely see the black shadows of enemies running.
+Malay finally seated the percussion cap, raised his rifle, and aimed. Gunpowder smoke filled the breastwork's crest—he could only see enemy silhouettes vaguely running.
 
-*So close!* Malay was almost scared into dropping the gun. He pulled the trigger almost subconsciously. The rifle made a loud noise and jerked violently in his hand, the recoil hurting his shoulder. However, this gunshot, smoke, and impact actually calmed his heart down, and his hands stopped shaking. The movements learned during training seemed to return to his body all at once.
+*So close!* Malay nearly dropped the gun. He pulled the trigger almost subconsciously. The rifle cracked and kicked violently, the recoil bruising his shoulder. Yet this discharge—the noise, smoke, and impact—actually steadied his heart. His hands stopped shaking. Training movements returned to his body all at once.
 
 "Quick, load and shoot!"
 
-Sergeants ran along the breastwork, shouting. Soldiers mechanically followed the steps taught in training: load—aim—shoot. Malay was loading like possessed by a god at this moment, as if he was born to do this. He actually fired six shots in a minute. By the end, he couldn't even see clearly what was in front of him.
+Sergeants ran along the breastwork, shouting. Soldiers mechanically followed drilled steps: load—aim—shoot. Malay loaded as if possessed, as though born to this task. He fired six shots in a minute. By the end, he couldn't even see clearly what lay ahead.
 
-The enemies rushing to the breastwork found that this low fortification had become a heavenly moat. Climbing over it against muzzle fire was enough to get killed ten times by the opposite side, while their own bows and arrows could be dodged by the opponents just squatting down. Soon, the vanguard taking concentrated fire retreated.
+The enemies rushing the breastwork found this low fortification had become an impassable moat. Climbing over it against muzzle fire meant certain death, while their arrows could be dodged by opponents simply crouching. Soon, the vanguard under concentrated fire retreated.
 
-The bandits first retreated to dozens of meters away, trying to weaken the opponent with bows and arrows, but bullets from the breastwork flew over with them, so they had to retreat further. When they retreated to almost the limit of bow range, a leader shouted: "Don't retreat! We are so far away, they can't hit!" Before his voice died away, a volley of lead bullets flew over and he was hit and killed on the spot. Seeing this, the bandits turned and ran, running wildly all the way to the mountain pass.
+The bandits first pulled back dozens of meters, attempting to weaken their opponents with archery, but bullets from the breastwork followed them, forcing further retreat. When they reached nearly the limit of bow range, a leader shouted, "Don't retreat! We're too far—they can't hit!" His voice hadn't faded when a volley of lead flew over and killed him on the spot. Seeing this, the bandits fled wildly all the way to the mountain pass.
 
-"The enemy retreated!" Sharp-eyed soldiers shouted loudly.
+"The enemy retreated!" Sharp-eyed soldiers shouted.
 
-Cheers immediately rang out by the breastwork. For the raw recruits who were dusty and disgraced yesterday, this defense was fought so delightfully; gun sounds, man falls—it was simply easier than target practice! Corpses lay scattered all over the ground in front of the breastwork, and the smell of blood actually stimulated their spirits. The raw recruits who were originally timid now became strong as oxen one by one, puffing out their chests and bellies, putting on the appearance of veteran soldiers who had experienced many battles.
+Cheers erupted along the breastwork. For the raw recruits dusty and disgraced yesterday, this defense felt exhilarating—gun sounds, man falls, simpler than target practice! Corpses scattered the ground before the breastwork, the smell of blood stimulating their spirits. The originally timid recruits now swelled like oxen, chests out, assuming the bearing of veteran campaigners.
 
-"maintain cover!" Sergeants ran around. "The enemy hasn't been defeated yet!"
+"Maintain cover!" Sergeants ran around. "The enemy hasn't been defeated yet!"
 
-The enemy, defeated for a bout, was still blocking the pass, and their numbers were still increasing. It seemed they were preparing to launch a second attack. Li Dong was burning with anxiety. This place was less than a *li* from the town, but until now, neither the unauthorized retreating 1st Squadron nor the 8th Battalion advance party in town had sent a single soldier to support him.
+The enemy, defeated for now, still blocked the pass, and their numbers kept growing. They seemed to prepare a second attack. Li Dong burned with anxiety. Less than a *li* from town, yet neither the unauthorized retreating 1st Squadron nor the 8th Battalion advance party in town had sent a single soldier to support him.
 
-"Where is Ai Buyi? Is he back?"
+"Where is Ai Buyi? Has he returned?"
 
 "No!"
 
-"Is the messenger back?!"
+"The messenger?!"
 
-"Coming!" The messenger sent to contact battalion headquarters had returned. He ran to Li Dong out of breath and reported: Battalion Commander Yang wanted him to "persist in place"; he was maneuvering troops to encircle and annihilate this group of enemies.
+"Coming!" The messenger sent to battalion headquarters returned breathless and reported: Battalion Commander Yang wanted him to "persist in place"—he was maneuvering troops to encircle and annihilate this enemy force.
 
-"...He said if you can't hold on, withdraw gradually, at most one hour."
+"...He said if you can't hold, withdraw gradually. At most one hour."
 
-Li Dong took out his pocket watch to check, then put it back. Battalion Commander Yang wanted him to be bait, to lure the enemy in for an "encirclement."
+Li Dong checked his pocket watch, then put it away. Battalion Commander Yang wanted him as bait to lure the enemy for an "encirclement."
 
-"Good, I understand. What about 1st Squadron?"
+"Good, understood. What about 1st Squadron?"
 
-"Battalion Commander Yang has already sent someone over to tell them to return to their original position!"
+"Battalion Commander Yang already sent someone to order them back to their original position!"
 
-Li Dong was relieved now. Being able to understand the superior's determination, he wasn't afraid of even tougher missions. He immediately ordered the troops to reorganize and check weapons and ammunition status.
+Li Dong relaxed. Understanding the superior's determination, he feared no mission however tough. He immediately ordered troops to reorganize and check weapons and ammunition status.
 
 "Squadron Leader, enemy movement!" The lookout shouted.
 
-Li Dong raised his telescope and saw a commotion in the enemy crowd at the pass, seeming to make way for something.
+Li Dong raised his telescope and saw commotion in the enemy crowd at the pass, seeming to make way for something.
 
-Xin Furuo (Sin Furuo) heard this and hurriedly took Li Dong to lie on the breastwork. Looking closely, a squad of soldiers wearing Ming army uniforms walked out of the Yao array, and the six hand-pushed carts with painted tiger-head shields erected at the front—what were they if not Shield Carts!
+Xin Furuo (Sin Furuo) hurriedly took Li Dong to lie on the breastwork. Looking closely, a squad of soldiers in Ming army uniforms emerged from the Yao array, and six hand-pushed carts with painted tiger-head shields erected at the front—Shield Carts!
 
-*Isn't this government troop equipment?* Li Dong was secretly surprised. Shield Carts were widely used in the late Ming Dynasty and were highly effective against attacks by light small-caliber firearms. It wasn't strange for bandits to think of using them. The problem was, whether bandits or Yao people, fighting stressed lightness and speed; usually, it was impossible to carry such heavy siege equipment.
+*Government troop equipment?* Li Dong was secretly surprised. Shield Carts were widely used in the late Ming Dynasty and highly effective against light small-caliber firearm attacks. Bandits thinking to use them wasn't strange. The problem was, whether bandits or Yao, fighting emphasized lightness and speed—carrying such heavy siege equipment was normally impossible.
 
-*How did these Yao people get together with the Ming army?!* Although everyone was puzzled by this question, there wasn't much time left for them. The National Army had no cannons. Behind the shields on the carts were layers of sand sandwiched between thick cotton quilts soaked in water, three or four layers in total. Let alone their smoothbore muskets, even the Fubo Army's Minié rifles couldn't penetrate them at a relatively long distance. Artillery or cavalry was needed to deal with them effectively.
+*How did these Yao people join forces with the Ming army?!* Everyone puzzled over this question, but little time remained. The National Army had no cannons. Behind the cart shields lay layers of sand sandwiched between thick cotton quilts soaked in water, three or four layers total. Let alone their smoothbore muskets, even the Fubo Army's Minié rifles couldn't penetrate them at distance. Artillery or cavalry was needed to deal with them effectively.
 
-"Quick, request artillery support from headquarters!" Li Dong sent out the messenger once again.
+"Quick, request artillery support from headquarters!" Li Dong dispatched the messenger again.
 
-His situation now was a bit critical. Originally, the forces were inferior. To defend the flanks, they were spread very thin. Once the shield carts rushed up, the line couldn't hold. Once the battle line was breached, there was only "retreat."
+His situation grew critical. Already inferior in forces, they'd spread very thin to defend the flanks. Once the shield carts closed, the line couldn't hold. Once the battle line breached, only "retreat" remained.
 
-Fortunately, the enemy feared their firepower. After the shield carts approached, the infantry completely hid behind the shield carts and advanced slowly, with speed comparable to a snail.
+Fortunately, the enemy feared their firepower. After the shield carts approached, the infantry completely hid behind them and advanced slowly, speed comparable to snails.
 
-"Volley fire!" Li Dong ordered when he saw the shield carts approach within a hundred meters.
+"Volley fire!" Li Dong ordered when the shield carts approached within a hundred meters.
 
-The concentrated volley of the whole squadron's rifles filled the front of the breastwork with smoke. The shields on the carts were beaten beyond recognition, split apart, revealing the cotton quilts behind.
+The concentrated volley of the whole squadron's rifles filled the breastwork front with smoke. The shields on the carts were beaten beyond recognition, split apart, revealing the cotton quilts behind.
 
-The cotton quilts had been torn by bullets, leaking sand from inside. However, the lead bullets didn't penetrate this "composite armor" of cotton quilt and sand. Except for a few unlucky ones helping push the cart on the side who were killed by fire, the shield carts continue to advance. The following enemy formation tightened up, shrinking completely behind the shield carts. The formation was stretched very long.
+The cotton quilts had been torn by bullets, leaking sand from inside. However, the lead bullets didn't penetrate this "composite armor" of cotton quilt and sand. Except for a few unlucky cart-pushers on the sides killed by fire, the shield carts continued advancing. The following enemy formation tightened, shrinking completely behind the shield carts. The formation stretched very long.
 
-Li Dong ordered squads to spread out toward two flanks. The closer the enemy advanced, the more exposed their flanks became. At a distance of 50 meters, the shield carts could no longer protect the soldiers behind.
+Li Dong ordered squads to spread toward both flanks. The closer the enemy advanced, the more exposed their flanks became. At fifty meters, the shield carts could no longer protect the soldiers behind.
 
 "Fire!"
 
-Infantry on both wings fired simultaneously. Bullets swished across the ranks like a sickle sweeping through; instantly, blood splattered in the ranks behind the shield carts. Bandits fell left and right, and the shield carts stopped instantly.
+Infantry on both wings fired simultaneously. Bullets swept across the ranks like a sickle; instantly, blood splattered in the ranks behind the shield carts. Bandits fell left and right, and the shield carts stopped instantly.
 
-"Blow the charge!" After Li Dong said that, he drew his command sword, jumped out of the breastwork first, and shouted, "Kill!"
+"Blow the charge!" After Li Dong spoke, he drew his command sword, jumped from the breastwork first, and shouted, "Kill!"
 
-Two squads instantly charged out from the left and right wings, pouncing on the shield cart columns from the flanks. The bandits, already thrown into confusion by the beating, saw the National Army with shiny bayonets pouncing like tigers descending a mountain. They were frightened out of their wits and turned to run. In an instant, the first shield cart was captured.
+Two squads instantly charged from the left and right wings, pouncing on the shield cart columns from the flanks. The bandits, already thrown into confusion, saw the National Army with gleaming bayonets pouncing like tigers descending a mountain. They were frightened out of their wits and fled. In an instant, the first shield cart was captured.
 
-Li Dong rushed to the shield cart; it was already stained full of blood. He was greatly startled. No wonder this cart moved so slowly; it turned out that behind the "earth armor" of the shield cart, a Tiger Crouch cannon was hidden. It was fully loaded. The gunner killed by bullets lay by the wheel, the slow match on the short spear already lit.
+Li Dong rushed to the shield cart—it was already blood-stained. He was greatly startled. No wonder this cart moved so slowly; behind the "earth armor" of the shield cart, a Tiger Crouch cannon was hidden. It was fully loaded. The gunner killed by bullets lay by the wheel, the slow match on the short spear already lit.
 
-As long as they got ten meters closer, the gunner could drop the "earth armor" fixed with leather ropes in front, revealing the muzzle to give the National Army hiding behind the breastwork a solid shot.
+Ten meters closer, and the gunner could have dropped the "earth armor" fixed with leather ropes in front, revealing the muzzle to give the National Army hiding behind the breastwork a devastating blast.
 
-"What f*cking bandits are these! They are simply government troops!" Li Dong cursed secretly.
+*What f*cking bandits are these! They're government troops!* Li Dong cursed secretly.
 
-Around them, soldiers had already engaged in melee combat with the few fierce bandits who refused to flee. The sound of clashing blades, fighting, and screaming mixed into a ball. Soon, the National Army annihilated these few fierce bandits and captured the second, third shield carts... all shield carts were captured by them, and the enemy had completely routed. However, at this time, the enemy archers could also shoot arrows here. National Army soldiers who lost the protection of the breastwork were hit by arrows one after another.
+Around them, soldiers had already engaged in melee with the few fierce bandits who refused to flee. The sound of clashing blades, fighting, and screaming mixed together. Soon, the National Army annihilated these fierce bandits and captured the second, third shield carts... all shield carts were captured, and the enemy had completely routed. However, at this point, enemy archers could shoot arrows here. National Army soldiers who'd lost the breastwork's protection were hit by arrows one after another.
 
-He shouted: "Quick, retreat back!" He saw Yang Erdong. "You destroy these carts! Quick!"
+He shouted, "Quick, fall back!" He saw Yang Erdong. "Destroy these carts! Quick!"
 
-Yang Erdong led a few nimble soldiers, throwing torches onto the carts one after another to ignite the gunpowder on the carts.
+Yang Erdong led a few nimble soldiers, throwing torches onto the carts one after another to ignite the gunpowder.
 
 "Boom"
 
-The Tiger Crouch cannon on the first shield cart was ignited. The ammunition in the bore erupted violently. However, the "earth armor" in front of it hadn't been lowered, so the ammunition was all blocked by the shield. Only the heaviest "Main Shot" penetrated the shield, flying a few meters away and rolling on the mud.
+The Tiger Crouch cannon on the first shield cart ignited. The ammunition in the bore erupted violently. However, the "earth armor" in front hadn't been lowered, so the ammunition was all blocked by the shield. Only the heaviest "Main Shot" penetrated the shield, flying a few meters away and rolling in the mud.
 
-Six shield carts exploded one after another, and the whole squadron withdrew back. Although the crisis was lifted, there were nearly ten casualties. Soldiers panted heavily, wiping blood from their faces and hands.
+Six shield carts exploded one after another, and the whole squadron withdrew back. Though the crisis was lifted, nearly ten casualties had been taken. Soldiers panted heavily, wiping blood from their faces and hands.
 
-Before the Wuzhou Squadron could catch its breath, rifle volleys suddenly rang out from the left flank where Luo Mao was responsible for guarding. Li Dong was startled. The troops just withdrawn instantly panicked.
+Before the Wuzhou Squadron could catch its breath, rifle volleys suddenly rang out from the left flank where Luo Mao guarded. Li Dong was startled. The just-withdrawn troops instantly panicked.
 
-"Don't panic!" Li Dong called Yang Erdong. "You are responsible for monitoring the frontal enemy here. 2nd Platoon, follow me!"
+"Don't panic!" Li Dong called Yang Erdong. "Monitor the frontal enemy here. 2nd Platoon, follow me!"
 
-Just when they actively sortied to destroy the shield carts, the "surprise troops" outflanking from Banbian Gang suddenly appeared on their exposed left flank, colliding right into the squad led by Luo Mao guarding there.
+While they'd sortied to destroy the shield carts, "surprise troops" outflanking from Banbian Gang had suddenly appeared on their exposed left flank, colliding directly into the squad led by Luo Mao guarding there.

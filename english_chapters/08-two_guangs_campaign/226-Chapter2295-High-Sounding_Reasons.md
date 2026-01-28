@@ -1,98 +1,100 @@
 # Chapter 2295: High-Sounding Reasons
 
-However he thought of another matter. Although he had no culture, but when wandering in childhood also listened to village old people telling ancient stories. Inside spoke: ancient big officials favored ministers to verify if Emperor’s favor trust not declining, would deliberately submit memorial, requesting some non-appropriate graces.
+Yet another thought occurred to him. He had no education, but in his wandering childhood, he had listened to old villagers tell ancient tales. One story spoke of how favored ministers, to test whether the Emperor still trusted them, would deliberately submit memorials requesting inappropriate favors.
 
-If Emperor agreed at once, indicating still favor trusting self; if agreed after hesitation, then favor trust already declined; if refused immediately, then arrived time of telling old returning home.
+If the Emperor agreed at once, it meant his favor and trust remained strong. If the Emperor agreed only after hesitation, then favor and trust had already declined. If the Emperor refused immediately, then it was time to retire and return home.
 
-Now self also could use Opera Chest matter to test Chief Xie’s view on self. If trusting added to self, then next he could slowly think method driving Jiang Yougong away.
+Now he could use the opera chest matter to gauge Chief Xie's view of him. If the Chief trusted him, then afterward he could slowly devise a way to dispose of Jiang Yougong.
 
-As for that matter self did in camp, Sanheui Camp basically was a closed camp; inside besides him, no second naturalized citizen cadre. Jiang Yougong responsible for outer perimeter supervision alert was breathing same air with him again. Retained personnel even no one dared provoke his tiger whisker—after all in camp he controlled life death great power. He even though did many things provoking civil anger inside. But captives and refugees at least livelihood no worry, wouldn't make trouble either.
+As for the things he had done in the camp—Sanhezu was essentially a closed camp. Aside from himself, there wasn't a second naturalized citizen cadre inside. Jiang Yougong, responsible for outer perimeter security, was breathing the same air as him. The retained personnel didn't dare touch a whisker on his tiger's hide either—after all, he held the power of life and death in the camp. Though he had done many things that stirred up resentment, the captives and refugees at least had food to eat and wouldn't make trouble.
 
-Thinking so he heart had bottom; today specially came to see Xie Erren.
+Thinking this through, he felt reassured. Today he had come specifically to see Xie Erren.
 
-"You have what work to report?"
+"What work do you have to report?"
 
-"Is like this." Liu Youwang on stool carefully landed seat (sat down), "I in Sanheui Camp, ran an Opera Troupe."
+"It's like this." Liu Youwang carefully perched on the edge of his stool. "I've set up an opera troupe at the Sanhezu Camp."
 
-"Oh, Opera Troupe?" This matter really fresh! Xie Erren thought.
+"Oh? An opera troupe?" This was genuinely novel! Xie Erren thought.
 
-"Yes," Liu Youwang heart thought this had to see if routine Chang Qingyun taught him correct or not, "In camp captives originally had wealthy family big house’s family kept opera troupe personnel; actors and musicians both have. Outside coming refugees also possess such people. I contemplated, camp holding so many captives and refugees; although Senate gives them rice eating, letting them work, after all is group gathering several thousand people; not giving them some pastime, suppressed long, afraid will make out chaos."
+"Yes." Liu Youwang silently hoped the routine Chang Qingyun had taught him would work. "The camp has captives who were formerly members of family opera troupes kept by wealthy households—we have both actors and musicians. Among the arriving refugees, there are such people as well. I figured, the camp holds several thousand captives and refugees. Though the Senate provides them with food and puts them to work, this is still a gathering of several thousand people. If we don't give them some recreation—kept suppressed too long, I'm afraid they might cause trouble."
 
-Speaking here he looked at Xie Erren’s face; seeing his face color as usual, then bolded guts continue saying: "So I contemplated organizing them, getting a troupe acting opera; one providing some pastime entertainment for everyone; two also can serve as a position of Art Literature Propaganda..."
+He paused to read Xie Erren's expression. Seeing no change, he boldly continued: "So I thought of organizing these people into a troupe to perform opera. First, it provides some entertainment for everyone. Second, it can serve as a vehicle for art and literature propaganda..."
 
-This scratched Xie Erren’s itchy place. He himself was Art Propaganda background; in Lingao also mixed quite a few mass propaganda activities; on this aspect could be called both having theory and having insight. After arriving Wuzhou also counted small test cow knife, did quite a few propaganda work—although condition limited, only could brush slogans on wall, get some newspaper reading board and so on.
+This struck exactly where Xie Erren itched. He himself came from an art propaganda background and had been quite involved in mass propaganda activities back in Lingao—he had both theory and practical insight in this area. After arriving in Wuzhou, he had made some modest efforts at propaganda as well—though limited by conditions to painting slogans on walls and setting up newspaper reading boards and the like.
 
-He carefully sized up sturdy man before eyes; how also couldn't imagine such a rough man surprisingly could think of "Art Literature Weapon"—truly person can't judge by appearance. Senate’s influence on people indeed powerful. Thinking here, Xie Erren sincerely praised Senate.
+He studied the sturdy man before him more carefully. He could never have imagined such a rough fellow would think of "art and literature as a weapon"—truly, one cannot judge a person by their appearance. The Senate's influence on people was powerful indeed. Thinking this, Xie Erren silently praised the Senate.
 
-Liu Youwang seeing Chief Xie staring at self, involuntarily calf belly soft, heart empty. Idea Chang Qingyun coming out for him was lifting Opera Troupe to "Art Literature Propaganda" this height to blow big blow special; definitely could move Chief Xie’s heart—because Australians loved this mouthful most.
+Liu Youwang, seeing Chief Xie staring at him, felt his calves go soft and his heart hollow. The idea Chang Qingyun had devised was to elevate the opera troupe to the level of "art and literature propaganda" and spin it grandly—this would certainly move Chief Xie, because the Australians loved this sort of thing.
 
-Chang Qingyun squatting in POW camp for a few years in Lingao, although on flesh body was torture to him; afterwards he also felt was a rare cultivation. In Lingao, he saw many things never thought in dream; through Hair thief’s words actions and policies, more or less could figure out their thoughts. Remembering self cognition to Hair thief before Chengmai Great Battle back then, simply innocent like child, yet was that arrogant big.
+Chang Qingyun had spent several years squatting in the POW camp in Lingao. Though it had been physical torture, he later came to see it as a rare cultivation. In Lingao, he had witnessed many things he had never dreamed of. Through the Australians' words, actions, and policies, he had more or less figured out their thinking. Recalling his understanding of the Australians before the Battle of Chengmai, he saw now how childishly naive he had been—and how arrogantly so.
 
-Now idea he came out for Liu Youwang, not only catered Hair thief’s taste, more was figuring out Chief Xie this person—this ability he originally was very big. These days in captive camp, either going out handling affairs or listening people talk, basically touched through Xie Hair’s temper hobby. So taking this idea out counted having arrow released at target. Dare not say hundred percent useful, but definitely could hit target.
+The idea he now offered Liu Youwang not only catered to the Australians' tastes but was also crafted from his reading of Chief Xie personally. He had considerable skill in this art. Over these days in the captive camp, whether going out on errands or listening to people talk, he had essentially mapped out Xie the Australian's temperament and preferences. The strategy was thus targeted with precision. He couldn't guarantee it would be a bullseye, but he was confident it would hit the mark.
 
-His judgment indeed not wrong; Xie Erren’s face floated out smile: "Your idea very good ah."
+His judgment proved correct. A smile floated across Xie Erren's face. "Your idea is quite good!"
 
-Seeing Chief Xie affirming self, Liu Youwang instantly had bottom energy; busy smiled: "This isn't Senate teaches well! Before I read newspaper, Chief said: 'Art Literature is weapon, is position; we want to occupy this position'..."
+Seeing Chief Xie affirm him, Liu Youwang's confidence surged. He eagerly smiled and said, "It's all because the Senate teaches so well! I read in the newspaper before—the Chief said: 'Art and literature are weapons, are positions. We must seize these positions'..."
 
-"Didn't expect your theory level relatively not bad." Xie Erren greatly appreciated him, "Since so, this Opera Troupe you continue running down. Pass some days wait situation stable, maybe want you to come Wuzhou city perform."
+"I hadn't expected your theoretical level to be quite respectable." Xie Erren was impressed. "Since that's the case, continue developing this opera troupe. In a few days, once the situation stabilizes, I may have you bring it to Wuzhou city for a performance."
 
-"Yes, I recently already called them rehearsing plays—but they currently only know old plays. Want to rehearse a few new plays but no script."
+"Yes. I've already had them rehearsing—but right now they only know the old plays. We want to rehearse some new ones, but we don't have the scripts."
 
-"This easy." Xie Erren this moment mood not bad, "Script, I pass a few days call Joint Logistics send over is fine."
+"That's easy." Xie Erren was in a good mood. "I'll have Joint Logistics send some scripts over in a few days."
 
-"Too thank Chief’s care." Liu Youwang made grateful expression, "Still has one matter."
+"Many thanks for the Chief's care." Liu Youwang put on a grateful expression. "There's one more thing."
 
-"You say."
+"Go ahead."
 
-"Opera Troupe recently rehearsing plays; but no Opera Chest; only can clear sing; no way to perform either." Liu Youwang said, "Later captive said, inside General Town Office has Opera Chests left by Eunuch guarding Wuzhou decades ago. I want to ask instruction, can or not lend these Opera Chests to Opera Troupe temporarily using?"
+"The troupe has been rehearsing recently, but without opera chests, they can only sing *a cappella*—there's no way to stage a proper performance." Liu Youwang explained, "Someone in the camp mentioned that decades ago, the Eunuch who guarded Wuzhou left behind opera chests inside the General Town Office. I wanted to ask if these chests could be temporarily loaned to the troupe."
 
-"Three Headquarters inside still have this?" This somewhat out of Xie Erren’s expectation. According to rule, these things all verified registered by Planning Commission. Part used on spot, part sent back. Opera Chest such thing priority was arranged at last; he applying use on spot had no relation; temporarily borrowing just register a bit then easy.
+"There are such things in the Three Headquarters?" This was somewhat beyond Xie Erren's expectation. By regulation, all such items had to be verified and registered by the Planning Commission—some allocated for local use, the rest shipped back. Opera chests were low priority, so approving them for local use was no issue; a temporary loan simply required a registration.
 
-"This matter easy; I come coordinate a bit then okay." Xie Erren nodded, "You tomorrow bring a few people find Zhao Fengtian, move boxes away is fine—temporarily count lending you use; later supplement procedure. But things you must watch well; can't miss broken."
+"That's easy enough. I'll coordinate it." Xie Erren nodded. "Come with a few people tomorrow and find Zhao Fengtian. You can move the chests out—consider them loaned for now; we'll formalize the paperwork later. But you must take good care of them. Don't let anything get damaged or lost."
 
-"Yes!" Liu Youwang attention said, "I will call them cherish well. Chief rest assured."
+"Yes!" Liu Youwang snapped to attention. "I'll have them handle everything with the utmost care. The Chief can rest assured."
 
-"I trust pass you." Xie Erren made admiring valuing expression, "Recently grain boat fleet wants to come; you must suppress camp well; cannot make out riot."
+"I trust you." Xie Erren assumed an expression of appreciation and esteem. "The grain fleet is due to arrive soon. You must keep the camp under control—there can be no riots."
 
 "Yes!"
 
-This Advisor Chang really TMD is a talent! Coming out from Xie Erren place Liu Youwang couldn't help patting his own thigh; now looked, not only Advisor Chang capable, Chief Xie also very trusting self; then getting Jiang Yougong killed pointing day can wait!
+*This Advisor Chang really is damn brilliant!* Coming out of Xie Erren's office, Liu Youwang couldn't help slapping his thigh. Now it was clear—not only was Advisor Chang capable, but Chief Xie trusted him too! Getting rid of Jiang Yougong was just a matter of time now!
 
-August 4th early morning, 1st Squadron boarded Inland River Fleet’s patrol boats departing from Wuzhou; started their patrol work. This time patrol different from past—usually patrol was same day return. But today, they had to patrol all way to Fengchuan County city, waiting there for grain transport boat fleet arrival then escort return.
+---
 
-Qian Duo stood on Nanxun Gate tower watching boat fleet spraying black smoke slowly leaving; heart somewhat seven up eight down. After 1st Squadron departed, Wuzhou’s defense strength was severely weakened. Huge a city pool only left company under his hand to guard.
+Early morning on August 4th, the First Squadron boarded the inland river fleet's patrol boats and departed from Wuzhou. They were beginning their patrol work. This time was different from usual—normally, patrols returned the same day. But today, they would patrol all the way to Fengchuan County seat, wait there for the grain transport fleet's arrival, and then escort it back.
 
-Gazing far at Sanheui; floating bridge locking river; cooking smoke curling in camp. Various barracks all transmitted bugle sound. Hearing bugle sound, Qian Duo’s heart slightly settled. This National Army 3rd Squadron at Sanheui now became only external aid he could rely on.
+Qian Duo stood on the tower of Nanxun Gate, watching the boat fleet spew black smoke as it slowly pulled away. His heart was uneasy. With the First Squadron's departure, Wuzhou's defense strength was severely weakened. Only his one company remained to guard this vast city.
 
-However he not relieved about 3rd Squadron and Jiang Yougong—Jiang Yougong’s old army habit very thick; subordinates mostly were reorganized Ming Army surrendered soldiers; saying going on battlefield killing combat power still had some; but discipline loose; tenacity insufficient. Key moment couldn't count on.
+Gazing into the distance at Sanhezu—the pontoon bridge locking the river, cooking smoke curling above the camp—he could hear bugle calls from the various barracks. The sound of the bugles settled his heart somewhat. The National Army Third Squadron at Sanhezu was now the only external support he could rely on.
 
-"Transmit my order; today Dezheng Gate not open; only open four gates. Various sentries and patrol teams reduce half."
+But he had little confidence in the Third Squadron and Jiang Yougong. Jiang Yougong's old army habits ran deep; his subordinates were mostly reorganized Ming Army soldiers. They had some combat effectiveness on a battlefield, but their discipline was slack and their tenacity insufficient. At a critical moment, they couldn't be counted on.
 
-Reducing city gate sentries and patrol teams, this way he could separate out a platoon people resting during day, shouldering night duty work.
+"Pass my order: today Dezheng Gate stays closed. Open only the four gates. Reduce sentries and patrol teams by half."
 
-Gap of sentry and patrol work, he gave to "Security Team" under command of Zheng Ergen to responsible. These people mostly were retained yamen runners and poor people recruited on spot; purely acting as Door God maintaining security.
+By reducing the city gate sentries and patrol teams, he could free up a platoon to rest during the day and take on night duty.
 
-"Battalion Commander Zhu, you look we now still have what place needing strengthen?" Qian Duo asked.
+The gap in sentry and patrol work would be filled by the "Security Team" under Zheng Ergen's command. These men were mostly retained yamen runners and locally recruited poor folk—they were purely door guards, maintaining basic security.
 
-Zhu Si now empty had a National Army Battalion Commander title, actually became a bare pole commander. In city he only left two guards and a messenger able to command directly. Whole day he accompanied Qian Duo wandering everywhere; following behind shouting one calling six.
+"Battalion Commander Zhu, in your view, where else do we need to strengthen?" Qian Duo asked.
 
-Wuzhou Integrated Squadron victory reports frequently transmitted; Li Dong and his subordinates' names appeared on army internal commendation notice many times; making Zhu Si looking very uncomfortable.
+Zhu Si now held the title of National Army Battalion Commander in name only—in reality, he had become a commander without troops. In the city, he had only two guards and a messenger at his direct disposal. All day he trailed along behind Qian Duo, roaming everywhere, shouting orders without authority.
 
-"Li Dong this brat true TMD walks dog shit luck!" Zhu Si now had huge sense of crisis; Li Dong’s squadron performance so eye snatching; holding merit receiving reward promotion was very fast thing; maybe not long would adapt into Fubo Army—such thing already had precedent on Two Guangs battlefield; he then was dignified Fubo Army Captain; before self then could shake up... thinking past self had quite a few difficult places to him; in case developed want to revenge self how to do?
+Victory reports from the Wuzhou Integrated Squadron arrived frequently. Li Dong and his subordinates' names appeared repeatedly on internal commendation notices—a sight that made Zhu Si deeply uncomfortable.
 
-However, he secretly comforted self again, soldier danger war fierce; this North Guangdong battle ten days half month couldn't finish either; maybe what time directly small life sent—National Army casualty not small; from time to time had news of certain squadron whole army annihilated or heavy damaged.
+"That bastard Li Dong really stepped in dog shit luck!" Zhu Si now felt a profound sense of crisis. Li Dong's squadron was performing so brilliantly that meritorious promotion would come swiftly. Perhaps before long he would be integrated into the Fubo Army and become a proper Fubo Army captain. Then, remembering how Zhu Si had made things difficult for him in the past, what if he sought revenge?
 
-Compare down, self staying in Wuzhou actually peaceful no matter; as long as war affairs smooth, finally arguing merit awarding reward promotion always couldn't lack him; thinking here he open minded again.
+But then he secretly consoled himself: military life was dangerous. This North Guangdong campaign wouldn't end in ten days or half a month. Perhaps at some point, Li Dong might simply lose his life—the National Army's casualties weren't small, and news of squadrons being annihilated or severely damaged came from time to time.
 
-Hearing Qian Duo ask, he immediately answered: "Company Commander Qian arranged very in place. I have nothing good to supplement. Night military force although few, but we have city wall city gate; after closing city gate don't say small group enemy, even several thousand Ming Army can't rush break."
+By comparison, staying in Wuzhou was actually peaceful and uneventful. As long as the war went well, when it came time to award merits and promotions, they wouldn't forget him. Thinking this, his spirits lifted again.
 
-This didn't count exaggeration. Wuzhou city wall after repair, any enemy wanting to attack city under Fubo Army fire power, had to equip cannons and various siege machines.
+Hearing Qian Duo's question, he immediately replied: "Company Commander Qian has arranged everything very thoroughly. I have nothing to add. Although our nighttime forces are few, we have the city walls and gates. Once the gates are closed—never mind a small enemy force—even several thousand Ming troops couldn't break through."
 
-"Surrounding situation?"
+This wasn't an exaggeration. After repairs, Wuzhou's city walls were such that any enemy attempting an assault would need cannons and siege equipment to face the Fubo Army's firepower.
 
-"Detective Team came back last night reporting: within 15 kilometers from city didn't discover large group enemy."
+"What about the surrounding situation?"
 
-Qian Duo didn't speak; truth to tell if responsible for scouting was Fubo Army, then he indeed was reassured; but Detective Team this kind fish dragon mixed retained personnel team, truly made people hard to trust.
+"The Detective Team returned last night and reported: within fifteen kilometers of the city, no large enemy forces were detected."
+
+Qian Duo said nothing. Truth be told, if the Fubo Army had been responsible for scouting, he would have felt reassured. But the Detective Team was a motley crew of retained personnel—hard to trust.
 
 ---
 **Next Update:** Volume 7 - Guangzhou Governance Part 499

@@ -1,101 +1,99 @@
 # Chapter 2132 - Contributing Money and Effort
 
-Weighing and Commission Firms (*Pingma Hong*) were spontaneously generated in upstream and downstream trade. They did not have official brokerage licenses from the Ministry of Revenue, so they did not possess monopolistic privileges. Competition among the various firms was fierce, necessitating support from traveling merchants known as "water guests." Therefore, during the process of purchasing and selling on behalf of clients, they often needed to advance payments for goods, making it a business that required considerable capital.
+The Weighing and Commission Firms—*Pingma Hong*—emerged organically from the river trade flowing up and down the waterways. Without official brokerage licenses from the Ministry of Revenue, they possessed no monopolistic privileges. Competition among firms ran fierce, their survival dependent on cultivating relationships with traveling merchants known as "water guests." The business demanded substantial capital, as purchasing and selling on clients' behalf often required advancing payment for goods.
 
-Most of the local grain merchants' origins could also be traced back to the Weighing and Commission Firms. After years of intermediary trading, they became very familiar with upstream and downstream clients. Once they accumulated enough capital, they specialized in one line of business. However, most of these grain merchants still maintained their old habits, waiting for "water guests" from Guangxi to bring grain to their doorsteps to stockpile, and then waiting for "water guests" from Guangdong to come and purchase. The only difference was that they earned the price difference instead of a commission.
+Many local grain merchants traced their lineage back to these Pingma Hong. Years of intermediary trade had made them intimately familiar with clients both upstream and downstream. Once they'd accumulated sufficient capital, they specialized—though most retained their old habits, passively waiting for Guangxi "water guests" to deliver grain to their doorsteps for storage, then waiting again for Guangdong "water guests" to arrive for purchase. The only shift was from earning commissions to capturing the price differential.
 
-Before entering the city, Xie Erren had roughly read the booklet "Overview of Wuzhou" compiled by the External Intelligence Bureau. This booklet gave a detailed introduction to Wuzhou's geography, culture, commerce, customs, livelihood, society, and "key figures," giving the cadres taking over the city a rough understanding of their subjects.
+Before entering the city, Xie Erren had studied the "Overview of Wuzhou" compiled by the External Intelligence Bureau. The booklet provided detailed intelligence on Wuzhou's geography, culture, commerce, customs, livelihood, society, and key figures—equipping cadres taking over the city with a working knowledge of their new subjects.
 
-Benefiting from this booklet, he was very clear about the backgrounds of the "village worthies" attending the meeting, including their family members, reputations, approximate financial status, and so on. Generally speaking, the "village worthies" of Wuzhou were not much different from those in other places. Apart from a few with extremely good or bad reputations, most belonged to the level where they could be benevolent as long as it didn't harm their own interests: when encountering natural disasters, they would donate money and rice to provide porridge for relief, but this didn't stop them from using the opportunity to annex land and buy servants on a large scale; they would donate coffins for corpses on the road, but also have tenants arrested and beaten in the Yamen to force rent payments.
+Thanks to this dossier, he possessed clear understanding of the "village worthies" in attendance: their family connections, reputations, approximate wealth, and more. Generally, Wuzhou's notables differed little from those elsewhere. Excepting the exceptionally virtuous or corrupt, most practiced benevolence only when it didn't conflict with self-interest. They'd donate money and grain for disaster relief while simultaneously exploiting the crisis to annex land and acquire servants. They'd provide coffins for roadside corpses while dispatching bailiffs to arrest and beat tenants into paying rent.
 
-These bureau directors could not actually count as true "village worthies"—not a single local gentry family had come. Such reserve was excusable, but among the merchants who came, there were quite a few "connections" and "white gloves" of the Wuzhou gentry. For example, although no one from the Wu Zhixiang family, which had deep connections with the Senate, served as a bureau director, Director Da Xinxuan came from their patronage. He was essentially an agent.
+These Bureau directors couldn't truly count as "village worthies"—not a single gentry family had sent representatives. Such caution was understandable, though among the merchants who did attend, quite a few served as "connections" and "white gloves" for Wuzhou's gentry. Though no one from the Wu Zhixiang family—which maintained deep ties with the Senate—served as director, Director Da Xinxuan operated under their patronage. He was, in essence, their agent.
 
-"Sitting on the fence!" Xie Erren secretly despised them in his heart, but right now his forces were thin, and he lacked grain and money, so he had to make use of them. Therefore, he had to socialize and exchange pleasantries with them, highly praising the directors for their "public-spiritedness and righteousness" and their "benevolent acts" like setting up porridge sheds and collecting corpses. Then, he changed the subject and said:
+*Fence-sitters!* Xie Erren thought with private contempt. But his forces remained thin, grain and money scarce—he needed to utilize them. So he socialized, exchanged pleasantries, lavishly praised the directors for their "public-spiritedness and righteousness," their "benevolent acts" in establishing porridge stations and collecting corpses. Then he pivoted:
 
-"Now Wuzhou has encountered this great calamity, and devastation meets the eye inside and outside the city. The people are suffering from hunger and cold—all these rely on you gentlemen to contribute your efforts."
+"Wuzhou has suffered tremendous calamity. Devastation confronts the eye inside and outside the city walls. The people endure hunger and cold—all this requires your dedicated efforts, gentlemen."
 
-Everyone looked at each other uneasily, knowing the meaning behind his words. But since Director Xie had both guns and big labels, they had to go along with him. They responded immediately, "These are all things we should do."
+Uneasy glances exchanged around the room. Everyone understood the subtext. But since Director Xie commanded both guns and moral authority, compliance was required. "These are duties we gladly undertake," they chorused.
 
-"That old fellow Xiong Wencan set a fire when he fled, leaving the city dilapidated and the people with no means of livelihood..." Xie Erren first clarified the issue of responsibility: *It wasn't me who caused this mess requiring you to pay up, it's Xiong Wencan's fault.* "I've thought about it, and there are several urgent matters to be done right now."
+"That scoundrel Xiong Wencan set fires when he fled, leaving the city ruined and the people without livelihoods..." Xie Erren established responsibility first: *This mess requiring your money wasn't my doing—blame Xiong Wencan.* "I've identified several urgent matters demanding immediate attention."
 
-As he was speaking, an orderly suddenly reported: The pai-jia heads of the twelve *she* (districts) inside Wuzhou city and the eleven *fang* (wards) outside the city had arrived and were waiting for orders outside.
+As he spoke, an orderly suddenly announced that the *pai-jia* heads from the twelve *she* (districts) within Wuzhou city and eleven *fang* (wards) outside had arrived and awaited orders.
 
-"Invite them in as well to discuss matters together."
+"Show them in. They'll join our discussion."
 
-At his order, all the pai-jia heads entered. Most of the pai-jia heads were small businessmen with a touch of the underworld about them. They were familiar with the people on their turf and could deal with the Yamen; they were out-and-out "Earth Lord" local bullies.
+At his command, the *pai-jia* heads filed in. Most were small businessmen with underworld connections—men who knew their territories intimately and could navigate yamen politics. They were "Earth Lords" through and through, classic local strongmen.
 
-The "Earth Lords" knew that no matter which dynasty's emperor was in power, they were indispensable for handling affairs. As for money, they couldn't be counted as big households, so they didn't have the apprehensive expressions of the bureau directors. Upon entering, they knelt and kowtowed in a chaotic manner.
+These Earth Lords understood that regardless which dynasty's emperor reigned, their role remained indispensable. Since they couldn't qualify as major households financially, they lacked the apprehensive expressions worn by the Bureau directors. They entered in disorderly fashion, dropping to kneel and kowtow.
 
-"Everyone get up, my Senate doesn't practice this." Although Xie Erren said this, he actually enjoyed it quite a bit in his heart.
+"Rise, everyone. The Senate doesn't practice such formalities." Though Xie Erren said this, he privately enjoyed it immensely.
 
-"...The things to be done right now are: first, public security; second, city defense; third, relief. Once these three are done, the rest will be easy."
+"The immediate priorities are threefold: first, public security; second, city defense; third, relief. Accomplish these three, and the rest follows naturally."
 
-There was nothing unusual about these three items. The Rehabilitation Bureau had met privately yesterday and come up with an eleven-point rehabilitation plan. These three points were included. It was just that since the Australian Prefect Master said so, everyone echoed in unison: "The Master is right!"
+Nothing remarkable in these priorities. The Rehabilitation Bureau had convened privately yesterday, producing an eleven-point rehabilitation plan that included these three elements. Still, since the Australian Prefect Master had spoken, everyone echoed in unison: "The Master speaks wisely!"
 
-"How many refugees are currently in the city?"
+"How many refugees currently reside in the city?"
 
-Master Qiao, Deputy Director of the Rehabilitation Bureau, hurriedly took out a folded paper from his sleeve—the Rehabilitation Bureau distributed porridge on the streets and gave out bamboo tallies daily. From these numbers, they could roughly estimate the refugee population.
+Master Qiao, the Rehabilitation Bureau's Deputy Director, hastily extracted a folded paper from his sleeve. The Bureau distributed porridge daily and issued bamboo tallies—from these tallies they could estimate the refugee population roughly.
 
-"Based on the bamboo tallies distributed at various porridge sheds, there are about four thousand odd mouths."
+"Based on bamboo tallies distributed at various porridge stations, approximately four thousand mouths."
 
-"Has it decreased by a lot?" Xie Erren breathed a sigh of relief when he heard there were only four thousand-plus people, because before entering the city, he had heard Zhu Mingxia say that over ten thousand refugees were rounded up leaving the city at night.
+"It's decreased substantially?" Xie Erren exhaled with relief at hearing only four thousand-plus, having been told by Zhu Mingxia before entering that over ten thousand refugees had been rounded up leaving the city at night.
 
-"Master, this is quite a lot." Master Qiao looked miserable: In the Tianqi-Chongzhen years, the entire Cangwu County only had 6,698 households and 27,424 people—and this included a significant portion of the rural population.
+"Master, this is still quite substantial." Master Qiao looked pained. During the Tianqi-Chongzhen years, all of Cangwu County contained merely 6,698 households and 27,424 people—including a significant rural portion.
 
-Although the Yellow Register numbers were inaccurate, and Wuzhou had a large migrant population due to being a regional commercial center, the population of the city proper plus the suburbs was only thirty to forty thousand. The ratio of over four thousand refugees was already very high.
+Though Yellow Register figures were notoriously inaccurate, and Wuzhou attracted large migrant populations as a regional commercial hub, the city proper and suburbs combined held only thirty to forty thousand souls. Four thousand-plus refugees represented an alarmingly high proportion.
 
-After Wuzhou was liberated, refugees who left the city and had homes to return to or relatives and friends to rely on had already dispersed one after another. Those remaining were all homeless refugees with empty hands. Just satisfying the food and shelter needs of these people would take a lot of effort.
+After liberation, refugees with homes to return to or relatives to shelter them had already dispersed. Those remaining were entirely destitute, empty-handed and homeless. Simply meeting their basic food and shelter needs would demand considerable effort.
 
-He glanced at the naturalized Deputy Director who had come to take over Wuzhou with him and asked:
+He glanced at the naturalized Deputy Director who'd accompanied him to assume control of Wuzhou. "Is an exact count being conducted?"
 
-"Is the exact number being tallied?"
+"It's underway, but the refugees are widely scattered—it'll take several days," the naturalized Deputy Director replied. "Master Qiao's estimate shouldn't be far off, though..."
 
-"It is being tallied, but the refugees are very scattered, so it will take a few days," the naturalized Deputy Director said. "But the number Master Qiao mentioned is not too far off..."
+"Where are the refugees sheltering now?"
 
-"Where are the refugees living now?"
+"Most are scattered in temple shelters throughout the city. Some have been housed at the drill grounds outside. However, quite a few remain on the streets."
 
-"Most are scattered in shelters in various temples within the city. In addition, some have been taken into the drill grounds outside the city. However, there are still quite a few refugees on the streets."
+Two drill grounds existed outside Wuzhou: Sanhezui and Ximatan. Both featured barracks from the original Ming garrison. Ximatan's drill ground, situated 2.5 kilometers west on the Xun River's north bank, lay relatively distant from the urban center and now served as Zhu Quanxing's 3rd Battalion station. Sanhezui's drill ground functioned as a temporary detention center for Ming army prisoners, though Zhu Quanxing had also sheltered some refugees there.
 
-There were two drill grounds outside Wuzhou city: Sanhezui and Ximatan. Both had barracks for the original Ming garrison troops. The drill ground at Ximatan, located on the north bank of the Xun River 2.5 kilometers west of the city, was relatively far from the urban area and was now the station for Zhu Quanxing's 3rd Battalion. The drill ground at Sanhezui was used as a temporary detention center for Ming army prisoners, and Zhu Quanxing had also sheltered some refugees there.
+"All temples and large buildings capable of sheltering refugees—inside and outside the city—must open their doors wide," Xie Erren declared firmly. "Not one refugee sleeps on the streets. Understood?!"
 
-"Whatever temples or other large buildings inside and outside the city can shelter refugees must open their doors wide," Xie Erren emphasized. "Not a single refugee is allowed to sleep on the streets, understood?!"
-
-Refugees living on the streets hindered traffic and posed hygiene and security risks.
+Street-dwelling refugees obstructed traffic and created hygiene and security hazards.
 
 "Yes!"
 
-"That's good." Xie Erren nodded and pointed to the secretary next to him. "Bring out the responsibility zone map."
+"Excellent." Xie Erren nodded, then gestured to his secretary. "Display the responsibility zone map."
 
-The secretary immediately hung up a map. It was a map of Wuzhou city proper, with neighborhoods inside and outside the city marked clearly. Different sized areas were outlined in different colors. Looking closely, each area was numbered with Heavenly Stems and Earthly Branches, and a name was written next to it. Upon closer inspection, they were the names of the "village worthies" from the Rehabilitation Bureau.
+The secretary promptly hung a map—one depicting Wuzhou city proper, with neighborhoods inside and outside the walls clearly delineated. Different-sized areas were outlined in various colors. Closer inspection revealed each area numbered with Heavenly Stems and Earthly Branches, with names inscribed alongside. Further scrutiny showed these were the names of the Rehabilitation Bureau "village worthies."
 
-While everyone was puzzled, Xie Erren explained, "These are your responsibility zones. Since you've come out to work for the people of Wuzhou, naturally you can't just sit and talk in the Rehabilitation Bureau—these are your responsibility zones; each person is responsible for one area. Don't be afraid; I will naturally send cadres to take charge. You and the pai-jia heads in your district just need to cooperate well with the cadre."
+While puzzlement rippled through the audience, Xie Erren explained: "These are your responsibility zones. Since you've stepped forward to serve Wuzhou's people, you naturally can't merely sit and converse in the Bureau offices. Each person assumes responsibility for one area. Don't worry—I'll assign cadres to take charge. You and the *pai-jia* heads in your districts need only cooperate effectively with the cadre."
 
-Xie Erren chuckled a few times, then continued:
+Xie Erren chuckled, then continued:
 
-"Each of you must take responsibility for your assigned area and patrol with the pai-jia heads of each *she* and *fang*. If you see refugees sleeping in the open, regardless of whether they are willing or not, they must be registered and sent to various shelters. If there are any omissions discovered by me, I will send them to your homes and ask you to support them like old masters..."
+"Each of you bears responsibility for your assigned zone and will patrol alongside the *pai-jia* heads of each *she* and *fang*. Any refugees you encounter sleeping in the open—regardless of their willingness—must be registered and sent to shelters. If I discover any oversights, I'll direct those refugees to your homes and ask you to support them as honored guests..."
 
-This startled everyone, and they hurriedly expressed that they would do their utmost. The bureau directors looked miserable one by one. *What kind of cadre is this? He's clearly an avatar of Master Xie. We might not see Master Xie once in a few days, but this 'cadre' assigned to the zones is someone we'll have to see all the time.*
+This provoked alarm, and they hastily pledged their utmost efforts. The Bureau directors' faces turned uniformly miserable. *What kind of cadre is this? Clearly Master Xie's proxy. We might not see Master Xie for days, but this zone-assigned 'cadre' we'll have to face constantly.*
 
-Next, Xie Erren announced several rules:
+Next, Xie Erren announced several regulations:
 
-After refugees are taken in, they will be registered and issued "Refugee Certificates." Refugees are not allowed to move around at will and must return to the shelters to spend the night. During the day, they will act collectively in groups of ten based on "Work Dispatch Slips."
+Upon intake, refugees would be registered and issued "Refugee Certificates." Refugees were forbidden to wander freely and must return nightly to their assigned shelters. During daylight, they'd operate collectively in groups of ten according to "Work Dispatch Slips."
 
-The core policy of the relief and rehabilitation work was relief through work.
+The core rehabilitation policy: relief through work.
 
-Starting immediately, relief stations would only provide two meals of thin porridge a day to the old, young, sick, disabled, and pregnant. All refugee men and women over thirteen years old would be organized into labor teams to work. Rations would be issued based on days worked.
+Effective immediately, relief stations would provide only two thin porridge meals daily to the elderly, young, sick, disabled, and pregnant. All refugee men and women above thirteen years would be organized into labor teams. Rations would be issued based on days worked.
 
-Rations were calculated based on work points, implementing a system of more pay for more work. However, each person had to complete a certain basic workload every day in exchange for rations; the excess part could be settled in cash.
+Rations would be calculated via work points, implementing a "more work, more pay" system. However, each person must complete a basic daily workload in exchange for rations; excess labor could be compensated in cash.
 
-If refugees were simply driven to work, there would inevitably be situations of showing up but not putting in effort. Xie Erren didn't have that much manpower for supervision and management. Abusing local clerks and runners would inevitably intensify conflicts. In the end, it was decided to focus on "economic incentives."
+If refugees were simply compelled to work, inevitably some would show up without genuine effort. Xie Erren lacked manpower for extensive supervision and management. Overusing local clerks and runners would intensify conflicts. Ultimately, he'd decided to emphasize "economic incentives."
 
-Work points had specific workload requirements. This system had been implemented in Lingao for many years. There were mature precedents to query regarding how many work points should be assigned for what kind of work and how much workload, which was very convenient. This was also the confidence behind Xie Erren's dare to implement the work point system.
+Work points carried specific workload requirements. The system had operated in Lingao for years. Mature precedents existed for determining work point allocations and corresponding workloads—highly convenient. This established framework emboldened Xie Erren to implement the work point system.
 
-Xie Erren was actually calculating: *After the city wall is repaired and the ruins cleaned up, road and sewer renovation projects will begin. Anyway, the war has just stopped, and the common people don't dare to make trouble, avoiding a situation like Liu Xiang in Guangzhou, where demolition and construction for half a year led to complaints everywhere.*
+Xie Erren calculated privately: *Once the city walls are repaired and ruins cleared, we'll commence road and sewer renovation projects. The war just ended—the common people won't dare cause trouble yet. We'll avoid Liu Xiang's Guangzhou debacle, where six months of demolition and construction generated universal complaints.*
 
-Since the refugees contributed their labor, the required money and grain would naturally require the Rehabilitation Bureau to "contribute money if you have money."
+Since refugees would contribute labor, the required money and grain would naturally necessitate the Rehabilitation Bureau to "contribute funds according to means."
 
-"I know that none of you have mountains of gold or silver at home, nor mountains of rice or flour. Although it is to benefit the hometown, it's not building your own house after all, so taking it out still hurts..."
+"I recognize none of you possess mountains of gold or silver, nor mountains of grain. Though this benefits the hometown, it's not your personal property after all—parting with resources stings..."
 
-"Dare not, dare not." The village worthies said "dare not" while frowning in pain.
+"We wouldn't dare hesitate, wouldn't dare." The village worthies protested even as their faces creased with pained reluctance.
 
-"Therefore, this money and grain will be shared by all the big households in the city—the common people have a thin foundation and can't stand the tossing, so I have to ask you gentlemen to bear more," Xie Erren said.
+"Therefore, this expense will be shared among all major households in the city. Common folk lack resources to bear such burdens—I must ask you gentlemen to shoulder the greater load," Xie Erren concluded.

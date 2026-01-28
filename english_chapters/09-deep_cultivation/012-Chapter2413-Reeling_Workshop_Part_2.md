@@ -1,93 +1,93 @@
 # Chapter 2413: Reeling Workshop (II)
 
-The so-called Cold Basin Method didn't mean reeling silk in cold water. Rather, the former one-pot-for-all process of cooking cocoons and reeling silk was changed into two separate procedures. The specific process was to prepare two basins. One was a hot basin for cooking cocoons, placed on the stove and directly heated with firewood, used to cook the silkworm cocoons. Unlike the cooking basin in the Fire Silk Method, this basin should be small, cooking small amounts of cocoons multiple times with a small pot. This could cook them thoroughly and evenly, avoiding uneven cooking from putting in too many cocoons.
+The so-called Cold Basin Method didn't mean reeling silk in cold water. Rather, the former single-pot process for cooking and reeling cocoons was separated into two distinct stages. Two basins were prepared: a hot basin for cooking cocoons, placed directly over the stove and heated with firewood, and a cold basin for reeling. Unlike the cooking basin in the Fire Silk Method, the hot basin was kept small, cooking small batches of cocoons multiple times. This ensured thorough, even cooking and avoided the uneven results that came from overcrowding.
 
-Although called "cold," the water temperature in the basin was actually also very high, just slightly lower than the hot basin. The cooked cocoons were transferred to the cold basin for reeling.
+Though called "cold," the water temperature in the second basin was actually quite high—just slightly lower than the hot basin. The cooked cocoons were transferred there for reeling.
 
-Cold Basin silk was of much better quality than Fire Silk. The ancients said: "Bright and lustrous, tough and colored." It was a top product among raw silk. The Huzhou silk that Chen Lin admired so much was also mostly reeled using this method.
+Cold Basin silk was far superior to Fire Silk. As the ancients put it: "Bright and lustrous, tough and colored." It ranked among the finest raw silk. The Huzhou silk that Chen Lin admired so greatly was mostly reeled using this method.
 
-Fenshenghe had always used the Fire Silk Method for reeling. It wasn't that Chen Lin and his father didn't know about the Cold Basin Method, but adopting the Cold Basin Method had considerable technical difficulty.
+Fenshenghe had always used the Fire Silk Method. It wasn't that Chen Lin and his father were ignorant of the Cold Basin Method—adopting it simply posed considerable technical challenges.
 
-Although the Cold Basin Method was good, the technical essentials were more complex than Fire Silk. The difficulty lay in how to heat and insulate the cold basin. The cold basin couldn't be directly heated with firewood, yet the temperature uniformity had to be ensured during reeling. Usually it shared a stove with the hot basin for cooking cocoons, using the residual heat from heating the hot basin for warming. The outside also had to be plastered with yellow mud for insulation. Whether for the fire tender or the reeler, both had to be very experienced in temperature control.
+Though superior, the Cold Basin Method demanded more complex technique. The difficulty lay in heating and insulating the cold basin. It couldn't be directly heated with firewood, yet the temperature had to remain uniform during reeling. Usually it shared a stove with the hot basin, drawing residual heat for warmth. The exterior was plastered with yellow mud for insulation. Both the fire tender and the reeler needed extensive experience in temperature control.
 
-Chen Lin couldn't understand those pipes and valves, but he could understand that one workstation had two basins. As soon as the Australians came, they directly changed it to the Cold Basin Method!
+Chen Lin couldn't make sense of the pipes and valves, but he understood what two basins at each workstation meant. The moment the Australians arrived, they had switched directly to the Cold Basin Method!
 
 "Chief, is this the Cold Basin Method?"
 
-"Correct, you know?" Li Yao'er nodded approvingly.
+"Correct. You're familiar with it?" Li Yao'er nodded approvingly.
 
-"Know. My late father also thought about using the Cold Basin Method, only..." Chen Lin's father had suffered from introducing silkworm seeds in his early years and was hesitant about improving the reeling. Besides, introducing the Cold Basin Method required adding equipment and increasing manpower—all expenses.
+"I am. My late father considered adopting it, only..." Chen Lin's father had suffered setbacks when introducing silkworm seeds in his early years and had grown hesitant about further improvements. Besides, the Cold Basin Method required additional equipment and manpower—all expenses.
 
-"Introducing new technologies and varieties requires taking risks. Your father's hesitation was normal," Li Yao'er said. "However, the Cold Basin Method is already very outdated technology for us..."
+"Introducing new technologies and varieties always carries risk. Your father's hesitation was understandable," Li Yao'er said. "However, for us, the Cold Basin Method is already quite outdated..."
 
-Chen Lin thought to himself this woman spoke with such big airs! Li Yao'er was completely unaware and said with great interest: "In our Australian silk factories, cocoon cooking uses a dedicated large pot that can cook tens of thousands of cocoons at once. It can cook them thoroughly without overcooking, and every cocoon is cooked evenly. After cooking, reeling is done in a centralized manner, no need to beat basins while reeling like this. Speaking of this silk car, Fenshenghe's old car can only reel one end. The new car we retrofitted this time can only reel three ends. But in the best silk factories in Australia, one silk car can reel 400 ends. With so many silk ends, only three skilled workers are needed to watch over them..."
+Chen Lin thought her tone rather presumptuous. Li Yao'er, oblivious to his skepticism, continued with evident enthusiasm: "In Australian silk factories, cocoon cooking uses a dedicated large pot that processes tens of thousands of cocoons at once. Every cocoon is cooked evenly without overcooking. After cooking, reeling is done centrally—no need to beat basins while reeling like this. Speaking of silk cars, Fenshenghe's old model can only reel one end at a time. The retrofitted version we installed can manage three ends. But in the best Australian silk factories, one silk car can reel four hundred ends. With that many, only three skilled workers are needed to watch over them..."
 
-Li Yao'er spoke with shining eyes, but Chen Lin was full of suspicion. *The bragging about Australia isn't done this way, is it?* One person reeling over one hundred ends—what kind of person could manage that! Besides, a car driving 400 ends, even with supernatural strength couldn't pull it. From his experience, one reeling worker doing foot-pedal reeling, three ends was the maximum.
+Li Yao'er's eyes shone as she spoke, but Chen Lin was full of doubt. *Surely she's not bragging about Australia like this?* One person reeling over a hundred ends—what kind of superhuman could manage that! Besides, a car driving four hundred ends would require supernatural strength to pull. In his experience, one reeling worker doing foot-pedal reeling could handle three ends at most.
 
-Seeing the Chief speaking happily, Chen Lin dared not interrupt. It was only when Li Yao'er's words briefly paused that he quickly interjected: "Chief, what are these iron pipes for?"
+Seeing the Chief speaking so happily, Chen Lin dared not interrupt. Only when Li Yao'er paused briefly did he quickly interject: "Chief, what are these iron pipes for?"
 
-"These are all pipelines for transporting hot water."
+"Pipelines for transporting hot water."
 
-Li Yao'er explained a few sentences, and Chen Lin immediately understood: the biggest improvement of this reeling workshop's so-called "Jiqi Dajie" was not the reeling car or the basin-beating mode. In essence, it was just an improved version of the Cold Basin Method. But compared to the past's laborious, smoky one-stove-two-basin style basin-beating method, hot water was now all supplied by one big furnace, eliminating the stove. The reeling that could previously only be done one household one car could now be centralized, and water from one furnace had uniform heat, no longer requiring a dedicated person to tend the fire and control temperature.
+Li Yao'er explained briefly, and Chen Lin immediately grasped the principle: the biggest improvement in this reeling workshop's so-called *Jiqi Dajie* wasn't the reeling car or the basin-beating method. In essence, it remained an improved Cold Basin system. But compared to the old laborious, smoke-filled one-stove-two-basin approach, hot water now flowed from a single large furnace, eliminating individual stoves. What had previously required one household operating one car could now be centralized. Water from one furnace maintained uniform heat, removing the need for a dedicated person to tend the fire and control temperature.
 
-In the past, their own reeling room had ten stoves running ten cars simultaneously, and everyone thought it was quite impressive. In comparison, the Australians had set up one hundred cars in one go! Looking at this setup, all the cocoons in Xiangshan could be reeled here without problem. Was this scale spread too widely? Where would so many cocoons come from for her to reel? Besides, where would the workers come from?
+In the past, their own reeling room had run ten stoves powering ten cars simultaneously, which everyone considered quite impressive. By comparison, the Australians had set up one hundred cars in a single facility! Looking at this scale, all the cocoons in Xiangshan could be reeled here without a problem. But was this expansion too ambitious? Where would so many cocoons come from? And where would the workers come from?
 
-Naturally, his sycophantic Second Uncle would certainly act like a fox exploiting the tiger's might, using the Australians' name to force villagers to sell their cocoons to Fenshenghe, and would probably force villagers to work in the factory. The various drawbacks were self-evident. Thinking of this, he couldn't help but break out in cold sweat on his forehead.
+His sycophantic Second Uncle would certainly exploit the Australians' name, forcing villagers to sell their cocoons to Fenshenghe and probably conscripting them to work in the factory as well. The potential abuses were obvious. Cold sweat broke out on Chen Lin's forehead at the thought.
 
-Li Yao'er saw his face suddenly change and felt strange, asking: "What's wrong with you?"
+Li Yao'er noticed his expression change. "What's wrong?"
 
-"Mm-mm, nothing..." Chen Lin quickly covered up, "I'm just worried there won't be that many cocoons to collect when the time comes."
+"Nothing, nothing..." Chen Lin quickly covered. "I'm just worried there won't be enough cocoons to collect when the time comes."
 
-"As for that, I'm preparing to raise silkworms myself as soon as spring begins," Li Yao'er said. "I've also prepared the place for raising silkworms. Raise some myself, purchase some more. Your Second Uncle said Nansha Village will fully help Fenshenghe. Every family's cocoons will all be sold to the factory, the women will also come help raise silkworms and pick mulberry leaves, and the mulberry leaves from each family in the village will prioritize Fenshenghe's use..."
+"As for that, I'm preparing to raise silkworms myself once spring arrives," Li Yao'er said. "I've already set up the silkworm-raising facility. We'll raise some ourselves and purchase more. Your Second Uncle said Nansha Village will fully support Fenshenghe. Every family's cocoons will be sold to the factory, the women will come help raise silkworms and pick mulberry leaves, and each family's mulberry leaves will prioritize Fenshenghe's needs..."
 
-Chen Lin secretly cried bitter in his heart, thinking *Second Uncle, you won't stop until you ruin Fenshenghe's reputation, will you!* If this keeps up, can our branch still gain a foothold in the village in the future?
+Chen Lin cursed inwardly. *Second Uncle, you won't rest until you've completely ruined Fenshenghe's reputation, will you!* If this continued, how could their branch ever gain a foothold in the village again?
 
-"...However, I don't agree with his approach. We are running a factory doing business, not government officials dispatching corvée. We can't rely on orders to make people do things. Don't you think so?"
+"...However, I don't agree with his approach. We're running a factory and doing business, not acting as government officials dispatching corvée labor. We can't rely on orders to make people work. Don't you agree?"
 
 "Yes, yes, the Chief is wise!" Chen Lin nodded repeatedly.
 
-"So my idea is to adopt cooperatives. This method we have used for a long time in Hainan. Everyone pools shares to raise silkworms."
+"So my idea is to adopt cooperatives. This method has worked well for us in Hainan. Everyone pools shares to raise silkworms."
 
-The cooperative model was an important production-management model promoted by the Senate in rural areas. From the earliest Ma Niao Salt Field Cooperative to the later Leizhou Sugar Industry Joint Operation, under Senate rule, the Heaven and Earth Society supported a large number of similar institutions. They were especially common in the production and processing of cash crops and could be said to be a quite mature model.
+The cooperative model was an important production-management approach that the Senate promoted in rural areas. From the earliest Ma Niao Salt Field Cooperative to the later Leizhou Sugar Industry Joint Operation, Senate rule and the Heaven and Earth Society had supported numerous similar institutions. They were especially common in the production and processing of cash crops—a thoroughly tested model.
 
-"I've also talked with your Second Uncle. Roughly, we establish a joint-stock company..."
+"I've discussed this with your Second Uncle. Essentially, we establish a joint-stock company..."
 
-Li Yao'er briefly introduced the specific cooperation plan. The plan was not complicated—nothing more than whoever had money contributing money, whoever had strength contributing strength. Each received shares. After selling raw silk, participants received dividends according to their shareholding proportion.
+Li Yao'er outlined the cooperation plan. It was straightforward—whoever had money contributed money, whoever had labor contributed labor. Everyone received shares. After selling raw silk, participants collected dividends according to their shareholding.
 
-"...This method we have used in many places, and everyone's response has been good. I think it should also be promoted very smoothly in Nansha. Especially since we also have the strong support of you and your Second Uncle."
+"...This method has succeeded in many places, and people respond well to it. I believe it should spread smoothly in Nansha too—especially with strong support from you and your Second Uncle."
 
-When Li Yao'er said this, she watched Chen Lin very earnestly. The young man's face involuntarily turned red.
+As she spoke, Li Yao'er watched Chen Lin intently. The young man's face flushed involuntarily.
 
-"This small one will definitely serve. Whether there are dividends or not, actually this small one doesn't care too much. As long as clansmen can be fed and clothed, and Nansha recovers its vitality..."
+"This humble one will certainly serve. Whether there are dividends or not, I honestly don't care much. As long as our clansmen can be fed and clothed, and Nansha recovers its vitality..."
 
-This was not Chen Lin putting on airs but sincere words from his heart.
+This wasn't false modesty—Chen Lin spoke from the heart.
 
-"Hehe, what you said is quite serious and proper." Li Yao'er suddenly laughed, her smile like a flower, as if she were a young girl. Chen Lin's mind couldn't help but stir. He quickly restrained himself, lowered his gaze and explained:
+"Well, what you say is quite proper and sincere." Li Yao'er suddenly laughed, her smile bright as a flower, almost girlish. Chen Lin's pulse quickened. He quickly collected himself, lowered his gaze, and explained:
 
-"This small one speaks from the heart."
+"This humble one speaks from the heart."
 
-"Whether heartfelt or not, I don't care either," Li Yao'er smiled. "It's good that you have this attitude!" She sighed: "Since ancient times, the hardest thing has been doing things. If you can wholeheartedly help me do this enterprise well, dividends and such indeed don't need to be worried about."
+"Heartfelt or not, I don't much care either," Li Yao'er smiled. "What matters is your attitude!" She sighed. "Since ancient times, the hardest thing has been getting things done. If you can wholeheartedly help me make this enterprise succeed, dividends will be the least of your worries."
 
-Coming out of the reeling workshop, Li Yao'er took him to the west side courtyard to visit the "Thread Weaving Workshop" renovated here.
+Leaving the reeling workshop, Li Yao'er took him to the west side courtyard to visit the "Thread Weaving Workshop" renovated there.
 
-Fabric was formed by vertically arranged warp threads and horizontally arranged weft threads interwoven together. The silk reeled couldn't be directly used as warp and weft threads. It needed to go through a series of preparatory processes to be woven into warp and weft threads before going on the loom for weaving.
+Fabric was formed by vertically arranged warp threads and horizontally arranged weft threads interwoven together. The silk reeled couldn't be used directly as warp and weft—it needed to go through a series of preparatory processes. The threads required for weaving silk fabrics had to pass through multiple stages: silk turning, silk doubling, silk twisting, silk starching, warping, quill winding, and more before they were ready for the loom.
 
-The warp and weft threads needed for weaving silk fabrics roughly had to go through multiple processes like silk turning, silk doubling, silk twisting, silk starching, warping, winding quills, and so on before they could be made. Here, Li Yao'er hadn't introduced any new technologies or new equipment—there was no suitable power machine. So the various pieces of equipment inside looked finely made but were essentially no different from the improved foot-pedal reeling machines. Chen Lin took one look and roughly understood where the improvements were. Some improvements he had thought of in the past and had even drawn drawings for blacksmiths and carpenters to try making. The result was either they couldn't make it, or they made it and it looked identical, but after installing it, it couldn't operate as he envisioned—either sluggish and hard to move, or after running not long it cracked and broke.
+Here, Li Yao'er hadn't introduced any new technologies or equipment—no suitable power source existed. The various machines inside looked finely made but were essentially no different from the improved foot-pedal reeling machines. Chen Lin took one look and roughly understood where the improvements lay. Some of these improvements he had conceived himself in the past, even drawing designs for blacksmiths and carpenters to attempt. The results were invariably disappointing—either they couldn't make it at all, or they made something that looked identical but wouldn't function as intended. It was either sluggish and hard to move, or it cracked and broke after brief use.
 
-The Australians were indeed ingenious without equal! Chen Lin thought. But for Chen Lin, these "seemingly similar" things in front of him were not simply about "ingenuity." That connecting axle arm, the same thing, the Australians could make it both fine and tough, but when he found the best blacksmith to make it, it could only be made coarse and clumsy... why exactly was that?
+The Australians truly possessed unmatched ingenuity! Chen Lin marveled. But for him, these "seemingly similar" things before him weren't simply about cleverness. That connecting axle arm, for instance—the same component that the Australians made fine yet tough, but that the best blacksmith he could find produced only coarse and clumsy. Why was that?
 
-Just looking at those wooden components, one could also see the huge gap between what the Australians made and what local carpenters made. The same thing, the components made by Australians were much smaller and more delicate, and even the surface looked more pleasing to the eye than local objects.
+Just examining the wooden components revealed a vast gulf between Australian craftsmanship and local carpentry. The same item made by Australians was smaller, more delicate, and even more pleasing to the eye than locally made objects.
 
-"The same object, what the Australians make is just different," Chen Lin said sincerely. "This small one truly admires it!"
+"The same object, but what the Australians make is simply different," Chen Lin said sincerely. "This humble one truly admires it!"
 
-"This is nothing," Li Yao'er was used to the "shock" of natives and didn't take it to heart anymore. But Chen Lin was different from ordinary natives and had quite some insight. "If you went to Lingao and saw all kinds of new equipment made by our machinery factory, wouldn't you prostrate yourself in admiration?"
+"This is nothing," Li Yao'er replied, accustomed to the "shock" of natives and long past taking it to heart. But Chen Lin was different from ordinary natives—he showed genuine insight. "If you went to Lingao and saw all the equipment our machinery factory produces, you'd prostrate yourself in admiration."
 
-"It's just a pity this small one doesn't have such fortune," Chen Lin sighed.
+"A pity this humble one lacks such fortune," Chen Lin sighed.
 
-"What's difficult about going to Lingao? Since you came from Guangzhou, you naturally know there are scheduled boats from Guangzhou to Lingao. Although the ticket isn't cheap, it probably isn't a problem given your status."
+"What's difficult about going to Lingao? Since you came from Guangzhou, you know there are scheduled boats. The ticket isn't cheap, but given your status, it probably isn't a problem."
 
-"The Chief jests," Chen Lin said. "It's not that this small one doesn't want to go. It's really that this mess before my eyes cannot be left unattended..." Fearing Li Yao'er would misunderstand, he quickly added, "Although Fenshenghe is now in good order, the entire Nansha Village is still dilapidated. The livelihoods of clansmen and villagers after spring also need to be planned..."
+"The Chief jests," Chen Lin said. "It's not that I don't want to go. It's just that this mess before me can't be left unattended..." Fearing Li Yao'er might misunderstand, he quickly added, "Although Fenshenghe is now in good order, the entire village of Nansha remains dilapidated. The livelihoods of clansmen and villagers after spring still need to be arranged..."
 
-"Are the villagers' lives very difficult?" Although Li Yao'er had been in Nansha for several months, she had been busy renovating the factory and interacted with locals mostly through Chen Xuan. She knew very little about the local situation in Nansha.
+"Are the villagers' lives very difficult?" Though Li Yao'er had been in Nansha for several months, she had been consumed with factory renovations, interacting with locals mostly through Chen Xuan. She knew little about actual conditions in Nansha.
 
 **(End of Chapter)**

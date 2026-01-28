@@ -1,10 +1,10 @@
 # Chapter 2105 - Digging Trenches
 
-The sound of the engineers' demolition charges set off a commotion among the Ming defenders. The dull rumble and the trembling of the earth made many soldiers uneasy. Some of them knew the Hair-Bandits' artillery was formidable and that they possessed many fearsome fire-weapons; they had no idea what new devilry they were up to now.
+The engineers' demolition charges set off a commotion among the Ming defenders. The dull rumble and trembling earth made many soldiers uneasy. Some knew the Hair-Bandits possessed formidable artillery and fearsome fire-weapons; they had no idea what new devilry was being attempted now.
 
-Song Ming was a veteran of many years who knew how to calm and discipline his men. He immediately led his personal guards on an inspection tour along the trench line, keeping a particular eye out for troublemaking old soldiers. These types weren't much use in a fight, but they were experts at running away—and to make escape easier, they would often stir up others to flee with them.
+Song Ming was a veteran who knew how to calm and discipline his men. He immediately led his personal guards on an inspection tour along the trench line, keeping particular watch for troublemaking old soldiers. These types weren't much use in a fight, but they were experts at running away—and to make escape easier, they would often stir up others to flee with them.
 
-Marching along the trench in gleaming helmet and armor, surrounded by guards with drawn sabers radiating killing intent, he quickly intimidated the wavering soldiers.
+Marching along the trench in gleaming helmet and armor, surrounded by guards with drawn sabers radiating killing intent, he quickly intimidated the wavering soldiers.  
 
 Jiang Suo was extremely tense. He hid in the bastion's sandbag emplacement, binoculars pressed to his eyes, watching the Australian movements intently. The Australians had climbed halfway up the hillside, then stopped about half a *li* from the Bangshan position—just beyond the range of Nanyang rifles, matchlocks, and bows.
 
@@ -12,13 +12,13 @@ The Australians did not attack. After the muffled explosions, the soldiers began
 
 Even in the Marine Corps, field engineering was an important training subject, and as a training exemplar, Jiang Suo was well versed in it. Clearly, the garrison's volleys had made an impression on the Fubo Army—they weren't going to assault the fortifications directly. Instead, they would use engineering to approach and attack at close range.
 
-Jiang Suo's proposal to use trenches against the Hair-Bandits' firepower advantage had worked—he just hadn't expected the Hair-Bandits to immediately counter trenches with trenches of their own, nullifying their advantage in an instant.
+Jiang Suo's proposal to use trenches against the Hair-Bandits' firepower advantage had worked—he just hadn't expected the Hair-Bandits to immediately counter trenches with trenches of their own, nullifying their advantage instantly.
 
 "What are the Hair-Bandits up to?" Song Ming came over and picked up a pair of binoculars.
 
-Through the lenses, he could see Australians prone on the ground, digging. He had heard the thunder of Australian guns and seen dust flying on the hillside; he had expected an attack to begin. Instead, the Australians hadn't charged at all—they had started digging trenches. Could they be planning to dig a long siege line around Bangshan to starve out the Ming garrison? But that seemed unnecessary. Bangshan was already a dead end; the defenders couldn't hold out for long anyway. Yi Haoran had deployed forces here precisely because he judged the Hair-Bandits would launch a rapid assault rather than a prolonged siege.
+Through the lenses, he could see Australians prone on the ground, digging. He had heard the thunder of Australian guns and seen dust flying on the hillside; he had expected an attack to begin. Instead, the Australians hadn't charged at all—they had started digging trenches. Could they be planning to dig a long siege line around Bangshan to starve out the Ming garrison? But that seemed unnecessary. Bangshan was already a dead end; the defenders couldn't hold out long anyway. Yi Haoran had deployed forces here precisely because he judged the Hair-Bandits would launch a rapid assault rather than a prolonged siege.
 
-Looking through the binoculars, the Australian trenches seemed crude—none of the breastworks, artillery platforms, or bastions he had witnessed at the Battle of Chengmai. They didn't look like fortifications meant for a long defense. Strangest of all, the Australian trenches weren't parallel to the Ming trenches; instead, they angled steadily closer to the Ming position.
+Looking through the binoculars, the Australian trenches seemed crude—none of the breastworks, artillery platforms, or bastions he had witnessed at the Battle of Chengmai. They didn't look like fortifications meant for long defense. Strangest of all, the Australian trenches weren't parallel to the Ming trenches; instead, they angled steadily closer to the Ming position.
 
 The Australian trench drew nearer and nearer, then veered at about thirty *zhang* from the Ming position. What had been slanting northeast now pointed southeast.
 
@@ -30,19 +30,19 @@ Though Song Ming didn't understand modern tactics, years of military experience 
 
 The best way to deal with these Australians sneaking forward to build works was a swift, violent counterattack—a charge to drive them out of their trenches. But Song Ming had little confidence in his men's close-combat ability or fighting spirit.
 
-"I'll take a squad of archers out and give them a rain of arrows!" Song Ming said.
+"I'll take a squad of archers out andgive them a rain of arrows!" Song Ming said.
 
 Lead a squad of archers out while the Australians were attacking uphill and digging, use the height advantage to shower arrows on the trenches below—it might not kill many, but at least it would slow their digging.
 
 "No. The archers can't go out—once they're in the open, they're useless," Jiang Suo shook his head. "If you want to shoot, it has to be from inside the trench. Never expose yourself."
 
-The Nanyang rifle might be a formidable weapon by Ming standards, but in Australian hands, it was merely second-rate gear issued to security forces. The Fubo Army was equipped with Minié rifles—far superior in range, power, and accuracy.
+The Nanyang rifle might be formidable by Ming standards, but in Australian hands, it was merely second-rate gear issued to security forces. The Fubo Army was equipped with Minié rifles—far superior in range, power, and accuracy.
 
 "...And that's not all. The Australians have a repeating rifle. When I was in the Marines, that's what I used. The repeater matches the Minié in range, power, and accuracy, but fires much faster—faster even than a bow." Jiang Suo continued, "Even if the Hair-Bandits here don't have repeaters, the Minié alone is more than we can handle."
 
 Venturing out rashly would gain the archers nothing. In range, power, and accuracy, they were hopelessly outmatched by Australian rifles—like comparing divine weapons to fire pokers. Inside the trench, it was different: bullets couldn't curve, and archers could lob arrows in high arcs without exposing themselves. A few volleys in the right direction might hit something. At worst, it would hurt the Hair-Bandits' morale—their soldiers wore no armor, after all.
 
-"Every battalion has a squad of light infantry skirmishers, all crack marksmen. They specialize in picking off exposed targets and ambush leaders. If you take archers out there, before you're even within bow range, half of them will be dropped." Jiang Suo picked up a dummy they had prepared earlier—dressed in helmet and armor—and slowly raised it above the parapet.
+"Every battalion has a squad of light infantry skirmishers, all crack marksmen. They specialize in picking off exposed targets and ambushing leaders. If you take archers out there, before you're even within bow range, half of them will be dropped." Jiang Suo picked up a dummy they had prepared earlier—dressed in helmet and armor—and slowly raised it above the parapet.
 
 Before the dummy was even half-exposed, a string of clear, sharp rifle shots—the distinctive crack of Minié rifles—rang out, and the helmet was blown clean off the dummy's head.
 

@@ -1,115 +1,119 @@
 # Chapter 2114 - Self-Rescue
 
-"Master Qiao speaks truly. Only there is now yet another perilous matter. Has your honor heard of it?"
+"Master Qiao speaks truth. Yet there exists another peril—far graver still. Has your honor heard of it?"
 
-"Please enlighten me!"
+"I beg enlightenment!"
 
-"I fear that should Wuzhou not hold, the officials and soldiers in their desperation may commit unspeakable acts!" Luo Yangming said, and then related what Wen Tietou had witnessed.
+"I fear that should Wuzhou prove untenable, the officials and soldiers in their desperation may commit unspeakable atrocities." Luo Yangming leaned forward and recounted, in clinical detail, everything Wen Tietou had witnessed.
 
-"Such a thing!" Guild-master Qiao's face went pale. He didn't question the claim; instead he rose and paced the hall several times, muttering to himself: "So that's what it is!"
+"Such depravity!" Guild-master Qiao's complexion drained to ash. He didn't question the account—instead he surged to his feet and paced the receiving hall with agitated strides, muttering aloud: "So *that* explains it!"
 
-Luo Yangming knew the guild-master must have also noticed the illogical actions. They simply hadn't had Wen Tietou's dockside contacts to observe closely enough to deduce that Xiong Wencan might burn the city.
+Luo Yangming understood immediately. The guild-master must have observed the same unexplained activities but lacked Wen Tietou's dockside intelligence network to deduce the horrifying truth: Xiong Wencan intended to incinerate Wuzhou.
 
-"Unbelievable!" the guild-master murmured. "This is the lives of an entire city!"
+"Inconceivable!" The guild-master's voice trembled. "This condemns an entire city to death!"
 
-"Given Governor Xiong's current situation, it's not so strange that he would do this."
+"Given Governor Xiong's present circumstances, such a course is not altogether incomprehensible."
 
-The guild-master nodded to show he understood.
+The guild-master nodded grimly, comprehension written across his features.
 
-"In that case, trying to persuade Governor Xiong is impossible."
+"Then petitioning Governor Xiong himself proves impossible."
 
-"Precisely." Luo Yangming nodded. "He's at the end of his rope. How would he listen to our entreaties?"
+"Precisely." Luo Yangming's tone carried finality. "He stands with his back against the precipice. Why would he heed our entreaties?"
 
-The guild-master nodded slightly. Though the two weren't well acquainted, they had already reached an unspoken understanding.
+The guild-master gave a slight nod. Though the two men barely knew each other before this crisis, an unspoken alliance had crystallized between them.
 
-"There are some things it's not convenient for me to handle openly. But Master Luo can act more freely." Guild-master Qiao quietly instructed his personal servant a few sentences. The servant immediately left and returned shortly with a tray.
+"Certain matters I cannot pursue openly without inviting suspicion. But Master Luo possesses greater freedom of action." Guild-master Qiao murmured quiet instructions to his personal attendant. The servant departed and returned moments later bearing a lacquered tray.
 
-"This is my visiting card. Take it." The guild-master lowered his voice. "First go and pay a call on—"
+"Accept my visiting cards." The guild-master's voice dropped to barely audible. "Your first call should be upon—"
 
-The day after Bangshan fell, daytime Wuzhou had become a dead city. Every door was shut, every shop locked. On the streets, there were only scattered groups of roving soldiers and conscripted militia. As long as it wasn't urgent, no civilian dared go outside, for fear of being robbed or even killed by rampaging troops. Every street barricade was closed; wealthy households had not only barred their gates but also distributed weapons to their servants and guards.
+---
 
-The guest troops in the city were now frantic to the point of madness—the fall of the city was imminent. Sensing the end was near, whatever discipline remained had utterly collapsed. Not even the guest officers could fully control their men. Throughout the streets, soldiers robbed and murdered civilians; clashes with the local garrison were frequent. Had it not been for Xiong Wencan's household guards constantly patrolling and occasionally suppressing the riots, the city would have disintegrated into total chaos.
+The day following Bangshan's fall, Wuzhou under daylight had transformed into a necropolis. Every door stood barred, every shop shuttered. The streets harbored only scattered patrols of nervously armed soldiers and conscripted militia. Unless circumstances demanded otherwise, no civilian dared venture outdoors—the risk of robbery or casual murder by rampaging troops was too great. Street barricades had been sealed shut; wealthy households had not merely bolted their gates but armed their servants and household guards to the teeth.
 
-Amid this tension came bad news: Xiong Wencan had still not appeared by noon, sending only his personal servant to say he was "indisposed." This immediately sparked panic—after all, the only senior official in Wuzhou was Xiong Wencan himself. If he truly "fell ill," the only authorities left were the Prefect and the Magistrate. For them to command the arrogant guest officers was a fool's dream.
+The guest troops garrisoned within the walls had descended into barely controlled frenzy. The city's fall loomed inevitable. Sensing their approaching doom, what little military discipline remained had evaporated entirely. Even their own officers could no longer restrain them. Throughout every district, soldiers openly robbed and murdered civilians; violent clashes between guest troops and the local garrison erupted with increasing frequency. Only the constant patrols of Xiong Wencan's household guard, ruthlessly suppressing the worst excesses, prevented the city from collapsing into absolute anarchy.
 
-While everyone was still in turmoil, a trusted staff officer named Chang Qingyun emerged and sent people around distributing invitations, announcing that the Governor-General would host a banquet that evening for the city's merchants and gentry to "discuss the defense of the city."
+Amid this mounting chaos came ominous news: Xiong Wencan had still failed to appear by midday. His personal servant circulated the excuse that the Governor-General was "indisposed." Panic rippled through official circles—after all, Xiong Wencan represented the only senior authority remaining in Wuzhou. Should he truly prove "ill," command would devolve to the Prefect and County Magistrate. Expecting those functionaries to control the arrogant guest officers was pure fantasy.
 
-If Chang Qingyun was here, then Yi Haoran—who commanded Xiong Wencan's household guards—must also be in the city, leading patrols to suppress the rioters. Both were the Governor-General's current "favorites." And since his other staff officers were still around, the rumor that Xiong Wencan had fled seemed to be baseless.
+While uncertainty still reigned, a trusted staff adviser named Chang Qingyun suddenly materialized, dispatching messengers throughout the city bearing formal invitations. The Governor-General would host a banquet that very evening for the city's merchants and gentry to "consult regarding Wuzhou's defense."
 
-Yet the collapse of that rumor only brought new anxiety to the invited merchants—it felt like the weasel inviting the chickens to dinner.
+If Chang Qingyun remained in the city, then Yi Haoran—who commanded Xiong Wencan's household troops—must also be present, leading the patrols that suppressed rioters. Both ranked among the Governor-General's current "favorites." With his other staff advisers still visibly active, rumors of Xiong Wencan's flight appeared baseless.
 
-Still, facing the glowering colonels and soldiers who came to "invite" them, they could hardly refuse. Even feigning illness would only get them "carried there."
+Yet the collapse of that particular rumor spawned fresh anxiety among the invited merchants. This felt uncomfortably like weasels graciously inviting chickens to dinner.
 
-Luo Yangming, though not one of the major magnates, was a board member of the Rice Guild and thus within the invitation's scope. His wife and concubines were distraught, fearing they would be bled dry. But Luo Yangming's expression was far more serious.
+Still, confronted by glowering military escorts who arrived bearing "invitations," they could scarcely refuse. Even feigning illness would merely result in being "carried" to the banquet in a sedan chair.
 
-Xiong Wencan's banquet was obviously a trap. But even more alarming was his scorched-earth plan.
+Luo Yangming, though not ranking among the city's great magnates, held a seat on the Rice Merchants' Guild board and therefore fell within the summons's scope. His wife and concubines dissolved into tearful distress, convinced the household would be extorted to financial ruin. But Luo Yangming's expression conveyed far graver concerns.
 
-Once fires were lit, it was no longer a matter of losing money—it was the lives of his entire family!
+Xiong Wencan's banquet was transparently a trap. More alarming still was his scorched-earth contingency.
 
-His recent activities had all been aimed at obstructing the arson plan. Through his efforts at liaison and persuasion, the local constables and a portion of the garrison had now pledged that once the Australians attacked, they would immediately open the gates to welcome them. If anyone tried to set fires, they would do their utmost to stop it.
+Once fires ignited, this transcended mere financial loss—his entire family's survival hung in the balance.
 
-But whether these people's words could be trusted—whether they could actually hold off the wolf-like rioters—or whether they themselves might simply join the mob—was another matter entirely.
+His recent clandestine activities had focused entirely on obstructing the arson scheme. Through patient negotiation and strategic persuasion, he had secured pledges from local constables and a substantial portion of the garrison: once Australian forces launched their assault, they would immediately open the gates in welcome. Should anyone attempt arson, they would employ every resource to prevent it.
 
-The area where he lived was a district of prosperous merchants' shops. If the city descended into chaos, it would be first in the line of fire. The street barricades and the guards alone might not be enough to keep the neighborhood safe.
+Whether these assurances merited trust—whether these men could genuinely restrain wolf-like rioters, or whether they themselves might simply join the looting—remained terrifyingly uncertain.
 
-He called Wen Tietou over and quietly gave him instructions.
+His residence occupied a prosperous merchant district. Should civil order collapse, the neighborhood would face immediate devastation. Street barricades and private guards alone might prove woefully inadequate protection.
 
-"I'm leaving home in your hands."
+He summoned Wen Tietou and delivered quiet, precise instructions.
 
-"Rest assured! I'll keep everyone safe." Wen Tietou thumped his chest. "Too bad my dock brothers aren't inside the city!"
+"I'm entrusting my household to your protection."
 
-"Our possessions don't matter—only people's safety!" Luo Yangming urged repeatedly, and only then did he set out with a few servants.
+"Set your mind at ease! I'll guard everyone with my life." Wen Tietou struck his chest emphatically. "If only my dock brothers were inside these walls!"
 
-It was too early to attend the banquet, and in any case, he hadn't decided whether to go at all. Luo Yangming still couldn't fathom Xiong Wencan's thinking—if he meant to burn the city, he had no intention of defending it, so why bother holding a banquet to ask everyone to "assist in the defense"?
+"Our possessions mean nothing—only human lives matter!" Luo Yangming repeated the admonition multiple times before finally departing with several servants.
 
-After much thought, the so-called banquet could only be a delaying tactic!
+The hour remained too early for the banquet—and in any event, he hadn't decided whether to attend at all. Luo Yangming still could not penetrate Xiong Wencan's strategic calculus. If the Governor-General intended to incinerate the city, he clearly harbored no genuine defensive intent—so why stage this elaborate banquet theater about "consulting on defense measures"?
 
-He recalled that since dawn Xiong Wencan hadn't shown himself—first they said he'd slept late, then by noon he was "indisposed." And then suddenly everyone was invited to a banquet...
+After sustained deliberation, the banquet could serve only one purpose: buying time.
 
-Luo Yangming suddenly realized: Xiong Wencan had very likely slipped out of the city the previous night. Today's series of ruses were only meant to buy time—to make the officials, gentry, and populace believe he was still in the city "directing grand strategy."
+He recalled the day's peculiar sequence. Since dawn, Xiong Wencan had remained invisible—first excused as "sleeping late," then by noon recharacterized as "indisposed." And now, suddenly, this abrupt banquet summons...
 
-At the banquet that evening, if he didn't appear, the charade would collapse...
+The realization struck Luo Yangming like physical impact: Xiong Wencan had almost certainly escaped the city under cover of darkness the previous night. Today's cascade of deceptions existed solely to maintain the illusion that the Governor-General remained within Wuzhou, personally "directing grand strategy."
 
-Luo Yangming broke into a cold sweat: could it be that the fires would be lit when the banquet began?!
+When evening arrived and the banquet commenced, Xiong Wencan's absence would shatter the charade...
 
-Thinking further: those invited to the banquet were the city's "notables"—not high officials, but people with some clout and influence. The militiamen mustered for the defense included many who owed their loyalty to these men.
+Cold sweat erupted across Luo Yangming's skin. Would the fires ignite precisely when the banquet began?
 
-If these notables wanted to surrender—if they wanted to resist Xiong Wencan's remaining guest troops and their arson—they would have a real chance.
+His mind raced through the implications. Those "invited" to this gathering represented Wuzhou's local notables—not high officials, but individuals wielding genuine influence and authority. The militia forces mustered for the city's defense included many men whose primary loyalty belonged to these very notables.
 
-So this was Xiong Wencan's trap! Luo Yangming thought. Most likely, once they entered, the doors would be locked, and then the fires would start—burning them all to death, or at least shocking them senseless so they couldn't organize any resistance against the rioters.
+If these influential figures wished to capitulate—if they chose to resist Xiong Wencan's remaining guest troops and their arson plot—they possessed genuine capacity to succeed.
 
-Luo Yangming felt a chill all over. He had to act immediately!
+So this was Xiong Wencan's trap! Once the notables entered the yamen, the doors would be barred. Then the fires would begin—either incinerating them all outright, or at minimum stunning them into shocked paralysis so they couldn't organize effective resistance against the rioters.
 
-With that thought, he told his servants: "Hurry! Take me to Master Qiao's residence!"
+A visceral chill consumed Luo Yangming's entire body. He had to act immediately!
 
-Master Qiao was not only the head of the Rice Guild but also the chief headman of Wuzhou's South City. Though he held no official rank, in Wuzhou he could summon wind and rain, commanding both the underworld and the legitimate world. He could influence not only the local constables but also the movements of the militia in the South City.
+"Quickly!" he commanded his servants. "To Master Qiao's residence—now!"
 
-If he could be persuaded to change sides now, the Dezheng and Nanxun gates in the South City would surely be within reach!
+Master Qiao served not merely as head of the Rice Merchants' Guild but also as chief headman of Wuzhou's South City district. Though he held no formal official rank, within Wuzhou his influence was legendary—he commanded both underworld networks and legitimate commerce with equal facility. His authority extended not merely to local constables but to the militia forces deployed throughout the South City.
 
-With that thought, he quickened his pace.
+If Master Qiao could be persuaded to shift allegiance, the Dezheng and Nanxun gates controlling the southern approaches would fall into allied hands!
 
-Yi Haoran had arrived at the Governor-General's yamen early that morning. Hearing that Xiong Wencan couldn't yet receive guests, he had returned to his own quarters. Unlike the other staff officers, he had no thought of fleeing with the Governor-General. Life and death were no longer his greatest concerns. With a great enemy at the gates, he had no heart to sit in the yamen's flower hall making small talk with the other advisors.
+With this realization, Luo Yangming accelerated his pace.
 
-But he hadn't been idle. He had returned to his quarters, spread out paper and ink, and begun writing.
+---
 
-What he wrote was less a letter than a summary of the battles from Zhaoqing onward. Though he hadn't personally experienced most of them, he had carefully collected accounts from the officers and soldiers involved—especially yesterday's Battle of Bangshan, about which he had questioned Jiang Suo in detail, particularly concerning the Australians' assault procedures.
+Yi Haoran had arrived at the Governor-General's yamen in the early morning hours. Learning that Xiong Wencan could not yet receive visitors, he had withdrawn to his private quarters. Unlike his fellow staff advisers, Yi Haoran harbored no fantasies of fleeing alongside the Governor-General. Questions of personal survival no longer dominated his thoughts. With catastrophe hammering at the gates, he had no stomach for idling in the yamen's flower pavilion exchanging hollow pleasantries with other functionaries.
 
-After writing several pages, he had his attendant copy them out in multiple copies. He intended to send these letters with the courier carrying Xiong Wencan's memorials to Beijing, addressed to several friends and mentors—most of them serving as staff in various government offices. The more people who knew the Hair-Bandits' true capabilities, the better.
+But neither had he remained idle. Returning to his chambers, he had spread ink and paper and commenced writing.
 
-Jiang Suo stood nearby, distracted. After the previous day's battle, he was utterly exhausted and hadn't woken until past noon. The moment he rose, he had run to Yi Haoran to request assignment to the Dayun Gate defenses outside the walls. Yi Haoran refused. "You nearly lost your life on Bangshan. Now you want to throw it away at Dayun Gate?"
+What emerged resembled less a conventional letter than a comprehensive tactical analysis of engagements from Zhaoqing forward. Though he had not personally witnessed most battles, he had systematically collected firsthand accounts from participating officers and soldiers. Yesterday's Battle of Bangshan received especially detailed treatment—he had interrogated Jiang Suo exhaustively regarding Australian assault procedures and tactical doctrine.
 
-"This humble one wishes only to serve the realm faithfully!"
+After completing several pages of dense analysis, he instructed his attendant to prepare multiple copies. These documents would accompany the courier bearing Xiong Wencan's official memorials to Beijing, addressed to several trusted friends and former mentors—most serving as advisers within various governmental ministries. The more individuals who comprehended the Hair-Bandits' genuine capabilities, the better prepared the realm would be.
 
-"Don't lie to me. You're just looking to die! You won't say it, but I can guess—you must have a blood feud with the Hair-Bandits. National hatred and family grudges are one thing, but seeking death is unwise! You're still young; you think feelings are more important than anything. Once you've truly experienced catastrophe, you'll understand that being alive is better than anything!"
+Jiang Suo lingered nearby, visibly distracted. Following yesterday's brutal combat, exhaustion had claimed him until well past midday. Upon finally rising, he had immediately sought Yi Haoran to volunteer for assignment defending the Dayun Gate fortifications. Yi Haoran had refused categorically. "You nearly perished on Bangshan. Now you volunteer to throw your life away at Dayun Gate?"
 
-He sighed. Seeing Jiang Suo about to argue, he waved a hand.
+"This humble servant desires only to serve the realm with undivided loyalty!"
 
-"Say no more. A moment ago, take the remaining new army troops out to patrol the streets and maintain discipline—things out there are already a mess. Go and rest for now."
+"Spare me your noble lies. You seek death—nothing more. You won't articulate the reason, but I can deduce it readily enough. You harbor some blood vendetta against the Hair-Bandits. National enmity and family grievance are one matter, but pursuing deliberate self-destruction is foolishness! You remain young—you imagine passionate sentiment outweighs all other considerations. Once you've endured genuine catastrophe, you'll comprehend that mere survival transcends everything."
 
-With that, Yi Haoran sent Jiang Suo away. That Xiong Wencan was "indisposed" came as no surprise—the Governor-General's situation was desperate. Even if his servant came to report that Xiong Wencan had hanged himself, Yi Haoran wouldn't have been shocked.
+He exhaled heavily. Observing Jiang Suo preparing to protest, Yi Haoran silenced him with a dismissive gesture.
 
-But what was to be done about Wuzhou? Yi Haoran thought of County Magistrate Chang Pu's scorched-earth plan. It might indeed be a desperate survival strategy, but it was too vicious—an absolute last resort.
+"Say nothing further. Immediately take the surviving new army troops and patrol the streets to maintain whatever discipline remains—the situation beyond these walls descends into chaos with every passing hour. Go rest while you can."
 
-As the sun began to set and he was about to go out and inspect the city gates, a servant burst through the door, whispered a few words, and Yi Haoran's face went pale. He leaped up and rushed out the door.
+With that curt dismissal, Yi Haoran sent Jiang Suo away. That Xiong Wencan remained "indisposed" surprised him not at all—the Governor-General's circumstances had grown desperate beyond measure. Even had a servant arrived reporting Xiong Wencan's suicide by hanging, Yi Haoran wouldn't have registered shock.
+
+But what could be done about Wuzhou itself? Yi Haoran's thoughts turned to County Magistrate Chang Pu's scorched-earth contingency. It might indeed represent a desperate survival stratagem, but the sheer viciousness of the plan—it could only be deployed as an absolute final extremity.
+
+As sunset approached and he prepared to inspect the city gate fortifications, a servant burst through the doorway, whispered urgent words, and Yi Haoran's face drained of all color. He exploded to his feet and bolted from the chamber.
 
 *(End of Chapter)*

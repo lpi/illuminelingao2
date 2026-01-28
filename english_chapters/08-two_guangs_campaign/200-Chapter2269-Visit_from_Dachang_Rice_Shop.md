@@ -1,118 +1,118 @@
 # Chapter 2269: Visit from Dachang Rice Shop
 
-The next day, Yi Haoran met Song Ming at the Dragon Mother Temple. This young general no longer had the spirited and heroic appearance of a few months ago, appearing aged and down and out. Standing under the steps of the Dragon Mother Temple, he was no different from the multitude of sentient beings coming to offer incense and seek comfort because of hard times.
+The next day, Yi Haoran met Song Ming at the Dragon Mother Temple. The young general no longer possessed the spirited, heroic bearing of a few months ago. He appeared aged and haggard, standing beneath the temple steps indistinguishable from the countless souls who came to offer incense and seek solace in troubled times.
 
-Song Ming and Yi Haoran had a life-and-death friendship because of the Bang Mountain relationship back then. After meeting, without empty words, Yi Haoran went straight to the theme, telling him his attempt.
+Song Ming and Yi Haoran shared a bond forged in life and death on Bang Mountain. When they met, they dispensed with pleasantries. Yi Haoran went straight to the point, laying out his plan.
 
-"...This matter concerns greatly, and risks are extremely high. If General is unwilling to participate, Student won't force..."
+"...This matter is of great consequence, and the risks are extreme. If the General is unwilling to participate, I won't press the issue."
 
-Song Ming waved his hand, whispering: "Sir, why say such words! We eat the Lord's salary, strive to kill enemies; horse leather wrapping corpse is a matter of course."
+Song Ming waved his hand and whispered: "Sir, why speak such words? We eat the Lord's grain; we strive to kill his enemies. Dying in battle, wrapped in horsehide—that is our proper end."
 
-Yi Haoran’s heart warmed: Turmoil reveals loyal subjects. Ancients truly didn't deceive me!
+Yi Haoran's heart warmed. Turmoil truly reveals loyal subjects. The ancients did not deceive.
 
-Song Ming told him that he and the remaining few dozen people were hiding in a broken temple in a mountain col at the eastern foot of White Cloud Mountain, less than ten *li* from Wuzhou.
+Song Ming explained that he and his remaining men—a few dozen in all—were hiding in a ruined temple in a mountain hollow at the eastern foot of White Cloud Mountain, less than ten *li* from Wuzhou.
 
-Forty-seven soldiers under command. Not many, but all elite combat soldiers—both his own personal soldiers and the "New Army" house guards commanded by Jiang Suo gathered later. Weapons and armor were complete, and there were also some firearms.
+Forty-seven soldiers under his command. Not many, but all elite combat troops—both his personal soldiers and the "New Army" house guards that Jiang Suo had once commanded, gathered together after the rout. Their weapons and armor were complete, and they possessed some firearms as well.
 
-At that time, possessing nearly fifty fully armored and equipped personal soldiers and house guards was elite combat power, enough to charge into battle formations and overcome enemies to win victory.
+In those times, possessing nearly fifty fully armored and equipped personal soldiers and house guards represented serious combat power—enough to charge enemy formations and seize victory.
 
-"...Although close to Wuzhou, it is a secluded place in the mountains. We hibernate here temporarily, considered quiet too."
+"...Though close to Wuzhou, it's a secluded mountain spot. We've been lying low here, and it's been quiet enough."
 
-"What about provisions? I heard Zhang Yong say relying entirely on rich households 'assisting'; fear it's not a long-term plan either."
+"What about provisions? I heard from Zhang Yong that you've been relying entirely on wealthy households to 'assist.' That's not sustainable long-term."
 
-Since ancient times, an army without provisions is not stable. Although Song Ming had few subordinates, monthly provisions were not a small number. Relying only on nearby rich households, over time would inevitably become a burden—rich people could do anything to get rid of a burden.
+Since ancient times, an army without provisions is unstable. Though Song Ming had few subordinates, their monthly needs were not insignificant. Depending solely on nearby wealthy households, over time they would inevitably become a burden—and wealthy people would do anything to rid themselves of burdens.
 
-"What I worry about is exactly this." Song Ming nodded, "Old saying rabbits don't eat grass by the burrow; this is a reason Jianghu heroes all understand. Thus I dare not demand too much in the surroundings now, to avoid causing changes, only can send people far away to hit grain."
+"That's exactly what worries me." Song Ming nodded. "As the old saying goes, rabbits don't graze near their own burrow—every Jianghu man knows this. So I don't dare demand too much from the surrounding area, to avoid provoking trouble. We can only send men far afield to forage."
 
-So-called hitting grain was robbery. In various armies at the end of Ming, this was considered normal, nothing rare. Yi Haoran didn't find it strange either, only worried: "You have few people, and have to go far to hit grain. If harvest is big it's fine; if harvest is small, it won't cover dry rations on the road! If losing a few more brothers, then it's a big loss."
+Foraging was robbery. Among the various armies in the late Ming, this was considered normal—nothing unusual. Yi Haoran wasn't surprised, though he remained concerned. "You have few men, and you have to travel far to forage. A big haul is fine, but a small one won't even cover the road rations. If you lose any brothers in the process, that's a serious loss."
 
-"Sir is right, only right now can only do so." Song Ming sighed, "If can have a merit on body, wouldn't be so embarrassed."
+"You're right, Sir. But for now, it's all we can do." Song Ming sighed. "If only we had some merit to our name—things wouldn't be so difficult."
 
-Actually he had long thought of gathering remnants to retreat to Hunan. However, the officialdom of Two Guangs had collapsed; Xiong Wencan and a group of bigwigs' whereabouts were unknown. Retreating to Hunan, he still had no place to settle—might even be expelled or eliminated by local village braves. This was also the main reason Song Ming was willing to follow Yi Haoran to take risks.
+In truth, he had long considered gathering his remnants and retreating to Hunan. But the officialdom of the Two Guangs had collapsed; Xiong Wencan and the other high officials had vanished. Retreating to Hunan, he would have nowhere to settle—he might even be expelled or eliminated by local militia. This was also the main reason Song Ming was willing to follow Yi Haoran into danger.
 
-Yi Haoran understood tacitly. The two agreed on how to contact each other, then dispersed.
+Yi Haoran understood implicitly. They agreed on methods of contact, then parted ways.
 
-Yi Haoran was different from bureaucrats; he wouldn't discuss for a long time without decision, nor look forward and backward—if so, he would have died on the way of fleeing from Liaodong back then. Coming out of Dragon Mother Temple, he went non-stop to the city to inquire about the latest news of Hair thieves.
+Yi Haoran was different from bureaucrats—he wouldn't deliberate endlessly without reaching a decision, nor look backward and forward in indecision. If he had been that sort, he would have died on the flight from Liaodong years ago. Leaving the Dragon Mother Temple, he went directly into the city to gather the latest news about the Taipings.
 
-Hair thieves erected a newspaper reading board in front of the Wuzhou Municipal Government, posting "Lingao Times," "Yangcheng Express," and a local newspaper "Wuzhou Highlights." Except for Wuzhou Highlights, the other two newspapers took several days to arrive once, so newspapers didn't update daily, but updated once every seven days.
+The Taipings had erected a newspaper reading board in front of the Wuzhou Municipal Government, posting the *Lingao Times*, *Yangcheng Express*, and a local paper called *Wuzhou Highlights*. Except for *Wuzhou Highlights*, the other two arrived only every few days, so the newspapers weren't updated daily but rather once every seven days.
 
-Yi Haoran went to read newspapers at fixed times, with the purpose of nothing else but grasping Hair thieves' movements. For him trapped in Wuzhou, these three newspapers were his only source of news currently. From eighteen provinces under heaven to all Guangdong and even the entire Wuzhou, news was all complete, very convenient.
+Yi Haoran visited the board regularly, with no purpose except to track Taiping movements. For a man trapped in Wuzhou, these three newspapers were his only current news source. From the eighteen provinces under heaven to all of Guangdong and even Wuzhou itself, everything was covered—extremely convenient.
 
-He actually didn't quite understand why Hair thieves wanted to distribute these things facing commoners and the masses: they neither served as officials nor engaged in commerce; the farthest place they went in a lifetime was probably the county seat or prefecture seat. Even if literate and knowing news of the Imperial Court and distant places, what use was it?
+He couldn't quite understand why the Taipings distributed these things to commoners and the masses. These people weren't officials or merchants; most would never travel farther than their county or prefecture seat in their entire lives. Even if literate and informed about the Imperial Court and distant places—what use was it?
 
-Regardless of Australian intentions, Yi Haoran had to admit that Hair thieves' news was both accurate and fast—compared to Daming's official news sources like Residence Reports and Pond Reports in the past, simply could be called godspeed. And the "news" reported comprehensively on newspapers gave him a rare viewpoint to grasp the overall situation.
+Regardless of Australian intentions, Yi Haoran had to admit that Taiping news was both accurate and fast. Compared to the Ming's official news sources like Residence Reports and Pond Reports, it was practically instantaneous. And the comprehensive "news" in the papers gave him a rare perspective for grasping the overall situation.
 
-As for right now, although Hair thieves occupied Guangdong and eyed Guangxi covetously, the occupied places were unstable, alarms everywhere. The situation was not peaceful. Judging from the endless stream of boat convoys coming and going on river surfaces like Xijiang and Guijiang, Hair thieves were utilizing waterways to move troops everywhere to suppress, seemingly tired of running around. Right now Hair thieves' military force in Wuzhou was empty; exactly a good chance to strike!
+As matters stood, though the Taipings had occupied Guangdong and eyed Guangxi covetously, their hold was unstable, with alarms sounding everywhere. The situation remained unsettled. Judging from the endless convoys of boats traveling the Xijiang and Guijiang rivers, the Taipings were using waterways to shuttle troops about for suppression operations—apparently running themselves ragged. Right now, Taiping military strength in Wuzhou was stretched thin. An excellent opportunity to strike!
 
-He looked leisurely and contentedly at news of riots everywhere on the newspaper, secretly rejoicing in his heart. Suddenly a voice came from beside his ear: "Mr. Yi!"
+He studied the news of riots everywhere with leisurely satisfaction, secretly rejoicing. Suddenly a voice spoke beside his ear: "Mr. Yi!"
 
-The voice was very familiar. Yi Haoran was startled, turned his head to look, it was indeed Ah Chun. Couldn't help relaxing his heart, saying: "Why are you not in the shop?"
+The voice was very familiar. Startled, Yi Haoran turned—it was indeed Ah Chun. He relaxed. "Why aren't you at the shop?"
 
-"Madam asked me to run errands." Ah Chun said, "Mr. Hao, didn't you go out to collect accounts? Why came to the city?"
+"The Madam sent me on an errand." Ah Chun said. "Mr. Hao, didn't you go out to collect debts? What brings you to the city?"
 
-Yi Haoran originally said he went to a certain town to collect accounts as an excuse—recently he went out to collect accounts almost every day. Everyone didn't mind; after all, there was no work in the shop. Him going out once, more or less could collect some account money back, always good for the shop.
+Yi Haoran had claimed he was going to a certain town to collect accounts—lately he went out for "debt collection" almost daily. No one minded; after all, there was no work at the shop. Each trip might at least bring back some payment, which was always good for business.
 
-"Accounts not collected. I saw it was still early; came back to the city and walked around to relax." Yi Haoran responded calmly.
+"Couldn't collect the accounts. It was still early, so I came back into the city to walk around and relax." Yi Haoran replied calmly.
 
-"Authorized Advisor has such interest. Now in military chaos, Madam instructed us to go on the street less if nothing to do. Advisor you go out of city to collect accounts also be more careful. Heard these days floating corpses often drift by the riverside—all said to be robbed and killed by bandits and thieves."
+"The Advisor certainly has leisure. In these chaotic times, the Madam told us to stay off the streets unless necessary. When you go outside the city to collect debts, be careful too. I hear floating corpses have been drifting down the river these past days—all said to be robbery victims killed by bandits."
 
-"This I know." Yi Haoran smiled, "What matter did you go do for Madam?"
+"I'm aware." Yi Haoran smiled. "What errand did the Madam send you on?"
 
-"What matter can be done? Just asking Master to hurry back." Ah Chun said with a face of indifference, "Master is not at home all day, no one manages matters in the shop. Look, a traveling merchant finally came to the shop to discuss business, but the shopkeeper went out again. Only Madam and Concubine Wen are at home..."
+"What else? Just asking the Master to hurry home." Ah Chun's face showed indifference. "The Master is never home. Nobody's managing the shop. Look—finally a traveling merchant shows up wanting to do business, but the shopkeeper's gone out again. Only the Madam and Concubine Wen are home..."
 
-Luo Yangming basically went out at dawn and didn't come back until dark. Not only Li Wensheng, even Ding A-tao was full of complaints about him. Yi Haoran didn't mind, saying: "Since so, you go deliver the letter. I'll go back first to receive the guest."
+Luo Yangming essentially left at dawn and returned after dark. Not only Li Wensheng but even Ding A-tao was full of complaints about him. Yi Haoran didn't comment. "In that case, go deliver your message. I'll head back first to receive the guest."
 
-"Okay, Advisor you go back quickly. Madam must be anxious!"
+"Good—please go quickly, Advisor. The Madam must be anxious!"
 
-Yi Haoran couldn't care to read newspapers anymore, hurriedly returned to the shop. Saw Wen Yun looking around at the door. Seeing him back, hurriedly patted her chest saying: "Thank Heaven and Earth, finally a man came back! Not a single man at home, happened to have a guest come."
+Yi Haoran couldn't spare time to read newspapers any longer. He hurried back to the shop. At the door, he found Wen Yun looking around anxiously. Seeing him return, she patted her chest in relief. "Thank heaven and earth—finally a man is back! Not a single man at home, and then a guest shows up."
 
-Yi Haoran smiled: "Is Ah Chun not a man?"
+Yi Haoran smiled. "Doesn't Ah Chun count as a man?"
 
-"What man does Ah Chun count as, he is even a few years younger than me," Wen Yun face full of disdain, "If not for Madam forbidding me to go out, I would rather go find Master myself..."
+"What kind of man is Ah Chun? He's even a few years younger than me." Wen Yun's face showed disdain. "If the Madam hadn't forbidden me to go out, I'd rather have gone to find the Master myself..."
 
-"Where is the guest? Let me go chat with him for a moment first." Yi Haoran put down the umbrella and account book, asking.
+"Where's the guest? Let me chat with him for a moment." Yi Haoran set down his umbrella and ledger.
 
-"Just in the living room behind the account room." Wen Yun said, "He sits there dryly alone. Madam forbids me to greet him, only sent a cup of tea. Can't let him sit dryly like this, so asked Old Mama Kong who helps in kitchen to serve outside..."
+"In the reception room behind the accounting room." Wen Yun said. "He's been sitting there all alone and parched. The Madam won't let me attend to him—only allowed a cup of tea to be sent. We can't just leave him sitting there like that, so I asked Old Mama Kong from the kitchen to wait on him outside."
 
-"You go reply to Madam, say I'll help greet for a while first, Master will come back shortly."
+"Go tell the Madam that I'll entertain him for a while. The Master will return shortly."
 
-"This is good now!" Wen Yun patted her chest, "Otherwise Madam would scold me again!"
+"That's a relief!" Wen Yun patted her chest. "Otherwise the Madam would scold me again!"
 
-Yi Haoran wondered: "Master not at home, why does Madam scold you?"
+Yi Haoran wondered: "The Master's not home—why would the Madam scold you?"
 
-Wen Yun said: "Madam says I'm useless, can't keep Master's heart..."
+Wen Yun said: "The Madam says I'm useless—can't keep the Master's heart..."
 
-Yi Haoran smiled: "You are wronged to death. Master goes out to handle serious business, not for romance between sons and daughters."
+Yi Haoran smiled. "You're being blamed unfairly. The Master goes out on serious business, not for romance."
 
-"Wronged to death also get scolded!" Wen Yun pouted her nose and mouth and went inside.
+"Wrongly blamed and still scolded!" Wen Yun pouted and went inside.
 
-Yi Haoran entered the living room—called living room, actually just a small wing room, used to receive customers. Furnishings extremely simple. A middle-aged man sat upright on the official hat chair.
+Yi Haoran entered the reception room—called a "reception room," it was really just a small wing room used for receiving customers, furnished simply. A middle-aged man sat upright in one of the official's hat chairs.
 
-Judging from his exquisite yet low-key dressing, he was a successful businessman. Yi Haoran dared not neglect, cupping hands: "This Master..."
+Judging from his exquisite yet understated attire, he was a successful businessman. Yi Haoran didn't dare neglect him and cupped his hands in greeting. "Sir..."
 
-The comer waited in the living room for quite a while. Not to mention seeing Luo Yangming, not even a person came out to greet. Yet his responsibility couldn't allow him to flick his sleeves and leave. Just feeling irritable, suddenly saw a middle-aged scholar come out to greet, stood up to return courtesy:
+The visitor had been waiting in the reception room for quite some time. Not only had he failed to see Luo Yangming, but no one had even come out to greet him properly. Yet his responsibilities prevented him from simply leaving in a huff. He had grown rather irritable. Suddenly seeing a middle-aged scholar emerge to greet him, he rose to return the courtesy.
 
-"Dare not, humble surname Zhu, given name Fuyuan, runner for Dachang Rice Shop..."
+"Please, the honor is mine. My humble surname is Zhu, given name Fuyuan. I'm a representative of Dachang Rice Shop..."
 
-"Oh, is it Dachang Rice Shop of Guangzhou?" Yi Haoran said.
+"Oh, the Dachang Rice Shop of Guangzhou?" Yi Haoran said.
 
-Zhu Fuyuan blinked his eyes, said: "Sir knows humble shop name?"
+Zhu Fuyuan blinked. "Sir knows our establishment?"
 
-Yi Haoran secretly cursed himself for being talkative. Didn't this admit he had stayed in Guangzhou? he hurriedly covered up: "Honorable shop name implies loud fame, heard of, heard of..."
+Yi Haoran silently cursed his own talkativeness. Wasn't this admitting he had been in Guangzhou? He hastily covered: "Your distinguished shop's reputation precedes it—I've heard of it, heard of it."
 
 "Oh..."
 
-Yi Haoran feared he would continue questioning, hurriedly introduced himself: "Humble surname Hao, given name Ran. Accountant of this shop. Now Master and Shopkeeper are both out. Have sent someone to deliver letter. Please Master Zhu wait a moment longer."
+Fearing further questions, Yi Haoran quickly introduced himself. "My humble surname is Hao, given name Ran. I'm the accountant here. The Master and the shopkeeper are both out at the moment. Someone has been sent to notify them. Would Master Zhu be so kind as to wait a little longer?"
 
-"Easy to say, easy to say," Zhu Fuyuan took out a handkerchief from his sleeve, wiped the sweat all over his head, "I came here specially to see Master Luo; waiting a while longer doesn't matter."
+"Of course, of course." Zhu Fuyuan drew a handkerchief from his sleeve and wiped the sweat from his brow. "I came specifically to see Master Luo. Waiting a bit longer is no trouble."
 
-This aroused Yi Haoran’s interest. Because he knew Luo Yangming’s background slightly from chats with Li Wensheng and others; he wasn't a big merchant in Wuzhou City, just a medium merchant doing local rice and grain business.
+This piqued Yi Haoran's interest. From conversations with Li Wensheng and others, he had some idea of Luo Yangming's background. He wasn't a major Wuzhou merchant—just a mid-sized operator handling local rice and grain business.
 
-Wuzhou's rice shops all purchased from Guangxi and sold to Guangdong. But Yuxin’s Guangdong business went to Sanshui at the farthest. Never heard Li Wensheng or Ding A-tao mention he had dealings with Guangzhou rice merchants. Furthermore, Dachang had great fame in Guangzhou. Although didn't know if it had Hair thieves' capital, Dachang colluding deeply with Hair thieves was no secret in Guangzhou.
+Wuzhou's rice shops typically purchased from Guangxi and sold to Guangdong. But Yuxin's Guangdong operations extended only as far as Sanshui at most. Neither Li Wensheng nor Ding A-tao had ever mentioned any dealings with Guangzhou rice merchants. Moreover, Dachang was renowned in Guangzhou. Though Yi Haoran didn't know if they had Taiping capital behind them, it was no secret in Guangzhou that Dachang was deeply entangled with the Taipings.
 
-A runner gentleman of a Guangzhou rice shop with connections to Hair thieves, specially running to Wuzhou to see Luo Yangming who never had business dealings in the past, exactly what intention?
+A representative from a Guangzhou rice shop with Taiping connections, traveling specifically to Wuzhou to see Luo Yangming—a man he'd never had business dealings with before. What exactly was the purpose?
 
-He intended to fish for the other party's words, so he entertained diligently. Seeing sweat beads continuously on his forehead, he ordered Old Mama Kong to bring herbal tea, and specially sent melons and fruits for him to relieve heat. Then chatted some gossip about Wuzhou local customs and conditions.
+Intending to fish for information, he played the attentive host. Seeing sweat beading continuously on his guest's forehead, he ordered Old Mama Kong to bring herbal tea and specially sent out melons and fruit to help cool him down. Then he engaged him in casual conversation about Wuzhou's local customs and conditions.
 
 ---
 **Next Update:** Volume 7 - Guangzhou Governance Part 473

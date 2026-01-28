@@ -1,93 +1,93 @@
 # Chapter 2334 - The Hearing (II)
 
-He waited for a few minutes. Although there was buzzing of whispering below, no one raised an objection.
+He waited several minutes. Although whispered conversations buzzed below, no one raised an objection.
 
-"The *Investigation Report on the Wuzhou Incident* has received the approval of attending Senators, no Senator expressed objection to this. According to relevant investigation reply letters from all stationed-abroad Senators currently received, a two-thirds majority has been formed. Therefore, the Senate resolves to recognize the legality of this report."
+"The *Investigation Report on the Wuzhou Incident* has received the approval of the attending Senators, with no objections expressed. According to reply letters from all stationed Senators currently received, a two-thirds majority has been achieved. Therefore, the Senate resolves to recognize the legality of this report."
 
-Ma Jia read this sentence with cadence. Next was the main event—inquiry.
+Ma Jia read this sentence with measured cadence. Next came the main event—the inquiry.
 
-Sure enough, as soon as Ma Jia announced the start of the inquiry session, immediately someone demanded to speak.
+Sure enough, the moment Ma Jia announced the start of the inquiry session, someone demanded to speak.
 
-Ma Jia looked intently; it was exactly Hai Lin of the Woodware Factory. He knew this Hai Lin was a senior "Senate Opposition", worthy of being called "Double Jade" (a pair of gems) with Shan Liang back then. Whenever a big event happened, he inevitably demanded opening a hearing. Various "System Questions" and "Reflection Questions" would appear on the BBS every week. For a time he was a figure causing headaches for the Senate.
+Ma Jia looked up: it was Hai Lin of the Woodware Factory. He knew this Hai Lin was a veteran "Senate Opposition," once considered a matched pair with Shan Liang. Whenever anything significant happened, he inevitably demanded a hearing. Various "Systemic Questions" and "Critical Reflections" appeared on the BBS every week. For a time, he had been a perpetual headache for the Senate.
 
-This time Shan Liang wasn't selected, but Hai Lin was. Ma Jia knew he definitely came prepared, ready to fire cannons.
+This time Shan Liang hadn't been selected, but Hai Lin had. Ma Jia knew he had come prepared, ready to open fire.
 
-"Comrade Ma Jia," Hai Lin walked onto the podium, first nodding slightly to Ma Jia in greeting, then turning to greet the audience section, "Comrades!" Attitude polite and courteous, quite having gentlemanly demeanor.
+"Comrade Ma Jia," Hai Lin mounted the podium and nodded slightly in greeting, then turned to acknowledge the audience section. "Comrades!" His manner was polite and courteous, quite the gentleman.
 
-Ma Jia thought, *this Hai Lin also starts to play this set now. Senators' political level these years has indeed improved.*
+*Even Hai Lin is playing this game now,* Ma Jia thought. *The political sophistication of Senators has certainly improved over the years.*
 
-"Comrade Xie Erren, I have read the report on Wuzhou." Hai Lin said, "To be honest, I am both pained and surprised." Speaking of this he paused for a moment pretending to be deep, "The Senate handed such an important city to you, but what about you? Exactly with what kind of spirit did you do this work? Are you worthy of the trust of the vast number of Senators in you?!"
+"Comrade Xie Erren, I have read the Wuzhou report." Hai Lin paused for effect. "Frankly, I am both pained and astonished." He let the words hang for a moment, projecting gravity. "The Senate entrusted such an important city to you—but what did you do with it? With what spirit did you approach this work? Are you worthy of the vast body of Senators who placed their trust in you?"
 
-These words carried a flavor of criticism. Although Xie Erren had mental preparation long ago, inevitably he was made tongue-tied by this heart-condemning question.
+The words carried the flavor of an indictment. Though Xie Erren had long prepared himself mentally, the moral condemnation still left him momentarily tongue-tied.
 
-But after all he came from a reporter background, having seen many monsters and demons. Calming his mood slightly, he followed the routine considered in advance, putting on a look of remorse and saying: "I indeed am unworthy of the Senate's trust in me, didn't do my own job well. For this Wuzhou riot, I am the first person responsible, nothing good to defend."
+But he had been a reporter in his previous life and had seen all manner of demons and monsters. Steadying himself, he followed his rehearsed script, putting on an expression of remorse. "I am indeed unworthy of the Senate's trust in me. I failed to do my job properly. For this Wuzhou riot, I bear primary responsibility. I have nothing to defend."
 
-Hai Lin originally thought this reporter would inevitably justify with a set of glib rhetoric. Didn't expect him to admit immediately. This somewhat disrupted his plan.
+Hai Lin had expected the former journalist to deflect with a torrent of slick rhetoric. The immediate admission disrupted his plan entirely.
 
-Originally he prepared to "expose Xie Erren's painted skin" through a series of facts, to heat up the hearing atmosphere. But since Senator Xie immediately admitted he was a "demon", this originally planned big play couldn't be sung anymore. Helpless, Hai Lin could only turn the conversation front, starting to talk about the "accountability" issue.
+He had prepared to "expose Xie Erren's true face" through a series of damning facts, building momentum in the hearing. But since Senator Xie had immediately confessed to being a "demon," this carefully scripted drama couldn't be performed as planned. Left with no alternative, Hai Lin pivoted to the question of "accountability."
 
-"...Comrades, although the Wuzhou incident is a mistake committed by Comrade Xie Erren personally, do other departments, especially the State Council under the protection of certain people, as well as Organization and Personnel, Intelligence, Public Security and our consistently omnipotent Political Security Bureau have no responsibility? I see not only there is responsibility, but the responsibility is major!"
+"...Comrades, although the Wuzhou incident was Comrade Xie Erren's personal failure, do other departments—particularly the State Council under certain protective umbrellas, as well as Organization and Personnel, Intelligence, Public Security, and our perpetually omnipotent Political Security Bureau—bear no responsibility? I say not only do they share responsibility, but their responsibility is substantial!"
 
-Dong Shiye whispered: "Started."
+"Here we go," Dong Shiye whispered.
 
-Ma Jia nodded slightly: "This is his old prescription unchanged for a thousand years."
+Ma Jia nodded slightly. "His same old prescription, unchanged for a thousand years."
 
-He watched Hai Lin's impassioned speech, knowing Hai Lin's ultimate goal was Ma Qianzhu—criticizing Ma the Director thoroughly and making him stink, at least making him "unable to plague the Senate", was his long-term unhidden goal. Of course, this goal was becoming increasingly slim now. Everyone knew now, even if Ma Qianzhu stepped down and left office, the one succeeding as State Secretary if not someone from his team would be at least his close comrade-in-arms.
+He watched Hai Lin's impassioned speech, knowing his ultimate target was Ma Qianzhu—thoroughly criticizing and discrediting the Director, or at least rendering him "unable to plague the Senate," had been his long-standing and unconcealed goal. Of course, that goal was increasingly unrealistic. Everyone now knew that even if Ma Qianzhu stepped down, his successor would almost certainly be someone from his team, or at least a close ally.
 
-Sure enough, after a round of impassioned rhetoric of "Rectifying X is imperative", Hai Lin turned the target to Ma Qianzhu's head, expressing that in his many years as State Secretary, serious errors appeared many times. This failure in Wuzhou was even more of a "disaster". Moreover, Ma Qianzhu was one of the "nominator" for Xie Erren serving as Wuzhou Regional Director, and the specific appointment was approved by him. Should bear the primary responsibility.
+Sure enough, after a round of passionate rhetoric about "The urgent need to rectify X," Hai Lin turned his guns toward Ma Qianzhu's head. He argued that during his many years as State Secretary, serious errors had occurred repeatedly. This Wuzhou failure was nothing less than a "disaster." Moreover, Ma Qianzhu had been one of the nominators for Xie Erren's appointment as Wuzhou Regional Director, and had personally approved the formal assignment. He should bear primary responsibility.
 
-"...I think, Comrade Ma Qianzhu should take the blame and resign—at least make a public self-criticism!"
+"...I believe Comrade Ma Qianzhu should resign in disgrace—or at minimum make a public self-criticism!"
 
-Hai Lin finished speaking; a burst of sparse applause came from the seats. Although someone shouted: "Well said!", no one responded, appearing somewhat deserted.
+When Hai Lin finished, scattered applause rose from the seats. Someone shouted "Well said!" but the call went unanswered, leaving an awkward silence.
 
-Although the atmosphere wasn't as warm as imagined, it counted as firing the first shot. Next raising hand to speak was Cheng Yongxin. This didn't exceed Ma Jia and others' expectations—she hadn't spoken on public affairs for a long time.
+Though the atmosphere wasn't as warm as he'd imagined, the first shot had been fired. The next person to raise a hand was Cheng Yongxin. This didn't surprise Ma Jia or Dong Shiye—she hadn't spoken on public affairs for quite some time.
 
-Cheng Yongxin, ever since tumbling in the Maid Case, and hoping to fan the flames by using the Trouble in Lingao matter. After a round of tossing, it wasn't that she didn't gain any benefit at all; at least she was a famous figure in news media now. She very carefully maintained a distance from Du Wen in XX Rights causes, avoiding someone comparing her with Du Wen.
+Cheng Yongxin had stumbled over the Maid Case and tried to use the Trouble in Lingao affair to fan flames to her advantage. After all that maneuvering, she hadn't come away empty-handed—at least she was now a prominent figure in news media. She carefully maintained distance from Du Wen in certain causes, avoiding unfavorable comparisons.
 
-Although her attempt to enter media and influence media was somewhat realized, Ma Jia knew Miss Cheng not long ago XXXXX. Said to be physically and mentally XXXX, once XXXX, finally although XXXX, settling this XX, but XXXX recovering state of mind, so recently had been not very active, belonging to a dormant state.
+Though her attempt to enter and influence media had been partially realized, Ma Jia knew that not long ago Miss Cheng had suffered certain personal difficulties. She was said to be recovering both physically and mentally, and had recently been in a dormant state.
 
-Speaking at the hearing this time was obviously a signal of her preparing to return to the stage.
+Speaking at this hearing was clearly a signal that she was preparing to return to the stage.
 
-Cheng Yongxin's face was slightly pale. After going on stage she first asked Xie Erren a few questions—all about Cai Lan, including how he took in Cai Lan, and how he thought of keeping her by his side.
+Cheng Yongxin's face was slightly pale. After taking the podium, she first asked Xie Erren several questions—all concerning Cai Lan, including how he had taken her in and why he kept her by his side.
 
-Although these were contents in the report, Xie Erren answered one by one.
+Though these details were in the report, Xie Erren answered each question.
 
-"Fellow Senators," Cheng Yongxin generally didn't use the address "Comrade", "I want to draw everyone's attention to Cai Lan in this case. Although she has now been identified as one of the main participants in the Wuzhou disturbance, and even committed suicide before our investigation team went. However, should we think in reverse, why did she participate in this disturbance?"
+"Fellow Senators," Cheng Yongxin generally didn't use the address "Comrade," "I want to draw everyone's attention to Cai Lan in this case. Although she has been identified as one of the main participants in the Wuzhou disturbance, and even took her own life before our investigation team arrived, should we not consider why she participated in the first place?"
 
-Everyone widened their eyes, thinking *what is she saying like this?*
+Everyone's eyes widened. *What is she getting at?*
 
-"...Cai Lan assassinating a Senator was originally a serious crime. But since the assassination failed, and Senator Xie used the Senator power in his hand to pardon her crime, then she should have been settled separately or released directly according to relevant regulations. Why take Cai Lan into the room like an object? Could it be that for certain Senators thinking with the lower body, the only function of XX is meat X tool (sex toy)?!"
+"...Cai Lan's assassination attempt on a Senator was certainly a serious crime. But since the attempt failed, and Senator Xie used his authority to pardon her, she should have been properly processed or released according to regulations. Why was Cai Lan taken in like a possession? Could it be that for certain Senators who think with their lower bodies, the only function of women is as objects for their pleasure?"
 
-Ma Jia nodded slightly. Cheng Yongxin's words were not wrong. On the matter of Cai Lan, Xie Erren had serious problems—could even say, many problems of the Wuzhou incident came from his improper handling of Cai Lan! Although her intention might not be here, the observational power to grasp key points was still online.
+Ma Jia nodded slightly. Cheng Yongxin's point wasn't wrong. On the matter of Cai Lan, Xie Erren had serious problems—arguably, many of Wuzhou's troubles stemmed from his improper handling of her. Though her intentions might lie elsewhere, her ability to identify the key issue remained sharp.
 
-Cheng Yongxin continued: "Disrespecting XX, objectifying XX, casually degrading and playing with XX has already become common practice within the Senate, and has even formed a kind of unspoken rule, while the broad XX Senators can only swallow their anger..."
+Cheng Yongxin continued: "Disrespecting women, objectifying them, casually degrading and toying with them has become common practice within the Senate—it has even formed into an unspoken rule, while female Senators can only swallow their grievances in silence..."
 
-Ma Jia knocked the gavel, reminding: "Ms. Cheng, please pay attention to your speech content. We don't oppose everyone expressing opinions freely, but please surround the theme, don't stray too far."
+Ma Jia rapped the gavel. "Ms. Cheng, please keep your remarks on topic. We don't oppose free expression of opinion, but please stay focused. Don't stray too far."
 
-"I am expressing my personal thoughts here. Making you unhappy is really very sorry." Cheng Yongxin spoke with sarcasm, "Fine, since present Senators don't like to hear this, then I will talk surrounding the theme."
+"I'm expressing my personal views. If that makes you uncomfortable, I apologize." Cheng Yongxin's voice dripped with sarcasm. "Fine. Since the present Senators don't care to hear this, I'll confine myself to the topic at hand."
 
-"The reason why Cai Lan participated in the disturbance was that Cai Lan couldn't bear Mr. Xie Erren's mental and physical abuse of her!" Speaking of this, her emotions became somewhat agitated, "This facilitated Cai Lan finally throwing herself to the enemy..."
+"The reason Cai Lan participated in the disturbance was that she could no longer endure Mr. Xie Erren's mental and physical abuse!" Her voice grew agitated. "This is what ultimately drove Cai Lan into the enemy's arms..."
 
-Next Cheng Yongxin conducted concentrated strafing on Xie Erren, almost directly putting several hats of "Scum", "Sex X", "Abuse X" on him. Everyone felt somewhat puzzled; how did Cheng Yongxin suddenly become so agitated? Just short of weeping while speaking.
+Cheng Yongxin proceeded to deliver a concentrated barrage against Xie Erren, all but directly labeling him "Scum" and worse. Everyone found themselves puzzled—why had she suddenly become so emotional? She seemed on the verge of tears.
 
-"...I feel very strange. A person like Mr. Xie Erren whose ability is worrying, and whose moral standard I don't want to comment on, exactly how did he become the local administrative chief of an important city? He has absolutely no administrative experience at all, and his education has no professional background. Behind this, exactly who is acting as his promoter and protective umbrella? Also, Liu Youwang who played an extremely vile role in the case, such a morally corrupt villain, actually grandly became the officer managing a prisoner camp. I feel strange: on what basis does the Senate's Human Resources Department select and appoint? These are all what we should clarify. I propose conducting an independent investigation into these departments and individuals! If necessary, propose convening a Senate General Assembly to reorganize the departments!"
+"...I find it truly strange. How did a person like Mr. Xie Erren—whose abilities are questionable at best, and whose moral standards I prefer not to comment on—become the administrative chief of an important city? He has absolutely no administrative experience, and his education lacks any relevant background. Who, exactly, has been acting as his promoter and protective umbrella? Furthermore, Liu Youwang, who played an extremely vile role in this case—such a morally corrupt villain—actually became the officer managing a prisoner camp. On what basis does the Senate's Human Resources Department make its selections and appointments? These are questions we must clarify. I propose an independent investigation into these departments and individuals! If necessary, I propose convening a Senate General Assembly to reorganize them!"
 
-"Is she in the same gang as Hai Lin?" Dong Shiye asked in a low voice.
+"Is she working with Hai Lin?" Dong Shiye asked in a low voice.
 
-"I don't think so." Ma Jia shook his head slightly, "Hai Lin only wants to deal with Ma Qianzhu. She is spraying obviously Ming Lang's department."
+"I don't think so." Ma Jia shook his head slightly. "Hai Lin only wants to go after Ma Qianzhu. She's clearly targeting Ming Lang's department."
 
-"This is wanting to move Ming Lang?"
+"She wants to move Ming Lang?"
 
-"Have some meaning of that." Ma Jia said, "She obviously isn't alone—someone behind is directing. The Personnel Arrangement Department has always been the invisible center of power; people wanting to intervene are truly quite a few."
+"There's something to that effect." Ma Jia said, "She obviously isn't acting alone—someone's directing her from behind. The Personnel Arrangement Department has always been an invisible center of power; there are certainly quite a few people wanting to intervene."
 
-Cheng Yongxin's speech received more applause than Hai Lin. Although everyone wasn't very interested in her accusation of "Objectifying XX", faults of the Personnel Department in selecting and using people in the Wuzhou Incident were obvious.
+Cheng Yongxin's speech received more applause than Hai Lin's. Though nobody was particularly interested in her accusations of "objectifying women," the Personnel Department's failures in selecting and placing people in the Wuzhou Incident were obvious.
 
-After continuous warm-up by two people, the atmosphere in the venue became much more enthusiastic. Many people requested to speak again.
+After this warm-up by two speakers, the atmosphere in the hall became considerably more energized. Many more requested to speak.
 
-"Now it's lively." Ma Jia said to Dong Shiye, "Today's hearing will be a protracted war."
+"Now things are getting lively," Ma Jia said to Dong Shiye. "Today's hearing will be a war of attrition."
 
-The third Senator to speak wasn't very familiar to Ma Jia and Dong Shiye. Because usually this person's name was rarely seen appearing in meetings or newspapers and journals. Should be an ordinary Senator who rarely mixed in Senate politics, position not high, focusing on his own job.
+The third Senator to speak was someone neither Ma Jia nor Dong Shiye knew well. This person's name rarely appeared in meetings or publications—apparently an ordinary Senator who seldom engaged in Senate politics, not particularly high-ranking, and focused on his own work.
 
-"Regarding the Wuzhou riot matter, I also want to say a few words." He wiped his head with a handkerchief, obviously not quite suitable for such occasions, "The matter itself is already stated very clearly in the report. I personally have no questions. Mainly want to express personal views on this incident."
+"Regarding the Wuzhou riot, I also want to say a few words." He mopped his brow with a handkerchief, clearly uncomfortable in such settings. "The matter itself is explained clearly enough in the report. I personally have no questions. I mainly want to express my personal views on this incident."
 
 **(End of Chapter)**

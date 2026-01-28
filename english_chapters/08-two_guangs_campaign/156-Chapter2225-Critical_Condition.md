@@ -8,13 +8,13 @@ In the meeting room—a converted flower hall—You Ciren drank the sugar water 
 
 "The County Magistrate planned for everything—except that Sun Dabiao would go for mutual annihilation!" You Ciren said bitterly.
 
-Luo Yiming tried to calm him: "Easy now. Since Sun Dabiao wouldn't drink the toast to peace, he'll have to drink the forfeit. The way I see it, this is for the better: a menace like that—better a short pain than a long one. Wipe him out completely."
+Luo Yiming tried to calm him. "Easy now. Since Sun Dabiao wouldn't drink the toast to peace, he'll have to drink the forfeit. The way I see it, this is for the better: a menace like that—better a short pain than a long one. Wipe him out completely."
 
 You Ciren nodded and was about to say more when a sharp pain shot through his back. He collapsed onto the reclining chair. Luo Yiming rushed over; there was a charred hole in his back. Ripping away the cloth, he saw an iron pellet embedded deep in the muscle, leaving only a bleeding wound that continued to ooze.
 
 You Ciren had been so focused on fighting and fleeing that he had not even noticed when he was hit.
 
-"You're wounded—go to the Medical Team first." Luo Yiming said. "I'll handle the rest."
+"You're wounded—go to the Medical Team first," Luo Yiming said. "I'll handle the rest."
 
 "First thing: recall Zhen Huan's Mountain Company..."
 
@@ -28,13 +28,13 @@ The Second Squadron and the Yao Provisional Squadron had been completely scatter
 
 Luo Yiming checked his watch—four o'clock now. By regulation, the gates closed at five; the First Platoon sent to relieve the party would also have to be back inside before then. Yet fewer than a third of the Second Squadron and Yao squadron had returned. Many were still on the road or lost in the hills. Before dark, they would likely not all make it back.
 
-After nightfall, men scattered in the wilderness would lose all sense of direction—even locals might not find their way. Much less the Second Squadron troops, who had been recruited from the Pearl River Delta.
+After nightfall, men scattered in the wilderness would lose all sense of direction—even locals might not find their way, much less the Second Squadron troops who had been recruited from the Pearl River Delta.
 
 "Don't close the north gate. Build a temporary barricade outside to protect the gate. Light bonfires outside the north gate to guide them in!"
 
 "That will draw the enemy..."
 
-"Isn't that why you're there—to hold off the enemy?!" Luo Yiming snapped. "Our comrades are out there! They must all come back alive—not become wandering ghosts!"
+"Isn't that why you're there—to hold off the enemy?" Luo Yiming snapped. "Our comrades are out there! They must all come back alive—not become wandering ghosts!"
 
 ---
 
@@ -68,9 +68,9 @@ Since noon—since Zhang Tianbo's uprising—wave after wave of wounded had been
 
 But there was no time to absorb or discuss it. The wounded flooded in until every inch of the station was full. Under the Academy's eaves, in the courtyard—stretchers lay everywhere; the wounded sat or lay on them. Stretcher bearers jostled one another to give them water, while a medic, drenched in sweat, kept shouting: "Abdominal wounds—no water!"
 
-Chen Ruihe was now at the triage table, brow furrowed, straining to hear the patient's history—the ER was deafening; if you didn't listen carefully, you couldn't make out a word.
+Chen Ruihe was now at the triage table, brow furrowed, straining to hear the patient's history—the ER was deafening; if you did not listen carefully, you could not make out a word.
 
-"You lot—wait your turn! I don't care what rank you are—save your lieutenant and captain business for the barracks! This is a Medical Station—who do you think you're pushing around?! You there—help the wounded onto that bed, head to the left!" Chen Ruihe bellowed, driving back an officer who was trying to cut in line, and directing soldiers to move a casualty onto the examination bed.
+"You lot—wait your turn! I don't care what rank you are—save your lieutenant and captain business for the barracks! This is a Medical Station—who do you think you're pushing around? You there—help the wounded onto that bed, head to the left!" Chen Ruihe bellowed, driving back an officer who was trying to cut in line, and directing soldiers to move a casualty onto the examination bed.
 
 Wang Chuyi was brought in at the height of the chaos.
 
@@ -104,11 +104,11 @@ Still, as County Magistrate, Wang Chuyi was a high-ranking naturalized cadre. "S
 
 Too much blood had been lost to immediately tell whether the femoral artery was injured. Chen Ruihe picked up scissors and cut away the trouser leg to expose the wound.
 
-He turned to the two stretcher bearers: "This man has lost too much blood. If we don't transfuse immediately, he'll die! Do either of you know your blood type?"
+He turned to the two stretcher bearers. "This man has lost too much blood. If we don't transfuse immediately, he'll die. Do either of you know your blood type?"
 
 "Blood type...?" The two bearers looked at each other blankly and shook their heads.
 
-Chen Ruihe felt a flash of frustration: "Have you heard of blood transfusion? We're short-handed—we may need you two to donate blood!"
+Chen Ruihe felt a flash of frustration. "Have you heard of blood transfusion? We're short-handed—we may need you two to donate blood!"
 
 Before deployment, the Fubo Army and the National Army recruits from Hainan had all been blood-typed; their types were sewn onto cloth tags on their uniforms for rapid matching if wounded. But the National Army units raised in Guangdong were a mixed bag—not everyone had a blood-type tag; only a portion did.
 

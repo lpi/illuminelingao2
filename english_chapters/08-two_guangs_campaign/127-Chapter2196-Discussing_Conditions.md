@@ -1,89 +1,89 @@
 # Chapter 2196 - Discussing Conditions
 
-Great Ming's policy of pacifying Yao had great randomness, often depending on the personal ability of local officials. However, in peaceful times, the attitude of local officials towards Yao people was often two extremes. One was: "Liangguang officials only strive for temporary ease, with no military preparations," turning a blind eye to various small-scale looting and infringements by Yao people, even suppressing local commoners and not allowing them to sue. Even after Yao people rose to riot and looted wantonly, local officials were helpless and could only "prepare red flowers, beef, and wine to soothe them." The second extreme was the opposite, extorting and blackmailing the Yao stockades that had already been pacified in every way, exploiting and humiliating them, "even bullying their remoteness and lack of appeal, picking quarrels cruelly, inverting right and wrong, both harming their lives and thwarting their nature."
+Great Ming's policy toward Yao pacification exhibited profound inconsistency, frequently depending on individual officials' capabilities. During peacetime, local authorities' attitudes toward Yao populations typically oscillated between two extremes. The first: "Liangguang officials strive only for temporary tranquility, maintaining no military preparedness," turning blind eyes to various small-scale Yao raids and encroachments, even suppressing local commoners and prohibiting legal complaints. Even when Yao forces rose in rebellion and plundered extensively, local officials proved helpless, capable only of "preparing red flowers, beef, and wine for appeasement." The second extreme proved precisely opposite—extorting and blackmailing already-pacified Yao stockades through every available means, exploiting and humiliating them, "even exploiting their remoteness and inability to appeal, manufacturing cruel provocations, inverting right and wrong, both destroying their livelihoods and frustrating their nature."
 
-Li Sanjiu had been beside *Lang* people Tusi for a long time and knew much about the mentality and style of Great Ming officials. In his view, since Australians called themselves Great Song, they were also Han people—he knew the style of Han officials too well.
+Li Sanjiu had served beside Lang people Tusi extensively and understood Great Ming officials' mentality and methods thoroughly. From his perspective, since Australians styled themselves Great Song, they too constituted Han people—he knew Han officials' patterns all too well.
 
-In his more than ten years of military experience, whenever generals sent troops to fight, unless the military power was dangerous, it was invariably a good opportunity to get rich. This Australian "Great Song" was probably also like this. This Lianzhou City, after all, belonged to Great Ming. Great Song's generals had no responsibility to defend the soil, so they probably wouldn't go to rescue very enthusiastically—they were so fast, nothing more than fancying the children, jade, and silk in the city. This matter, he, Li Sanjiu, wasn't unable to discuss. Don't look at Yao people going down the mountain to loot every few days; what they actually sought was nothing more than daily necessities like salt, grain, and iron. As for other items, if this Australian officer covered them, it wasn't impossible for him to part with them—compared to his ambition, what did this little children, jade, and silk count for?
+Throughout his decade-plus military career, whenever generals dispatched troops for combat, unless military circumstances proved dire, such deployments invariably presented excellent opportunities for enrichment. These Australian "Great Song" forces likely followed similar patterns. Lianzhou City, after all, belonged to Great Ming. Great Song's generals bore no responsibility for defending this territory, so they probably wouldn't mount particularly enthusiastic rescue operations—their rapid deployment aimed merely at coveting the city's valuables, jade, and silk. This matter—he, Li Sanjiu, could certainly negotiate. Though Yao people descended from mountains to raid every few days, what they truly sought amounted to nothing beyond daily necessities like salt, grain, and iron implements. As for other items, should this Australian officer desire them, parting with such treasures wasn't impossible—compared to his ambitions, what did such trinkets matter?
 
-If Australians wanted to pacify, he would submit. Not only submit, but also send a large amount of gifts. If Australians wanted to suppress, he would drill into the big mountains and fight guerrilla warfare with them, making Australians have a headache—finally having to pacify.
+Should Australians desire pacification, he'd submit. Not merely submit, but present substantial gifts. Should Australians prefer suppression, he'd retreat to the deep mountains and wage guerrilla warfare, giving Australians endless headaches—ultimately forcing pacification.
 
-Since the Australians had already come, he also had to express his sincerity.
+Since the Australians had already arrived, he must demonstrate sincerity.
 
-He found a confidant with good water skills, whispered a few sentences, and let him swim across to the west bank.
+He located a trusted confidant with strong swimming skills, whispered several instructions, and dispatched him to swim across to the western bank.
 
-Huang Chao heard an envoy came to see him. He really couldn't believe it a bit: this rebel leader would actively look for him to negotiate peace.
+When Huang Chao heard an envoy wished to see him, he could scarcely credit it: the rebel leader actively seeking peace negotiations?
 
-The Eight Row Yao riots in history lasted long and affected a large range, showing the leaders' attitude was very "firm." Why, when it came to his place, the other party wanted to come to discuss pacification so quickly?
+Historically, Eight Row Yao uprisings persisted extensively and affected substantial territories, demonstrating leaders' exceedingly "resolute" attitudes. Why, in his case, did the opposition seek pacification discussions so rapidly?
 
-In Huang Chao's heart, naturally, he hoped to fight less and die fewer people. The other party asking for peace talks was not inappropriate—at least he could listen to the other party's thoughts and incidentally understand the details.
+In Huang Chao's heart, naturally he hoped to minimize combat and casualties. The enemy requesting peace talks wasn't inappropriate—at minimum he could learn their thinking while incidentally gathering details.
 
-Guards escorted the searched envoy in. The envoy was also obedient; entering the tent, he immediately knelt and kowtowed, reporting his name as Li Wu, coming to see "Great Song General" by order of "Lianyang Yao Stockade General Palm Matter Head Li Sanjiu."
+Guards escorted the searched envoy inside. The emissary proved obedient; entering the tent, he immediately knelt and kowtowed, identifying himself as Li Wu, dispatched to meet the "Great Song General" by order of "Lianyang Yao Stockade General Palm Matter Head Li Sanjiu."
 
-Naturally, this title of Li Sanjiu was compiled by himself. Although the Eight Row Yao troops under Lianzhou City were all commanded by him, he was just a temporary coalition commander. Except for Majian Row's able-bodied men, able-bodied men of other rows all had their own Palm Matter Heads. Fighting wars was "listening to dispatch but not announcement."
+Naturally, Li Sanjiu had invented this title himself. Though all Eight Row Yao troops beneath Lianzhou answered to his command, he remained merely a temporary coalition commander. Beyond Majian Row's fighters, other Rows' able-bodied men maintained their own Palm Matter Heads. For warfare purposes, they "obeyed deployment but not proclamation."
 
-"Stand up and speak." Huang Chao looked at the comer. Short and shrewd, able to speak fluent Guangdong Mandarin, obviously not an ordinary Yao person.
+"Rise and speak." Huang Chao studied the arrival. Short and shrewd, speaking fluent Guangdong Mandarin—obviously no ordinary Yao person.
 
-He already knew the name Li Sanjiu from the mouths of Yonghua Township Yao people. But their news was relatively simple, only knowing this person "had been an official" and only returned to Majian Row not long ago, being very trusted. This troop dispatch was all managed by him generally.
+He already knew Li Sanjiu's name from Yonghua Township Yao interrogations. However, their intelligence remained relatively sparse, establishing only that this individual "had served as an official" and returned to Majian Row only recently, enjoying considerable trust. This military deployment bore his general management throughout.
 
-Li Wu got up respectfully, his heart settled halfway—although there was the saying "don't kill envoys," during war, being an envoy was a high-risk profession. Maybe one would be beheaded as a spy; such things happened often in the past.
+Li Wu rose respectfully, his anxiety diminishing halfway—though the saying went "don't kill envoys," during warfare serving as emissary constituted extremely hazardous profession. One might easily be executed as a spy; such incidents occurred frequently historically.
 
-He secretly sized up "Great Song General" in the tent. He saw the tent was crowded with people darkly. There were neither "Tiger Table" nor "Flags and Plaques of Royal Order." As for the man surrounded sitting behind a big table, he also had no general's style at all. An ordinary man, wearing Australian coarse cloth jacket, neither wearing armor nor gauze cap and boots and robe. If not for opening his mouth to ask questions, he simply couldn't recognize him from a pile of people. He followed Li Sanjiu to fight back then and saw the pomp of Great Ming generals. In comparison, this Great Song General was tight with shabbiness.
+He covertly assessed the "Great Song General" within the tent. The structure teemed with crowded figures. No "Tiger Table" or "Flags and Plaques of Royal Command" appeared. As for the man seated behind a large table surrounded by others, he likewise exhibited no general's bearing whatsoever. An ordinary figure wearing Australian coarse cloth jacket, neither donning armor nor gauze cap, boots, or formal robes. Had he not spoken to pose questions, identifying him among the assembled masses would prove impossible. Having campaigned beside Li Sanjiu previously, he'd witnessed Great Ming generals' ostentatious displays. By comparison, this Great Song General radiated stark austerity.
 
-"I am Great Song Lianyang Recruitment and Pacification Commissioner concurrent Prefect of Lianzhou Military Affairs Huang Chao," Huang Chao read his official title in one breath. "Since you came by order, what exactly do you want to say? Just say it!"
+"I am Great Song Lianyang Recruitment and Pacification Commissioner, concurrent Director of Lianzhou Military Affairs, Huang Chao," Huang Chao announced his official title in a single breath. "Since you come bearing orders, state your business plainly!"
 
-Li Wu was a bit nervous. He looked up slightly and saw quite a few people squeezed in the tent darkly. He recognized a few people: Tianchang Gong and Palm Matter Heads of several stockades of Yonghua Yao people—he was slightly stunned. Didn't these Yonghua Yao people already submit to Li Sanjiu? How did they turn around and surrender to Australians? Could it be that the Yangshan side had already completely lost?
+Li Wu felt somewhat nervous. Glancing upward slightly, he observed numerous figures crowding the tent's interior. He recognized several individuals: Tianchang Gong and Palm Matter Heads from various Yonghua Yao stockades—momentary shock registered. Hadn't these Yonghua Yao people already submitted to Li Sanjiu? How had they reversed course to surrender to the Australians? Could Yangshan have already fallen completely?
 
-Surprised as he was, Li Wu still tried his best to maintain calm, only his attitude when speaking became a few points more humble:
+Despite his surprise, Li Wu strove to maintain composure, merely adopting several degrees more humility when speaking:
 
-"Our Palm Matter Head said: Great Song also fights the Ming Kingdom. Our Lianyang Yao people also don't want to receive the jurisdiction of the Ming Kingdom, so we rose to rebel. Lianyang Yao people have no intention to be enemies with Great Song. If the General is willing to help us break Lianzhou City, we Eight Row Yao people don't want any of the children, jade, and silk in the city, all offering to the General. We only ask to allow us to transport away salt, grain, and iron tools in the city. Lianzhou City also belongs to Great Song's jurisdiction."
+"Our Palm Matter Head declares: Great Song likewise opposes the Ming Kingdom. Our Lianyang Yao people similarly refuse Ming Kingdom jurisdiction, hence our uprising. Lianyang Yao people harbor no intention of antagonizing Great Song. Should the General consent to assist breaking Lianzhou City, we Eight Row Yao desire none of the city's valuables, jade, or silk—all offered to the General. We request only permission to transport away salt, grain, and iron implements from the city. Lianzhou City shall belong to Great Song's jurisdiction."
 
-This condition, according to Li Sanjiu's view, was very generous—compared to wealth, he now valued "name" more. As long as Great Song could acknowledge his power to rule the Lianyang area, what did a mere Lianzhou City count for?
+According to Li Sanjiu's calculations, this condition proved exceedingly generous—compared to wealth, he now valued "legitimacy" more highly. Provided Great Song acknowledged his authority to govern the Lianyang region, what significance did mere Lianzhou City possess?
 
-*I want it all.* Huang Chao almost blurted out this sentence. If he really wanted to grab Lianzhou City, he didn't need to help Eight Row Yao; he could handle it just relying on the National Army. But grabbing was impossible. The Fubo Army wasn't the Ming army that would do anything.
+*I want everything.* Huang Chao nearly voiced this sentiment aloud. Should he truly wish to seize Lianzhou City, he required no Eight Row Yao assistance; relying solely on National Army forces would suffice. Yet seizing proved impossible. The Fubo Army differed fundamentally from Ming forces who'd commit any atrocity.
 
-"Absurd! Truly absurd! You barbarians also dare to come to discuss conditions with our Great Song." Zhou Liangchen jumped up. Don't look at his short time of surrendering and his seniority being below various naturalized citizens in the command, in attitude, he feared he wasn't "firm" enough. This time he followed Huang Chao to Lianzhou, although only as an "Advisor," no one discussed specific situations with him. But from Huang Chao and others' usual talk and arrangement, he knew Australians were definitely not masters willing to fudge with "recruitment and pacification" for temporary peace. So at this moment, he immediately stepped forward to rebuke the envoy.
+"Preposterous! Utterly preposterous! You barbarians dare present conditions to our Great Song?" Zhou Liangchen leapt up. Despite his recent submission and seniority ranking below various naturalized officials in the command structure, regarding attitude, he feared appearing insufficiently "resolute." Accompanying Huang Chao to Lianzhou this time, though merely serving as "Advisor," none consulted him on specific circumstances. Yet from Huang Chao and others' customary discussions and arrangements, he understood Australians absolutely weren't masters willing to compromise with "recruitment and pacification" for temporary tranquility. Therefore at this moment he immediately advanced to rebuke the envoy.
 
-Huang Chao signaled him not to interrupt. Zhou Liangchen shut his mouth tactfully immediately.
+Huang Chao signaled him against interrupting. Zhou Liangchen tactfully fell silent immediately.
 
-"Is there anything else?" Huang Chao ignored the first condition mentioned by Li Wu for the time being, wondering what else Eight Row Yao wanted.
+"Anything else?" Huang Chao ignored Li Wu's initially mentioned condition for the present, wondering what additional Eight Row Yao demands existed.
 
-"As long as Great Song is willing to canonize our Ma Jian Row's Li Sanjiu as the Native Subprefect of Lianyang Three Cities, hereditary without replacement, he will immediately lead Eight Rows and Twenty-Four Hollows to submit to Great Song. Lianzhou City will also be offered with both hands, without wanting any war trophies."
+"Provided Great Song consents to canonize our Majian Row's Li Sanjiu as Native Subprefect governing Lianyang's Three Cities, hereditary and irreplaceable, he shall immediately lead the Eight Rows and Twenty-Four Hollows in submitting to Great Song. Lianzhou City shall likewise be offered freely, desiring no war spoils whatsoever."
 
-This condition made Huang Chao laugh and cry. Seeing Zhou Liangchen looking eager to try, he winked at him.
+This condition left Huang Chao torn between laughter and tears. Observing Zhou Liangchen appearing eager to intervene, he winked at him.
 
-"Being a Subprefect, funny. Is that Li Sanjiu literate?"
+"Becoming Subprefect—amusing. Can this Li Sanjiu even read and write?"
 
-"Not being a Subprefect is also fine. Tusi, Lianzhou Pacification Commissioner also work—whatever title Great Song is willing to confer is fine."
+"Subprefect remains unnecessary. Tusi, Lianzhou Pacification Commissioner—either suffices. Whatever title Great Song proves willing to confer works perfectly."
 
-Huang Chao shook his head secretly: If conferring a Tusi could stabilize a region and comfort the people, there wouldn't be the Bozhou Riot, She-An Riot, and Sha-Pu Riot continuously in the late Ming, and the Qing Dynasty in the old timeline wouldn't need to carry out Reform of Native Chieftains (Gaitu Guiliu) and conquer Jinchuan.
+Huang Chao shook his head internally: Were conferring Tusi capable of stabilizing regions and pacifying populations, the late Ming wouldn't have witnessed successive Bozhou, She-An, and Sha-Pu Rebellions, nor would the Qing Dynasty in the original timeline have required implementing Native Chieftain Reforms (Gaitu Guiliu) and conquering Jinchuan.
 
-The leash system like Tusi, in the final analysis, was a "last resort" method under the state of insufficient strength. It could gain temporary peace in the short term, but in the long term, it would inevitably become too big to control.
+Systems resembling Tusi governance, fundamentally, constituted "desperate measures" employed under insufficient strength circumstances. They might secure temporary peace short-term, yet long-term inevitably became uncontrollable behemoths.
 
-"You go down first." Huang Chao didn't answer his proposal. He waved his hand and let guards take Li Wu down. Then he signaled a group of surrendered people to all go out, leaving only naturalized cadres.
+"Withdraw temporarily." Huang Chao declined answering his proposal. He waved, signaling guards to escort Li Wu out. Then he indicated the assembled surrendered personnel should all depart, retaining only naturalized cadres.
 
-"What do you think of this Li Sanjiu's suggestion?"
+"What are your thoughts regarding this Li Sanjiu's proposal?"
 
-"Naturally, it cannot be agreed to." Yang Zeng said, "If agreed, what are we still doing here?!"
+"Naturally it cannot be accepted," Yang Zeng stated. "Were we to agree, what purpose does our presence here serve?!"
 
-"Correct. However, it can be seen his appetite isn't small."
+"Precisely. However, one observes his appetite proves hardly modest."
 
-"Chief, I think this matter can be utilized."
+"Chief, I believe this matter offers potential utility."
 
-The speaker was named Fu Debang, the naturalized Lianzhou County Magistrate preparing to take office in Lianzhou.
+The speaker was Fu Debang, the naturalized Lianzhou County Magistrate preparing to assume office in Lianzhou.
 
-He suggested agreeing to Li Sanjiu's condition for request of title first to exchange for relieving the siege of Lianzhou. Wait until their vigilance weakened, then take the opportunity of "canonization" to catch them all in one net.
+He proposed superficially agreeing to Li Sanjiu's title request to exchange for lifting Lianzhou's siege. Once their vigilance diminished, seize the "canonization" opportunity to capture them all in one sweep.
 
-Huang Chao shook his head repeatedly: "This matter is inappropriate."
+Huang Chao shook his head repeatedly: "This approach proves inadvisable."
 
-Fu Debang still lacked a trace of cautious sensitivity in politics. From the perspective of stratagem, this could be considered an excellent strategy. However, they were not mountain bandits or pirates; they couldn't trample on faith and righteousness without bottom line like this. Rulers should cherish their feathers as much as possible and do fewer treacherous deeds. Fu Debang still had deficiencies in this aspect; he should point it out to him when there was a chance.
+Fu Debang still lacked a certain cautious political sensitivity. From strategic perspective, this could qualify as excellent tactics. However, they weren't mountain bandits or pirates; they couldn't trample faith and righteousness so shamelessly. Rulers should cherish their reputations maximally and minimize treacherous conduct. Fu Debang exhibited deficiencies in this aspect; he should counsel him when opportunity arose.
 
-"Let the Li-Miao Working Team find someone to interrogate this Li Wu properly," Huang Chao said. "Especially this Li Sanjiu's personal situation."
+"Have the Li-Miao Working Team arrange thorough interrogation of this Li Wu," Huang Chao directed. "Particularly regarding Li Sanjiu's personal background."
 
-Then he let others retreat, leaving only Yang Zeng to discuss the combat strategy. The two studied the map. The West Bank River and Xingzi River converged into the Lian River west of Lianzhou City. Except for a few mountains like Yanxi Mountain, North Mountain, and Jinfeng Mountain, the vicinity of Lianzhou City was flat land. Yang Zeng's plan was: except leaving one National Army unit to guard the Lian River ferry, the remaining troops would cross the West Bank River to the north first, then cross the Xingzi River to the east, with a company of Fubo Army as the vanguard, outflanking and surrounding Yanxi Mountain.
+Then he dismissed the others, retaining only Yang Zeng to discuss combat strategy. The two studied the map. West Bank River and Xingzi River converged forming Lian River west of Lianzhou City. Apart from several mountains including Yanxi Mountain, North Mountain, and Jinfeng Mountain, Lianzhou City's vicinity consisted of flatlands. Yang Zeng's plan involved: beyond leaving one National Army unit guarding Lian River ferries, remaining forces would cross West Bank River northward first, then traverse Xingzi River eastward, deploying a Fubo Army company as vanguard, outflanking and encircling Yanxi Mountain.
 
-The reason for choosing to cross West Bank and Xingzi Rivers from the north instead of crossing the river at the Lian River in the south was that the West Bank River and Xingzi River were narrow in width, shallow in depth, and small in flow, convenient for building temporary floating bridges to let large units pass quickly. The structure of the prepared floating bridge was very simple, using collected small boats as bases and covering with wooden boards—even without equipping engineers, it wasn't a difficult thing.
+The rationale for selecting northern crossings of West Bank and Xingzi Rivers rather than southern Lian River crossings was that West Bank River and Xingzi River exhibited narrow widths, shallow depths, and minimal currents—convenient for constructing temporary pontoon bridges enabling rapid large-unit transit. The prepared pontoon bridge structure proved exceedingly simple, utilizing collected small boats as foundations overlaid with planking—even lacking engineer units, this presented no significant challenge.
 
-"This battle actually has no difficulty. Their equipment level is very poor—not even as good as Ming troops, and not many firearms." Yang Zeng said, "The key point is to annihilate completely. Annihilating this main force of Eight Row Yao, Eight Row Yao will have no conditions to discuss recruitment and pacification—only surrender."
+"This battle actually presents minimal difficulty. Their equipment quality proves extremely poor—inferior even to Ming forces, with limited firearms," Yang Zeng observed. "The critical objective involves complete annihilation. Destroying this Eight Row Yao main force, they'll possess no position for negotiating recruitment and pacification—only surrender."
 
-Minority nationalities fighting wars often had all able-bodied men coming out. Often the mobilization rate was very high; very few population could pull out a large number of men and horses. However, once annihilated, they would lose the ability to sustain combat.
+Minority populations conducting warfare typically deployed all able-bodied men. Mobilization rates frequently ran exceedingly high; minimal populations could field substantial forces. However, once annihilated, they'd forfeit sustained combat capability entirely.

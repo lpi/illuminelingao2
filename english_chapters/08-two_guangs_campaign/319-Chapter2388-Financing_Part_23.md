@@ -2,7 +2,7 @@
 
 Land reclamation wasn't an easy task. No matter how Zhou Wei and his partners promoted the richness of the Mekong Delta's land, the reality was that in the 17th century, most of this area was still a desolate tropical jungle.
 
-Developed farmland certainly existed, but the quantity was limited. This former territory of Water Chenla had Ming people migrating to settle and cultivate since the 15th century, but the real large-scale development had to wait until the Ming-Qing transition when large numbers of Ming loyalist refugees poured in.
+Developed farmland certainly existed, but the quantity was limited. This former territory of Water Chenla had seen Ming people migrating to settle and cultivate since the 15th century, but the real large-scale development had to wait until the Ming-Qing transition when large numbers of Ming loyalist refugees poured in.
 
 Currently, there was mature farmland, but the area and output of these mature lands still had a big gap from the Senate's expectations. This involved two major issues: agricultural inputs and land reclamation.
 
@@ -48,7 +48,7 @@ Of course, there was also a portion of people firmly demanding recognition of pr
 
 Liu Xiang knew that in the short term, the Senate's land policy couldn't be decided. However, this time the Administrative Affairs Yuan opened another door. But he didn't know exactly what door, because this power was currently only granted to the Nanyang Company. If used properly, the specific approach would be promoted to Taiwan and southern Qiongzhou regions, replacing all the temporary policies currently in various places due to increased land from reclamation.
 
-Zhou Wei got the endorsement and continued: "Moreover, even if a new land policy doesn't come out soon... then our Nanyang Company subsidiary colony can handle things on a special case-by-case basis first! Otherwise, what use is this red-header document I'm holding?" With that, he took out a copy of the Nanyang Company approval document from his briefcase and began explaining to the other Senators the scope of "act as appropriate" powers granted by this imperial edict in his hands...
+Zhou Wei got the endorsement and continued. "Moreover, even if a new land policy doesn't come out soon... then our Nanyang Company subsidiary colony can handle things on a special case-by-case basis first! Otherwise, what use is this red-header document I'm holding?" With that, he took out a copy of the Nanyang Company approval document from his briefcase and began explaining to the other Senators the scope of "act as appropriate" powers granted by this imperial edict in his hands...
 
 Specifically, it meant granting migrants "colonization rights." Land in colonies organized and occupied by the Nanyang Company would be distributed by the Nanyang Company to migrants in the name of "colonization rights." After migrants occupied this land, they could obtain a twenty-five-year share contract. If the land distributed was wasteland, the first five years were share-free. From the sixth year, they would pay shares to the Nanyang Company. The share ratio varied based on location, land condition, and other factors. Migrants didn't need to pay agricultural tax besides the shares.
 
@@ -62,11 +62,11 @@ To put it plainly, this was still a temporary measure. However, this measure was
 
 "...This proposal has already been approved, but if everyone still has specific opinions and suggestions, feel free to raise them. As the implementing party, we can make minor adjustments—of course, subject to Administrative Affairs Yuan approval." Zhou Wei said quite humbly.
 
-"Wow, your power is not small!" Liu Xiang exclaimed after hearing Zhou Wei's introduction: "I was still wondering whether I should request to be Governor of Jiaozhou, go take back the three southern commanderies. But now, looking at your development rights, I want to work on the Annan Protectorate."
+"Wow, your power is not small!" Liu Xiang exclaimed after hearing Zhou Wei's introduction. "I was still wondering whether I should request to be Governor of Jiaozhou, go take back the three southern commanderies. But now, looking at your development rights, I want to work on the Annan Protectorate."
 
-Zhou Wei was shocked in his heart upon hearing this: how is he already eyeing the administrative power of the colonies? But his face showed a flattering smile: "Old Liu, what are you saying! If you were willing to come join the Nanyang Company for business, our entire company up and down would definitely applaud in welcome!"
+Zhou Wei was shocked in his heart upon hearing this: how is he already eyeing the administrative power of the colonies? But his face showed a flattering smile. "Old Liu, what are you saying! If you were willing to come join the Nanyang Company for business, our entire company up and down would definitely applaud in welcome!"
 
-Liu Xiang seemed not to have heard this, waved his hand at Zhou Wei and said: "Don't kid around! How can I leave now? The drought is still two more years! Actually, I say, in terms of natural conditions, the Red River Plain has more value as a grain region than the Mekong River mouth. After all, one is tropical monsoon climate, the other is tropical rainforest climate. But the Red River Plain's difficulty is in conquest; the Mekong River mouth's difficulty is in development. Conquering a regime requires more work, is more complex—it's about fighting with people!" Liu Xiang paused: "Your Mekong River mouth colonization direction is more about fighting with heaven and earth. Consider it practice. We will fully support on this end. Hope you can establish a foothold and lay a good foundation for future development."
+Liu Xiang seemed not to have heard this, waved his hand at Zhou Wei and said, "Don't kid around! How can I leave now? The drought is still two more years! Actually, I say, in terms of natural conditions, the Red River Plain has more value as a grain region than the Mekong River mouth. After all, one is tropical monsoon climate, the other is tropical rainforest climate. But the Red River Plain's difficulty is in conquest; the Mekong River mouth's difficulty is in development. Conquering a regime requires more work, is more complex—it's about fighting with people!" Liu Xiang paused. "Your Mekong River mouth colonization direction is more about fighting with heaven and earth. Consider it practice. We will fully support on this end. Hope you can establish a foothold and lay a good foundation for future development."
 
 That's it... setting the tone?
 

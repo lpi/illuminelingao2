@@ -1,81 +1,81 @@
 # Chapter 2454 - Like Walking in a Painting
 
-Due to the roadbed and locomotive, although the Lingao City Rail was standard gauge, its maximum speed was only 30 kilometers per hour, and it usually ran at 15-20 kilometers per hour. By the standards of the old timeline, this speed was close to that of a sightseeing train in a theme park. But for passengers taking the city rail for the first time, it could be called "swift as the wind and lightning." As soon as the train started, many people in every carriage surged to the windows, looking out curiously.
+The Lingao City Rail was standard gauge, but due to roadbed and locomotive limitations, its maximum speed was only thirty kilometers per hour—usually running at fifteen to twenty. By old timeline standards, this was barely faster than a theme park sightseeing train. But for first-time passengers, it felt "swift as wind and lightning." The moment the train started, people in every carriage surged to the windows, gazing out in fascination.
 
-Many members of the inspection group had experience taking the train from Great World to Great East Gate, so relatively speaking, the experience of taking a train was not that new to them. However, the journey from Great East Gate to Great World, although the ruler had changed, was still the appearance of the Great Ming of the past. As for the Great World, to be honest, the big households had gone there often and were somewhat tired of it.
+Many in the inspection group had taken the train from Great World to Great East Gate, so the experience wasn't entirely new. However, that journey—though under new rulers—still showed the appearance of the old Great Ming. And Great World itself, to be honest, had grown somewhat stale for the big households who visited regularly.
 
-At this moment, they sat upright in the proper first-class carriage of the "Lingao City Rail," enjoying the elasticity of the kapok-filled cowhide seats beneath their buttocks. The inner walls of the carriage were spliced with fine wood, inlaid with black ironwork decorative patterns. The glass windows, which gave a sense of openness, although not valuable items, were exquisite and comfortable to use, something they rarely experienced in the past. Just take the sedan chairs everyone rode daily; those hard grandmaster chairs were not as comfortable and fitting as these seats.
+Now they sat properly in a first-class carriage of the "Lingao City Rail," enjoying the springiness of kapok-filled cowhide seats beneath them. The inner walls were spliced from fine wood inlaid with decorative black ironwork patterns. The clear glass windows gave a sense of openness—not expensive items perhaps, but exquisite and comfortable in a way they'd rarely experienced. Even the sedan chairs they rode daily had hard grandmaster chairs that couldn't compare to these seats.
 
-Sitting on such chairs, comfortably admiring the scenery outside the window, was just like the pictures in the "Western Peep Shows" in Guangzhou and on the Australian "pictorials." No, more beautiful than that, completely "Australian scenery."
+Sitting in such comfort while admiring the scenery was like stepping into the pictures in those "Western Peep Shows" in Guangzhou or the Australian "pictorials." No—more beautiful than those. Pure "Australian scenery."
 
-The area along the railway line from Bopu to Ma'ao was originally desolate hills and beaches. After the railway was connected, this area entered a stage of great development. Because the perennial wind direction in Lingao was east, not much industry was deployed in this area; development was basically agriculture and forestry centered on the hilly areas. In addition to supporting some farm owners, several large agricultural and forestry farms were opened. With these farms as the core, residential points and simply processing small enterprises were set up.
+The area along the railway from Bopu to Ma'ao had originally been desolate hills and beaches. After the railway connected, the region entered rapid development. Since Lingao's prevailing winds blew from the east, little industry was placed here; development centered on agriculture and forestry in the hilly areas. Besides supporting some farm owners, several large agricultural and forestry farms had been established, with residential settlements and simple processing enterprises clustered around them.
 
-Shelterbelts were planted on both sides of the railway roadbed to reduce the erosion of the route by the sea breeze. Looking out from the car window, the land along the line had been meticulously developed. Most of the hills were opened up as plantations for various cash crops. Big households with orchards in the countryside could probably tell that some hills were orchards, but they couldn't recognize most of them—many were new varieties brought by the Elders from the old timeline.
+Shelterbelts lined both sides of the railway to reduce erosion from sea winds. Looking out the windows, the land along the line had been meticulously cultivated. Most hills had been developed as plantations for various cash crops. Big households with orchards in the countryside could identify some as fruit orchards, but most plants were unrecognizable—new varieties the Elders had brought from the old timeline.
 
-These plantations grew bananas, citronella, coconuts, coffee, sisal, and tea. In the valleys between the hills, rice and sugarcane farms followed one another. The rice had been harvested, but alfalfa and winter wheat had been planted, and the fields were still full of fresh green. In the sugarcane fields, the late-sown sugarcane had been harvested, and farmers were plowing the land for the February spring sowing of sugarcane.
+These plantations grew bananas, citronella, coconuts, coffee, sisal, and tea. In the valleys between hills, rice and sugarcane farms alternated. The rice had been harvested, but alfalfa and winter wheat had been planted, keeping the fields fresh and green. In the sugarcane fields, the late-sown cane had been cut, and farmers were plowing for February's spring planting.
 
-The land was meticulously managed: irrigation canals radiated in all directions; huge windmills turned slowly, driving piston pumps, elegant and calm; steam pumps emitted black smoke and white steam, making a rhythmic rumbling sound, and occasionally whistling impatiently. The canals were designed according to unified elevation. Where they encountered valleys, rivers, and ponds, the water flowed through aqueducts.
+The land was managed with precision: irrigation canals radiated in all directions. Huge windmills turned slowly, driving piston pumps with elegant calm. Steam pumps belched black smoke and white vapor, making rhythmic rumbling sounds, occasionally whistling impatiently. The canals followed unified elevations; where they crossed valleys, rivers, and ponds, water flowed through aqueducts.
 
-Precious water flowed out from many small ponds built specially between the hills, where rain season water was stored to irrigate fields in the dry season; some was diverted from farther rivers and reservoirs. Some flowed into fields to irrigate crops; some flowed into fish ponds to raise fish and shrimp.
+Precious water flowed from small ponds specially built between hills to store rainy-season water for dry-season irrigation. Some was diverted from distant rivers and reservoirs. It flowed into fields to irrigate crops or into fish ponds to raise fish and shrimp.
 
-In the fields just harvested on one side of the rails, a flock of ducks was walking leisurely, looking for leftover grain and insects; while on the other side, goats wandered on the land near the beach, eating the salt-rich grass growing there.
+On one side of the rails, in newly harvested fields, a flock of ducks wandered leisurely, pecking for leftover grain and insects. On the other side, goats grazed near the beach, eating the salt-rich grass that grew there.
 
-Villages flew past the window from time to time. Each one was like a castle—because it was coastal, the early residential points here were built according to the "Standard Village" designed by Wen Desi; the newly built residential points were not so strict, but they were also straight and square, with neat houses, fully reflecting the Senate's aesthetic taste.
+Villages flew past the windows from time to time. Each resembled a small fortress—since this was a coastal area, the early settlements had been built according to the "Standard Village" design of Wen Desi. Newer settlements weren't quite so strict, but they remained orderly and square, with neat houses, fully reflecting the Senate's aesthetic preferences.
 
-Almost every big household had farmsteads in Guangzhou and even throughout Guangdong, but which one was as quiet and affluent as this? If talking about meticulous care of the fields, the Australians' fields might not count as top-notch, but these canals, these windmills, these roads, and the houses farmers lived in were truly undreamed of. The Senate was truly generous, truly willing to spend money!
+Almost every big household had farmsteads in Guangzhou or elsewhere in Guangdong, but which compared to this quiet affluence? If speaking of meticulous field care, the Australians' farms might not rank among the best. But these canals, these windmills, these roads, and these farmhouses—such things were beyond imagining. The Senate was truly generous, truly willing to spend!
 
-The city rail stopped at small stations along the way from time to time to pick up and drop off guests. The facilities of the small stations were naturally not comparable to Ma'ao, but even the smallest station was tidy and orderly, with station staff commanding and coordinating, arranging everything in perfect order. The big households were people of the world and didn't just watch the excitement: they fully understood in their hearts how much wisdom and ability were needed to maintain the normal operation of such a "railway."
+The city rail stopped at small stations along the way to pick up and drop off passengers. These stations naturally couldn't match Ma'ao, but even the smallest was tidy and orderly, with staff commanding and coordinating, arranging everything perfectly. The big households were worldly men who didn't merely gawk—they fully understood how much wisdom and ability were needed to maintain such a railway's normal operation.
 
-"No wonder the Australians could dominate Guangdong and Guangxi in just a few years!" Chen Ding thought to himself, "There are capable people!"
+*No wonder the Australians could dominate Guangdong and Guangxi in just a few years!* Chen Ding thought. *They have capable people!*
 
-"The train will start in one minute. It will depart in one minute. Passengers who haven't got on or off, please hurry up..."
+"The train will depart in one minute. Passengers who haven't finished boarding or alighting, please hurry..."
 
-On the platform, a naturalized citizen wearing a navy blue uniform held a large tin horn, shouting along the platform in "New Language," then in Guangdong Mandarin and Minnan dialect.
+On the platform, a naturalized citizen in a navy-blue uniform held a large tin megaphone, calling out first in "New Language," then in Guangdong Mandarin and Minnan dialect.
 
-Just then, a commotion suddenly came from the platform, as if someone was clamoring. Chen Lin poked his head out curiously to look, only to see a middle-aged man with a hair bun, wearing patched short brown clothes, "squeezing" out from the door of the third-class car.
+Just then, a commotion erupted on the platform. Chen Lin poked his head out curiously to see a middle-aged man with a hair bun, wearing patched short brown clothes, struggling out from a third-class door.
 
-At this time, there were not many passengers getting on and off at the platform. The reason he struggled so much was that his whole body was hung with several large and small bundles, and he was still holding a carrying pole in his arms.
+Though few passengers were boarding or alighting at this stop, he struggled mightily—his body was festooned with bundles large and small, and he clutched a carrying pole in his arms.
 
-There were so many and such messy things on him that two railway staff members helped before he got off the car safely without dropping that body full of "treasures."
+So much baggage hung from him that two railway staff had to help before he could disembark safely without dropping his "treasures."
 
-Immediately after, a woman with equally shabby clothes came out, also carrying several bundles on her arm. On her back was an infant less than a year old, sitting in a bamboo basket, staring at the surroundings curiously with black eyes.
+Immediately after came a woman in equally shabby clothes, also carrying bundles. On her back, sitting in a bamboo basket, was an infant less than a year old, staring around curiously with dark eyes.
 
-Behind the woman were several children, the oldest thirteen or fourteen, the youngest only four or five, all dirty and disheveled. The older ones held the younger ones, the younger ones pulled the older ones, a string of them following their mother closely. Their eyes were full of fear and unease.
+Behind the woman came several children, the oldest thirteen or fourteen, the youngest only four or five, all dirty and disheveled. The older ones held the younger ones, the younger ones clung to the older ones—a string of them following their mother closely, eyes full of fear and uncertainty.
 
-"Third Brother!" Suddenly someone ran over to greet them. It was a person with short hair and short clothes. "You're here!"
+"Third Brother!" Someone ran over to greet them—a person with short hair and short clothes. "You're here!"
 
-At this moment, the train's whistle blew, and Chen Lin had no chance to hear what they said. The last thing he saw was the person called "Third Brother" carrying luggage with a carrying pole, taking his wife and children to follow the person picking them up off the platform, walking all the way into the depths of the picturesque scenery.
+At that moment the train whistle blew, and Chen Lin lost the chance to hear more. The last thing he saw was the man called "Third Brother" hoisting his luggage on the carrying pole, leading his wife and children to follow the person meeting them off the platform, walking into the depths of the picturesque scenery.
 
-"Wait, these are probably immigrants coming to Lingao," Chen Ding said. "A whole family with nowhere to go. Having relatives here or something."
+"Most likely immigrants coming to Lingao," Chen Ding observed. "A whole family with nowhere to go. Must have relatives here."
 
-"I heard that coming to Lingao gives you land and a house. Is this true?"
+"I've heard that coming to Lingao gets you land and a house. Is that true?"
 
-Chen Ding only shook his head: "This matter, I have only heard of it..."
+Chen Ding could only shake his head. "I've only heard the rumors..."
 
-Chen Xiaobing sitting in front heard it and turned around to say: "Distributing land and houses naturally exists, but it is not generalized. It depends on the immigrant's own situation and needs. Are they willing to work as laborers, or farm? Or being a vendor or sailor is also fine. Even for distributing houses and land, there are those given wasteland to reclaim themselves, or working as farm workers on farms; it varies."
+Chen Xiaobing, seated in front, overheard and turned around. "Land and houses are indeed distributed, but it's not universal. It depends on the immigrant's situation and preferences. Are they willing to work as laborers or farmers? Or perhaps as vendors or sailors—that's fine too. Even for distributing houses and land, some receive wasteland to reclaim themselves, while others work as farm hands on established farms. It varies."
 
-"I heard there isn't much land left in Lingao now, and new immigrants mostly go to Nanyang or Taiwan? The best ones go to Sanya at the ends of the earth?" Chen Lin asked curiously.
+"I heard there isn't much land left in Lingao now, and new immigrants mostly go to Nanyang or Taiwan?" Chen Lin asked curiously. "The best ones go to Sanya at the ends of the earth?"
 
-Chen Ding turned pale hearing this. Just as he wanted to speak to smooth things over, Chen Xiaobing laughed: "This is a rumor. I said just now, where to go depends on the immigrant's own situation and needs. If they committed a major crime and the Senate showed mercy, sentencing them to exile, then naturally they go to Taiwan, Jeju, or Nanyang; if they are ordinary immigrants with some savings and no lack of labor at home, thinking of reclaiming wasteland and building up a family property themselves, there are still many suitable places on Hainan Island, so why go overseas? Take Sanya on this island for example; it is summer all year round, with three harvests a year. It is a fertile land. In the past, there was miasma, and Li villages and pirates caused chaos, so people naturally didn't want to go. Now the Senate has medicine to cure miasma, the Li villages have submitted and been registered, and pirates have been purged. What is bad about going there to build fields and houses? Even if one insists on staying in Lingao, there is still plenty of undeveloped wasteland. If one is penniless and has old and young at home waiting to be fed, several state-owned farms are recruiting all year round. Entering a farm as a worker, you have a house and land, and children have school to attend..."
+Chen Ding paled at this. He was about to smooth things over when Chen Xiaobing laughed. "That's a rumor. As I said, where they go depends on the immigrant's situation and preferences. If they've committed a major crime and the Senate showed mercy by sentencing them to exile, then naturally they go to Taiwan, Jeju, or Nanyang. But ordinary immigrants with some savings and sufficient household labor who want to reclaim wasteland and build their own family property—there are still many suitable places on Hainan Island. Why go overseas? Take Sanya, for example: it's summer year-round with three harvests annually. Fertile land. In the past, there was miasma, and Li villages and pirates caused chaos, so people naturally didn't want to go. Now the Senate has medicine to cure miasma, the Li villages have been registered and brought under administration, and pirates have been purged. What's wrong with building fields and houses there? Even if one insists on staying in Lingao, there's still plenty of undeveloped wasteland. For those who are penniless with family members needing food, several state-owned farms recruit year-round. Entering a farm as a worker, you have housing and land, and children have schools to attend..."
 
-Chen Xiaobing spoke extravagantly, but the Chen uncle and nephew were somewhat suspicious: This sounded too good! Where in the world were such good things!
+Chen Xiaobing spoke at length, but the Chen uncle and nephew remained somewhat skeptical. It sounded too good! Where in the world could such fortune be found!
 
-Since they were newcomers, they naturally had no way to distinguish whether it was true or false. However, many people had indeed flowed from Guangdong to Hainan in recent years. Especially after the Australians occupied Guangdong and Guangxi. Presumably, what this Chen Xiaobing said had some truth to it.
+Still, as newcomers, they had no way to distinguish truth from falsehood. Many people had indeed flowed from Guangdong to Hainan in recent years, especially after the Australians took Guangdong and Guangxi. Presumably Chen Xiaobing's words held some truth.
 
-Chen Lin thought of what his cousin-uncle said and felt playful, asking: "Lord Chen..."
+Chen Lin remembered his uncle's earlier suggestion and asked playfully, "Lord Chen..."
 
 "Just call me Comrade."
 
-"Comrade Chen," Chen Lin asked curiously, "You are also surnamed Chen, and we uncle and nephew are also surnamed Chen. I wonder where Comrade's ancestral home is, which choronym? Maybe we were one family five hundred years ago?"
+"Comrade Chen," Chen Lin said, "you're also surnamed Chen, as are my uncle and I. I wonder where your ancestral home is—which choronym? Perhaps we were one family five hundred years ago?"
 
-Chen Xiaobing smiled slightly: "I am ashamed to say, I was not originally surnamed Chen, nor do I know my ancestral home and choronym."
+Chen Xiaobing smiled slightly. "I'm ashamed to say I wasn't originally surnamed Chen, nor do I know my ancestral home or choronym."
 
 "Then..."
 
-"I was an orphan." His voice was slightly low. "Since I can remember, I wandered in the city—I don't even know which city it was. When I grew to be ten or so, I heard people say the Prefectural City was a big place where it was easy to get a meal, so I followed adults to Guangzhou. I registered with the Guandi Temple gang and begged for several years. Later I caught a seasonal disease and was abandoned by my partners. Only then was I saved by the Senate and came to Lingao. This surname and name were both bestowed by the Senate."
+"I was an orphan." His voice dropped slightly. "Since I can remember, I wandered in the city—I don't even know which city. When I was about ten, I heard that the Prefectural City was a big place where food was easier to find, so I followed some adults to Guangzhou. I registered with the Guandi Temple gang and begged for several years. Then I caught a seasonal disease and was abandoned by my companions. Only then was I saved by the Senate and brought to Lingao. This surname and name were both bestowed by the Senate."
 
-"So that's how it is!" Chen Lin hurriedly said, "This, heroes don't ask of their origins..."
+"I see!" Chen Lin said hastily. "Well, heroes aren't defined by their origins..."
 
-"Hahaha, where, where," Chen Xiaobing laughed, "What kind of hero count I as? Just an ordinary person. Relying entirely on the Senate's grace to live like a human being."
+"Ha, what kind of hero am I?" Chen Xiaobing laughed. "Just an ordinary person. I owe everything to the Senate's grace for living like a human being."
 
 **(End of Chapter)**

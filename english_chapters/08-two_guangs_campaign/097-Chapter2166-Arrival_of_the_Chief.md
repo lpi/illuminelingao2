@@ -1,103 +1,105 @@
 # Chapter 2166 - Arrival of the Chief
 
-The officers present fell silent. "Sound east, strike west" was easy to understand. Right now, they could infer that the "East" where the enemy was making noise was Yu'nan County seat. So where was this "West"?
+The assembled officers fell silent. "Sound east, strike west" required no explanation. The "east" where enemies created noise was clearly Yu'nan County seat. But where lay the "west"?
 
-Looking at the map, there were over a dozen county seats and important fortified nodes along the West River alone. Each node was defended by at least one squadron of the National Army—these were soldiers from the first mobilization, whose equipment and training were on a completely different level from the second batch of emergency supplementary mobilized troops. none of them would be easy to crack. Without concentrating five or six times the defenders' strength and equipping a considerable number of firearms, it would be impossible to take these nodes.
+Consulting the map revealed over a dozen county seats and fortified nodes studding the West River corridor alone. Each position garrisoned at minimum one National Army squadron—first-mobilization soldiers whose equipment and training vastly exceeded the second wave of emergency supplementary forces. None would crack easily. Capturing these nodes demanded concentrating five or six times the defenders' strength plus substantial firearms.
 
-The Fubo Army implemented a system of divided responsibility on the West River. Within a certain area, if news came of a siege or a large gathering of enemies, troops from various strongholds attached to that zone would sortied to fight. Troops from other zones generally would not join the battle unless redeployed by headquarters.
+The Fubo Army implemented divided responsibility along the West River. Within designated zones, siege reports or major enemy concentrations triggered sorties from attached stronghold garrisons. Troops from adjacent zones generally avoided engagement absent headquarters redeployment orders.
 
-Therefore, if the enemy's "Sound East" target was Yu'nan, then their real objective should be the various strongholds upstream and downstream centered on Yu'nan County.
+Therefore, if the enemy's "sound east" target was Yu'nan, their genuine objective should encompass various strongholds upstream and downstream centered on Yu'nan County.
 
-Among these strongholds, Fengchuan County was the most attractive target. It was a transportation node leading to the He River, where the Logistics Department had set up a depot and hospital with large stockpiles of supplies. But this place was clearly a hard nut to crack. Let alone a mob of gathered bandits, even regular Ming official troops would not fare well attacking it.
+Among these positions, Fengchuan County presented the most attractive prize—a transportation node accessing the He River, where the Logistics Department maintained a depot and hospital harboring massive supply stockpiles. But this nut was manifestly hard. Even regular Ming government forces would struggle capturing it, much less assembled bandit mobs.
 
-As for the counties downstream of Yu'nan, the most valuable was Zhaoqing. But compared to Fengchuan, Zhaoqing was the seat of the West Guangdong Forward Command and the 1st Brigade Headquarters—an even harder nut.
+Regarding counties downstream from Yu'nan, the most valuable remained Zhaoqing. Yet compared to Fengchuan, Zhaoqing hosted the West Guangdong Forward Command and 1st Brigade Headquarters—an even harder nut.
 
-"Since the enemy wants to concentrate forces for a big operation and use the 'Sound East, Strike West' stratagem, their goal obviously won't be just taking a small stronghold or an obscure county seat. And their strategy is to incite bandits—Yu'nan County is just bait to attract bandits to sell their lives," Mi Longtao stated his deduction.
+"Since the enemy intends concentrating forces for major operations employing 'sound east, strike west' tactics, their goal obviously transcends capturing minor strongholds or obscure county seats. Their strategy involves inciting bandits—Yu'nan County merely serves as bait attracting bandits to sacrifice themselves," Mi Longtao articulated his deduction.
 
-"What the commander says is extremely true!" Zhu Si quickly agreed.
+"The commander speaks absolute truth!" Zhu Si agreed hastily.
 
-Li Shenggang didn't express an objection either. In his view, this was just correct nonsense in the "opening remarks." He nodded slightly.
+Li Shenggang refrained from objecting. In his assessment, this constituted correct but meaningless "opening remarks." He nodded fractionally.
 
-"But in terms of the bandits' military quality and operational capability, this key point can't be Zhaoqing, nor Fengchuan," Mi Longtao said. "I personally speculate that the most likely place is Wuzhou!"
+"However, considering bandit military quality and operational capability, this critical objective cannot be Zhaoqing or Fengchuan," Mi Longtao continued. "I personally speculate the likeliest target is Wuzhou!"
 
-At the mention of Wuzhou, Zhu Si immediately shuddered.
+At Wuzhou's mention, Zhu Si visibly shuddered.
 
-Wuzhou was located at the very forefront, close to the Ming army that had retreated to defend Guangxi. Once the defenders were maneuvered out and the interior left empty, it wasn't impossible for the Ming army to mass heavy troops for a counterattack—moreover, Xiong Wencan urgently needed a great victory right now: recovering Wuzhou would sound much better than recovering Yu'nan County.
+Wuzhou occupied the extreme forefront, adjacent to Ming forces retreating to defend Guangxi. Once defenders were maneuvered outward leaving the interior hollow, Ming army massing heavy counterattack forces wasn't impossible. Moreover, Xiong Wencan desperately required a significant victory—recovering Wuzhou sounded considerably better than recovering Yu'nan County.
 
-"In that case, our company should return to defend Wuzhou as soon as possible..." Zhu Si felt a hidden fear of this increasingly perilous situation. Here, the Wuzhou Composite Company often had to operate independently under field conditions, which was too much pressure for him—he often felt "inadequate to the task."
+"In that case, our company should return defending Wuzhou immediately..." Zhu Si harbored growing dread toward this increasingly perilous situation. Operating the Wuzhou Composite Company independently under field conditions imposed excessive pressure—he frequently felt "inadequate to the task."
 
-Back in Wuzhou, with Qian Duo as the backbone, he wouldn't have to shoulder much responsibility. He didn't believe for a moment that the Ming army could take Wuzhou—Wuzhou was the largest city in West Guangdong. Not only was Qian Duo's company in the city, but a battalion of the Fubo Army led by Zhu Quanxing was also outside the city. Although its specific location was unknown, it certainly wasn't far from Wuzhou. Though on the front line, the safety factor was actually very high.
+Back in Wuzhou with Qian Duo providing backbone, he'd shoulder minimal responsibility. He refused believing the Ming army could capture Wuzhou—West Guangdong's largest city. Not only did Qian Duo's company garrison the interior, but Zhu Quanxing commanded a Fubo Army battalion outside. Though specific locations remained unknown, proximity to Wuzhou was certain. Despite frontline positioning, safety factors actually ran quite high.
 
-"In my view, Yu'nan County isn't just a simple 'Sound East'; it's very likely being truly besieged." Li Shenggang spoke up. Unlike Mi Longtao, his expression was very serious; he rarely engaged in small talk and had quite an imposing manner. "The Ming army's plan is likely to use bandits as cannon fodder to attract our forces—after all, the greater the pressure on Yu'nan County, the greater the likelihood that the Forward Command will draw troops from Wuzhou and other places to reinforce it. So the enemy will definitely commit considerable strength to attack Yu'nan County. The pressure we face won't be small at all. It's not suitable to divide our forces for now."
+"In my assessment, Yu'nan County isn't merely simple 'sound east'—genuine siege is highly probable." Li Shenggang spoke deliberately. Unlike Mi Longtao, his expression remained gravely serious. He rarely engaged in casual conversation, projecting considerable gravitas. "The Ming army's plan likely employs bandits as cannon fodder attracting our forces. After all, greater Yu'nan County pressure increases likelihood Forward Command draws Wuzhou and other garrison troops for reinforcement. Consequently, the enemy will definitely commit substantial strength attacking Yu'nan County. Pressure we face won't prove trivial whatsoever. Dividing forces currently seems unsuitable."
 
 Mi Longtao expressed agreement.
 
-Zhu Si had nothing to say in response, so he could only express "resolute obedience to the assignment."
+Zhu Si possessed no counterargument, offering only "resolute obedience to assignment."
 
-The meeting decided that the whole force would return to Fengchuan the next day. Half of the Wuzhou Company would remain stationed in Xugang for a few days, responsible for training the local militia. A portion of the captured firearms and weapons would also be left to the locals—this glorious yet troublesome task naturally fell on Li Dong's head.
+The conference determined the entire force would return to Fengchuan the following day. Half the Wuzhou Company would remain garrisoning Xugang for several days, responsible for training local militia. Captured firearms and weapons would also remain with locals—this glorious yet troublesome assignment naturally devolved upon Li Dong.
 
-"Xugang is a relatively large village in this area with a large population. Now many refugees from other places have poured in. You must seize this opportunity to build up the militia—right now, there's only the Xu family's private militia, which won't do."
+"Xugang constitutes a relatively large village in this region with substantial population. Now numerous refugees from elsewhere have flooded in. You must seize this opportunity building up militia—currently only the Xu family's private militia exists, which won't suffice."
 
-Zhu Si understood perfectly; the Chiefs were most taboo about clan powers. Right now, the Xu family was a force for maintaining social stability and had to be utilized fully, but the matter of "gradual transformation" could be started. Naturally, doing this wouldn't be easy, but fortunately, it was decided that Li Dong would stay behind, leaving him relaxed.
+Zhu Si understood perfectly. The Chiefs harbored greatest taboos regarding clan powers. Presently the Xu family represented forces maintaining social stability requiring full utilization, but "gradual transformation" initiatives could commence. Naturally this wouldn't prove easy—fortunately, Li Dong would remain behind, leaving Zhu Si relaxed.
 
-The next day, after leaving behind fifty soldiers of the Wuzhou Company's Right Detachment commanded by Li Dong and various firearms at Xugang, the rest of the troops left Xugang and returned to Fengchuan County.
+The next day, after depositing fifty Wuzhou Company Right Detachment soldiers under Li Dong's command plus various firearms at Xugang, remaining troops departed for Fengchuan County.
 
-"This is clearly Yu'nan County's territory; why are we stationed here?" Watching the black smoke of the boat fleet fade away in the distance, Luo Mao couldn't help grumbling.
+"This is manifestly Yu'nan County territory—why garrison here?" Watching the boat fleet's black smoke fade distantly, Luo Mao couldn't suppress grumbling.
 
-Li Dong couldn't figure it out either, but he said, "Stop grumbling, it's an order. If you're told to garrison, you garrison. Come on, let's inspect the defenses first."
+Li Dong couldn't fathom it either, but replied, "Stop grumbling. It's orders. Told to garrison, you garrison. Come—let's inspect defenses first."
 
-As soon as Mi Longtao's boat docked, the vice company commander who had stayed behind brought him shocking news.
+The moment Mi Longtao's boat docked, the remaining vice company commander delivered shocking news.
 
-Bei Wei had come to Fengchuan!
+Bei Wei had arrived at Fengchuan!
 
-It wasn't rare for a Senator to be in Fengchuan County. Personnel from Logistics, Navy, Reconnaissance Bureau, Intelligence Bureau... they came and went in an endless stream. Some were passing through, some came for inspections, some for specific missions, and some worked locally—for example, Senators from the Health Department took turns on duty at the field hospital in Fengchuan County.
+Senator presence at Fengchuan County wasn't unusual. Logistics, Navy, Reconnaissance Bureau, Intelligence Bureau personnel... they circulated endlessly. Some passed through, some inspected, some executed specific missions, some worked locally—for instance, Health Department Senators rotated duty at the Fengchuan County field hospital.
 
-As the Garrison Commander of the Guangdong Region and the General Captain of the National Army Guangdong Region, Bei Wei had also been here more than once to coordinate the security mechanism of the occupied areas. After the Yao rebellion and the comprehensive bandit riots along the river, he came here even more frequently.
+As Guangdong Region Garrison Commander and National Army Guangdong Region General Captain, Bei Wei had visited repeatedly coordinating occupied territory security mechanisms. Following the Yao rebellion and comprehensive river bandit disturbances, his visits intensified further.
 
-But this time the arrival of the Senator was quite different. The vice company commander said that besides Bei Wei, there were seven or eight other Senators with him, some in uniform, some in plain clothes.
+However, this Senator arrival differed markedly. The vice company commander reported besides Bei Wei, seven or eight additional Senators accompanied him—some uniformed, others in civilian dress.
 
-"...The Chiefs arrived at night on gunboats and moved directly into the headquarters upon arrival, seeming unwilling to have their arrival discovered," the vice company commander whispered.
+"The Chiefs arrived nocturnally via gunboat, proceeding directly to headquarters upon docking, seemingly unwilling to advertise their arrival," the vice company commander whispered.
 
-"What instructions do the Chiefs have?" Mi Longtao asked hurriedly.
+"What instructions from the Chiefs?" Mi Longtao asked urgently.
 
-"Major General Bei Wei wants you to see him as soon as you return."
+"Major General Bei Wei requests seeing you immediately upon return."
 
-"Good, I'll go right away."
+"Understood. Going now."
 
-Mi Longtao went to the Garrison Command together with Li Shenggang. The area here was very large. Several Eight Immortals tables were pieced together to form a map table. Bei Wei was currently standing by the map pondering. Besides him, there was a Senator in plain clothes—Mi Longtao recognized him: this was Chief Xu from the Intelligence Bureau.
+Mi Longtao proceeded to Garrison Command alongside Li Shenggang. The space proved expansive. Multiple Eight Immortals tables joined forming a map table. Bei Wei currently stood beside it, pondering. Additionally, a plain-clothed Senator was present—Mi Longtao recognized him: Chief Xu from the Intelligence Bureau.
 
-This Chief Xu was very mysterious, arriving quietly and leaving quietly. Sometimes he would summon him to ask about some situations, sometimes he would hold meetings with soldiers, cadres, and local common folk.
+This Chief Xu remained profoundly mysterious, arriving quietly, departing quietly. Sometimes he'd summon Mi Longtao regarding situations; sometimes he'd convene meetings with soldiers, cadres, and local civilians.
 
-He spoke very little, mainly listening to others. Then he would ask various questions specifically. Mi Longtao never dreamed of what use asking some of those questions would be. But adhering to the principle of "don't ask what shouldn't be asked," he never inquired, only reported according to requirements.
+He spoke minimally, predominantly listening. Then posed specific pointed questions. Mi Longtao never fathomed what purpose certain inquiries served. But adhering to the "don't ask inappropriate questions" principle, he never inquired, merely reporting per requirements.
 
-Looking carefully again, he saw several reed mats spread out on the floor of the headquarters, displaying various weapons. Mi Longtao recognized at a glance that these were the enemy weapons captured in yesterday's battle, including even a "Nest of Bees" rocket launcher and wooden cannons.
+Observing more carefully, he spotted several reed mats spread across headquarters flooring displaying various weapons. Mi Longtao recognized these instantly as enemy weapons captured during yesterday's battle—including even a "Nest of Bees" rocket launcher and wooden cannons.
 
-Researching captured enemy weapons was Chief Xu's consistent work, so Mi Longtao didn't find it too strange.
+Researching captured enemy weaponry constituted Chief Xu's consistent practice. Mi Longtao found nothing particularly strange.
 
-"Report—" Just as Mi Longtao shouted, Bei Wei had already seen them. He nodded slightly, signaling them to come over.
+"Report—" Even as Mi Longtao vocalized, Bei Wei had already spotted them. He nodded fractionally, signaling approach.
 
-"Report on yesterday's battle situation first," Bei Wei said. "Start from the beginning."
+"Report yesterday's battle situation first," Bei Wei directed. "From the beginning."
 
-"The earliest situation occurred during the transport of the Wuzhou Composite Company. It would be more appropriate for Lieutenant Zhu to report first," Mi Longtao said.
+"The earliest developments occurred during Wuzhou Composite Company transport. Lieutenant Zhu should report initially—more appropriate," Mi Longtao suggested.
 
-Bei Wei nodded, his gaze shifting to Zhu Si.
+Bei Wei nodded, gaze shifting toward Zhu Si.
 
-Zhu Si gave a crisp salute and began to report on the battle situation starting from leaving Wuzhou City. He had served in the Garrison Battalion for many years and had been in close contact with many Senators while on duty, so he had none of the nervousness and constraint typical of ordinary naturalized soldiers meeting a Senator for the first time. Not only was his speech fluent, but his report was concise and to the point. Bei Wei was very satisfied listening to it.
+Zhu Si delivered a crisp salute and commenced reporting battle developments from departing Wuzhou City. Having served the Garrison Battalion for years maintaining close Senator contact while on duty, he exhibited none of the nervousness and constraint typical of ordinary naturalized soldiers meeting Senators initially. His speech flowed fluently; his report remained concise and precise. Bei Wei listened with evident satisfaction.
 
-"Good report," Bei Wei sized up the National Army lieutenant standing ramrod straight before him. "You speak the New Language very well. Where did you learn it?"
+"Excellent report." Bei Wei assessed the National Army lieutenant standing rigidly before him. "You speak the New Language exceptionally well. Where did you learn?"
 
-"Report to Major General Comrade, in the Lingao Garrison Battalion!"
+"Report to Major General Comrade—at the Lingao Garrison Battalion!"
 
-Bei Wei thought to himself, no wonder his military bearing and discipline were so standard! That report just now won his favor. He asked about which year he enlisted and his service record, thinking with some regret that his combat experience was a bit lacking!
+Bei Wei reflected internally: no wonder his military bearing and discipline proved so exemplary! That report just now earned his favor. He inquired about enlistment year and service record, thinking somewhat regretfully that combat experience remained somewhat deficient!
 
-However, judging from the report just now, his on-site command wasn't bad either. And Mi Longtao didn't show any expression of "disagreement" during his report; perhaps it should be said he even wore a look of "approval."
+However, judging from the recent report, his on-site command wasn't inadequate either. Mi Longtao displayed no "disagreement" expressions during Zhu Si's report—if anything, he wore "approval" looks.
 
-It seems he's a talent worth molding, Bei Wei thought. However, his experience is still too little. Appointing him as the Wuzhou Battalion Commander was indeed a bit aggressive. This bandit suppression operation could exercise him fully. This basically solidified his determination to form a mobile detachment centered on the troops Mi Longtao commanded yesterday.
+A talent worth cultivating, Bei Wei concluded. However, experience remained too limited. Appointing him Wuzhou Battalion Commander was indeed somewhat aggressive. This bandit suppression operation could exercise him thoroughly. This essentially solidified his determination forming a mobile detachment centered on troops Mi Longtao commanded yesterday.
 
-Subsequently, Mi Longtao and Li Shenggang reported yesterday's battle situation and the conditions along the route one by one. They also marked the relevant battle locations on the glass plate over the map.
+Subsequently, Mi Longtao and Li Shenggang reported yesterday's battle situation and route conditions sequentially. They also marked relevant battle locations on the glass overlay across the map.
 
-"It seems the enemy really has big moves in Yu'nan County," Bei Wei said to Xu Ke.
+"The enemy genuinely harbors major Yu'nan County designs," Bei Wei remarked to Xu Ke.
 
-The intelligence that bandits were going to "do something big" in Yu'nan County was issued by Xu Ke. Of course, he didn't have spies lurking among the bandits, government troops, or Yao strongholds. He reached this conclusion mainly based on the collection of relevant battle reports, prisoner confessions, and traces of enemy activity.
+Intelligence that bandits intended "significant operations" against Yu'nan County originated from Xu Ke. Naturally, he possessed no spies infiltrating bandit groups, government forces, or Yao strongholds. He'd reached this conclusion predominantly by aggregating battle reports, prisoner confessions, and enemy activity traces.
 
-"The bandits you encountered have considerable combat power," Xu Ke said, pointing at the various weapons on the reed mats. "How could bandits afford such weapons? Even the Great Ming's official troops are no better than this!"
+"The bandits you encountered possess considerable combat capability," Xu Ke observed, indicating the various weapons displayed on reed mats. "How could bandits afford such armaments? Even the Great Ming's official forces boast nothing superior!"
+
+(Chapter End)

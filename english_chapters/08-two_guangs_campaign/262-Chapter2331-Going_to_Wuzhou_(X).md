@@ -1,129 +1,129 @@
 # Chapter 2331 - Going to Wuzhou (X)
 
-They asked a few more questions, and Zheng Ergen answered them one by one. Finally, Chen Baibin expressed there were no more questions. Ji Xin asked: "Where were you employed before coming to Wuzhou?"
+They asked a few more questions, each answered in turn. Finally, Chen Baibin indicated he had nothing further. Ji Xin spoke up: "Where were you posted before coming to Wuzhou?"
 
-"Worked as Deputy Director in Sanya Police Bureau," Zheng Ergen answered.
+"I served as Deputy Director at Sanya Police Bureau," Zheng Ergen replied.
 
-"That must have been for quite some time?"
+"For quite some time, I imagine?"
 
-Zheng Ergen was somewhat surprised, *how did this Chief know?* He looked at Ji Xin again, feeling somewhat familiar, but couldn't say when he had seen him.
+Zheng Ergen was surprised. *How does this Chief know?* He studied Ji Xin more closely, finding something vaguely familiar about him, though he couldn't place when they might have met.
 
-"I went when Sanya was just developed." Zheng Ergen seemed to be reminiscing about those arduous years, shaking his head, "At that time went to be deputy station chief, five people including me."
+"I went when Sanya was just being developed." Zheng Ergen seemed to be reminiscing about those difficult years, shaking his head. "I was sent as deputy station chief. Five people total, including myself."
 
-After Zheng Ergen left, Chen Baibin said: "This person looks like nothing much, feels like a person turning according to the baton. Estimate he knows some situations, but doesn't master key things."
+After Zheng Ergen left, Chen Baibin said, "This man doesn't seem particularly capable—the type who just follows orders. I'd estimate he knows some things, but nothing crucial."
 
-"This person was originally a policeman of Dongmen City Police Station." Ji Xin said, "If I remember correctly, should be a trainee of the first police training class. After the Maid Revolution, I went to Dongmen City Police Station and interrogated the policemen on duty that night one by one."
+"He was originally a policeman at Dongmen City Police Station," Ji Xin said. "If I remember correctly, he was a trainee from the first police training class. After the Maid Revolution, I went to Dongmen City Police Station and interrogated every officer on duty that night."
 
-"Your memory is really good! Still remember such distant things!"
+"Your memory is remarkable! You still remember things from so long ago!"
 
-"Impossible not to remember, because after Dugu called people to distribute guns at that time, he was the first to stand out and refuse." Ji Xin said, "He was the only one who remembered the regulations firmly. That night's matter didn't turn uncontrollable, this Zheng Ergen had merit."
+"Impossible to forget. When Dugu ordered weapons distributed that night, Zheng Ergen was the first to stand up and refuse." Ji Xin paused. "He was the only one who remembered the regulations clearly. The fact that things didn't spiral completely out of control that night—Zheng Ergen deserves credit for that."
 
-"He even had such a glorious past?" Chen Baibin was somewhat surprised, "Looks just like a yes-man grassroots cadre. Ability not so standard either."
+"He has such a distinguished past?" Chen Baibin was surprised. "He comes across as nothing more than a yes-man grassroots cadre. Not particularly competent either."
 
-"His advantage is being a yes-man. You say he has any consciousness, not necessarily, but if regulations say cannot do, he won't do. This counts as a rare advantage too." Ji Xin said, "I wondered why he disappeared not long after, turned out transferred to Sanya." Ji Xin sighed, "No wonder he is more cautious now."
+"Being a yes-man is precisely his advantage. I wouldn't say he has any special awareness, but if regulations say something can't be done, he won't do it. That's actually a rare quality." Ji Xin's voice grew thoughtful. "I wondered why he disappeared not long after—turns out he was transferred to Sanya." He sighed. "No wonder he's become so cautious now."
 
-"Just came out of Sanya, encountering Wuzhou's mess again, this Zheng Ergen's brain must be hurting."
+"Fresh out of Sanya and straight into this mess in Wuzhou. Zheng Ergen's head must be splitting."
 
-"Small character's fate is just drifting with the waves, nothing much to say." Ji Xin said, "We just try not to let them suffer collateral damage."
+"Such is the fate of minor figures—drifting wherever the current takes them. Nothing much to be said." Ji Xin's tone softened. "We can only try to ensure they don't become collateral damage."
 
-Chen Baibin saw him falling into deep thought and didn't disturb him. Seeing his brows gradually unfolding after a good while, only then asked: "Director Ji, who and what matters do you think we need to investigate next?"
+Chen Baibin saw him fall into deep contemplation and didn't disturb him. After a long while, when Ji Xin's brow finally unfurrowed, Chen Baibin asked, "Director Ji, which people and matters do you think we should investigate next?"
 
-"Speaking of relatively key figures, there is also Da Xinxuan—according to existing materials, Jiang Qiuchan going to Cai Lan's side as a companion woman was his recommendation. But honestly speaking, this person won't have much juice." Ji Xin said, "However, you better ask, forming a written record is better."
+"Among the relatively key figures, there's also Da Xinxuan—according to existing materials, he recommended Jiang Qiuchan to become Cai Lan's companion. But honestly, there's no juice to squeeze from him." Ji Xin considered. "Still, you should question him and create a formal record."
 
-So they interrogated Da Xinxuan again. Sure enough as Ji Xin said, Da Xinxuan knew nothing about the specific situation. He recommended Jiang Qiuchan purely because of her brother Jiang Rongxian's relationship. After all, Jiang Qiuchan lost her husband and was trapped in Wuzhou with nowhere to turn to, needing to find a livelihood. Avoiding Jiang Rongxian's wife nagging every day, disliking this widow and orphan "eating free rice".
+So they interrogated Da Xinxuan. As Ji Xin predicted, Da Xinxuan knew nothing of substance. He had recommended Jiang Qiuchan purely because of her brother Jiang Rongxian's connections. After all, Jiang Qiuchan was a widow stranded in Wuzhou with no prospects, needing to find a livelihood—and constantly enduring her brother's wife's complaints about the widow and orphan "eating free rice."
 
-They delayed in Wuzhou for a few days, interrogating all relevant personnel still in Wuzhou, including Qian Duo. Forming nearly a hundred written records. Some records seemed simply unnecessary to Chen Baibin, but Ji Xin was meticulous, doing it once according to process.
+They remained in Wuzhou for several more days, interrogating every relevant individual still in the city, including Qian Duo. Nearly a hundred formal statements were recorded. Some of these seemed entirely unnecessary to Chen Baibin, but Ji Xin was meticulous, insisting on following proper procedure.
 
-However, until now, Chen Baibin hadn't heard any explanation from Ji Xin regarding the investigation conclusion of the case. Of course, he already knew Ji Xin's case-handling thought process from fragments of words during the investigation.
+Throughout this process, however, Chen Baibin heard no indication from Ji Xin regarding his conclusions about the case. Of course, from fragments of conversation during the investigation, he could already discern the general direction of Ji Xin's thinking.
 
-Actually analyzing his thinking wasn't hard. Chen Baibin knew: Ji Xin valued the Senate first; he wouldn't let anything harmful to it exist. Secondly was maintaining the rights of naturalized citizens and indigenous people. Under the Senate's governance, open trampling and plundering of rights of naturalized citizens and indigenous people were rare, but many Senators in the Senate were not so. Inevitably there would be similar things. Ji Xin wanted to prevent such things from happening as much as possible.
+Analyzing it wasn't difficult. Chen Baibin understood that Ji Xin's first priority was the Senate itself—he would permit nothing that could harm it. Second came protecting the rights of naturalized citizens and indigenous people. Under the Senate's governance, blatant violations of these rights were rare, but many Senators held different views. Incidents were inevitable. Ji Xin wanted to prevent such occurrences wherever possible.
 
-Combining these two lines of thought, what direction the final report led by Ji Xin would be written in was vaguely clear. It was just that in details, there were still too many places Chen Baibin felt unable to justify. What exactly did Ji Xin prepare to use to round it up? He was extremely curious.
+Combining these two principles, the general direction of Ji Xin's final report was becoming clear. But in the details, there were still too many points Chen Baibin couldn't see how to justify. What exactly did Ji Xin plan to use to smooth everything over? He was intensely curious.
 
-A few days later, the reply from Teng County also arrived, explicitly stating they never received the external investigation letter about "Hao Ran" sent from Wuzhou. And complying with their request, the Teng County side investigated Jiang Qiuchan's husband's family situation, proving Jiang Qiuchan's identity and narration of relevant events were true and reliable. Also learned that neither her close nor distant relatives had "Hao Ran" or "Yi Haoran". In addition, Jiang Qiuchan's in-laws said Jiang Qiuchan and son didn't return to Teng County, currently whereabouts unknown.
+A few days later, the reply from Teng County arrived. It stated explicitly that they had never received any inquiry letter about "Hao Ran" from Wuzhou. In compliance with their request, Teng County had investigated Jiang Qiuchan's husband's family circumstances, confirming that her identity and account of events were truthful and reliable. They also confirmed that neither close nor distant relatives of the family included anyone named "Hao Ran" or "Yi Haoran." Additionally, Jiang Qiuchan's in-laws reported that she and her son had not returned to Teng County; their current whereabouts were unknown.
 
-"These are all known things, no juice..." Chen Baibin said, "Pity let Jiang Qiuchan run away! Don't know if it's truth!"
+"All of this we already knew—nothing new," Chen Baibin said. "Pity Jiang Qiuchan escaped. Who knows whether any of this is even true!"
 
-"It would be strange if there was juice. Jiang Qiuchan is already not very meaningful to us now." Ji Xin said, "Our work is about done too, should write the conclusion. But before writing, there is one last person to interrogate."
+"It would be strange if there were anything new. Jiang Qiuchan is no longer particularly relevant to us anyway." Ji Xin said, "Our work here is essentially finished. It's time to write the conclusion. But before we do, there's one final person to interrogate."
 
 "Who?"
 
-"Of course it's Xie Erren." Ji Xin said, "He is the party concerned."
+"Xie Erren, of course. He's the central figure."
 
 The next day, they interviewed Xie Erren.
 
-Xie Erren seemed to have a well-thought-out plan for this interview, calm and composed when meeting and greeting. After taking seats, Ji Xin first asked some questions regarding Wuzhou's work situation. Xie Erren also answered one by one crisply. Preheating finished, Ji Xin asked:
+The Senator appeared to have prepared thoroughly for this conversation, calm and composed throughout the introductions and pleasantries. After they were seated, Ji Xin began by asking several questions regarding the general situation of work in Wuzhou. Xie Erren answered each one crisply. Once this preliminary warming was complete, Ji Xin asked:
 
-"You encountered an assassination when visiting Dragon Mother Temple, was there such a thing?"
+"You encountered an assassination attempt while visiting Dragon Mother Temple—is that correct?"
 
-"There was such a thing." Xie Erren's expression became slightly grave, "So dangerous at that time!"
+"It is." Xie Erren's expression grew slightly grave. "It was an extremely close call."
 
 "Do you know the assassin's name?"
 
-"Know, called Cai Lan." Xie Erren said, "Later I kept her in San Zong Fu to do some odd jobs."
+"Yes—Cai Lan." Xie Erren said, "Afterward, I kept her at San Zong Fu to perform various tasks."
 
-These words directly blocked a series of subsequent interrogations. Chen Baibin had to ask the vital question directly.
+This statement preemptively blocked an entire line of questioning. Chen Baibin had no choice but to ask the crucial question directly.
 
-"A person like Cai Lan is obviously very dangerous. According to relevant regulations, even if you are unwilling to hand her over to the military court or other judicial institutions for disposal, at least should hand over to the prisoner camp, treated as a prisoner. Why did you retain this person?"
+"A person like Cai Lan is obviously extremely dangerous. According to regulations, even if you were unwilling to hand her over to the military court or other judicial institutions for prosecution, you should at minimum have remanded her to a prisoner camp. Why did you keep her?"
 
-"Because she painted well." Xie Erren said, "I just needed such a person in literature and propaganda..."
+"Because she painted well," Xie Erren said. "I needed precisely such a person for cultural and propaganda work..."
 
-"Since she was retained personnel, there should be relevant work records—such as drafts and the like."
+"Since she was retained as staff, there should be work records—drafts and the like."
 
-"There are all these, all these." Xie Erren had a plan ready, "But the riot that night destroyed quite a few materials, not sure if still complete..."
+"Yes, yes, all of that exists." Xie Erren was clearly prepared. "But the riot destroyed quite a few materials that night. I'm not certain everything is still intact..."
 
-"Someone reported that the relationship between you and Cai Lan was not work relationship. She actually became your life secretary—is there such a thing?"
+"Someone reported that your relationship with Cai Lan was not a working relationship. That she had effectively become your personal secretary—is there any truth to this?"
 
-"Of course she wasn't my life secretary. To be a life secretary requires registration in the General Office. Cai Lan didn't have one." Xie Erren equivocated.
+"Of course she wasn't my personal secretary. Registration with the General Office is required for that. Cai Lan had none." Xie Erren's evasion was smooth.
 
-"Alright. We change a way of saying. Between Cai Lan and you, did a relationship between man and woman exist?"
+"Very well. Let me phrase it differently. Did a romantic relationship exist between you and Cai Lan?"
 
-"This, yes." Xie Erren spread his hands helplessly, "I am a man... made a mistake all men would make... I know this is wrong, but at that time couldn't control myself for a moment, sigh!"
+"That... yes." Xie Erren spread his hands helplessly. "I'm a man... I made the mistake any man might make. I know it was wrong, but in that moment I couldn't control myself." He sighed.
 
-"After having such a special relationship between you and her, did you give her corresponding special care? Please answer truthfully."
+"Having established such a special relationship with her, did you provide her with corresponding special treatment? Please answer truthfully."
 
-"That naturally there was. I'm not Pan An..." Xie Erren said with a tone of helplessness, "I arranged residence for her, food was also following me eating from the small stove. Also found someone to serve her—Jiang Qiuchan was too... didn't expect to be utilized by the enemy!"
+"Naturally I did. I'm no Pan An..." Xie Erren's voice carried resignation. "I arranged quarters for her. She ate from the same kitchen as me. I even found someone to keep her company—Jiang Qiuchan was the one... I never expected she'd be exploited by the enemy!"
 
-Chen Baibin was slightly surprised, not expecting this Xie Erren to admit so readily. He glanced at Ji Xin; Ji Xin didn't say a word.
+Chen Baibin was mildly surprised. He hadn't anticipated such ready admissions from Xie Erren. He glanced at Ji Xin, who remained silent.
 
-"Do you know how the enemy specifically utilized her?"
+"Do you know exactly how the enemy exploited her?"
 
-"This I am not clear."
+"That I don't know."
 
-"Then how do you know?"
+"Then how do you know she was exploited?"
 
-"She was captured on the spot by my Security Secretary."
+"She was caught in the act by my Security Secretary."
 
-This statement was exactly the same as in his report, obviously carefully considered.
+This statement matched his report exactly—obviously carefully considered.
 
-"According to Luo Yangming and Zhao Fengtian's statements, you once prepared to send a letter to Teng County to investigate Yi Haoran's situation—but Teng County side didn't receive the external investigation letter. How do you explain?"
+"According to statements from Luo Yangming and Zhao Fengtian, you once prepared to send a letter to Teng County to investigate Yi Haoran's background—but Teng County never received the inquiry. How do you explain this?"
 
-"Maybe it was burned on the night of the riot."
+"Perhaps it was burned on the night of the riot."
 
-"From you proposing this matter to the riot, about two weeks. Would an external investigation letter be delayed so long?"
+"Between your proposal and the riot was approximately two weeks. Would an inquiry letter be delayed that long?"
 
-"This is hard to say. I have many things to do, many documents to read and sign. Sometimes careless, pressing it underneath, it would be left unprocessed for a long time too—this is a mistake in my work."
+"It's hard to say. I have many responsibilities—many documents to read and sign. Sometimes I'm careless and leave things beneath other papers, and they go unprocessed for a long time. That was a failure in my work."
 
-This was inevitably somewhat forced arguing, but in terms of human witness and physical evidence, Chen Baibin had no powerful evidence to prove he was lying. Could only skip over.
+This was clearly forced reasoning, but in terms of witnesses and physical evidence, Chen Baibin had nothing powerful enough to prove he was lying. He could only move on.
 
-Chen Baibin asked some more questions. Xie Erren answered one by one. But regarding the relationship between him and Cai Lan, he consistently insisted on the previous statement. Denying everything else.
+Chen Baibin asked several more questions, all of which Xie Erren answered. But regarding his relationship with Cai Lan, he consistently maintained his earlier position, denying everything else.
 
-Ji Xin didn't say a word during the entire conversation process, only listening carefully to their dialogue. Until the conversation ended, only then did he let out a long breath.
+Ji Xin said nothing throughout the entire interview, only listening carefully. When it finally concluded, he let out a long breath.
 
-"This Xie Erren, really ghostly!" Chen Baibin said, "Refusing to speak about the external investigation letter to death."
+"This Xie Erren is quite the schemer!" Chen Baibin said. "Absolutely refuses to discuss the inquiry letter."
 
-"This precisely illustrates a point." Ji Xin said, "Cai Lan has a huge connection with this mysteriously vanished external investigation letter."
+"Which precisely proves a point," Ji Xin said. "Cai Lan is deeply connected to this mysteriously vanished inquiry letter."
 
 "You mean..."
 
-"Correct," Ji Xin nodded, "He and Cai Lan cohabited in this courtyard. The wing room over there was obviously one of his offices. Imagine, as Cai Lan, did you have the opportunity to enter the office and contact the documents inside?"
+"Exactly." Ji Xin nodded. "He and Cai Lan lived together in this courtyard. That wing room over there was clearly one of his offices. Consider: as Cai Lan, would you have had opportunities to enter the office and access the documents inside?"
 
-"Opportunities were plenty."
+"Plenty of opportunities."
 
-"That's right." Ji Xin said, "Although we have no direct evidence, it seems extremely likely now that Cai Lan extracted and destroyed the external investigation letter."
+"That's right." Ji Xin said, "Although we have no direct evidence, it now seems extremely likely that Cai Lan extracted and destroyed the inquiry letter."
 
-"Why was he only willing to admit the relationship with Cai Lan, but kept secretive about this matter?"
+"Why was he willing to admit the relationship with Cai Lan, yet keep this matter secret?"
 
-"Man-woman relationship with Cai Lan doesn't count as a big matter—of course, it is, but the nature is relatively much lighter—the latter is a matter of principle... So he had to choose the lesser of two evils." Ji Xin said, "His relationship with Cai Lan is known to all in Wuzhou. Whether Zhao Fengtian or ordinary naturalized cadres, soldiers, and even local natives, hundreds and thousands know. Even if he has ability as big as heaven, he cannot cover it up."
+"A romantic relationship with Cai Lan isn't a major offense—significant, yes, but relatively minor in nature. The document matter is a question of principle... So he chose the lesser evil." Ji Xin explained, "His relationship with Cai Lan is an open secret throughout Wuzhou. Whether it's Zhao Fengtian, ordinary naturalized cadres, soldiers, or even local natives—hundreds, perhaps thousands know. Even with powers beyond heaven, he couldn't cover it up."
 
 **(End of Chapter)**

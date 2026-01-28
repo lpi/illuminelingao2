@@ -1,138 +1,140 @@
 # Chapter 2260: Catching a Turtle in a Jar
 
-Xie Wendong bowed his head to listen to his instructions. As each point was explained, he couldn't help but be secretly alarmed: this Advisor Zhan was indeed insidious!
+Xie Wendong bowed his head as he received the instructions. With each point explained, he felt a growing sense of alarm—this Advisor Zhan was truly insidious.
 
 "...Do you understand?"
 
-"Yes, the small one understands." Xie Wendong said, "The small one will go arrange it right away!"
+"Yes, I understand completely. I'll make the arrangements immediately."
 
-Feng Haijiao led the main force stumbling forward in Huangdan Gully. Because food was insufficient, they had to stop for a day on the road to let some porters return to Hu Bay to fetch grain supplies. When they reached the Great West Gate, it was actually a day later than Zhan Zhekun predicted. Stumbling with great difficulty to the front of the Great West Gate, men and horses were already exhausted.
+Feng Haijiao led his main force through the winding paths of Huangdan Gully, stumbling forward with difficulty. Food supplies ran short, forcing them to halt for a day while porters returned to Hu Bay to fetch additional provisions. By the time they reached the Great West Gate, they arrived a full day later than Zhan Zhekun had predicted. Men and horses alike were utterly exhausted.
 
-At the foot of the mountain, more than ten water vats, filled with herbal tea, had been prepared very properly.
+At the foot of the mountain, more than a dozen water vats stood waiting, properly filled with herbal tea.
 
-"Greeting Master." Huang Daqiao, ordered to welcome here, had a face full of smiles. "Manager Xin sent the small one to welcome Master. Please rest here for a moment with your brothers, Master, before going up the mountain; it's not too late." After saying this, he waved his hand, and servants served a table of cold meat dishes with eight bowls and eight plates.
+"Greetings, Master." Huang Daqiao, who had been sent to welcome them, wore a broad smile. "Manager Xin dispatched me to receive you. Please rest here a moment with your brothers before ascending—there's no rush." He waved his hand, and servants brought forth a table laden with cold dishes: eight bowls and eight plates of meat.
 
-"This is a small token from Manager Xin. Please use some snacks first, Master and your precious family."
+"A small token from Manager Xin. Please enjoy some refreshments, Master, you and your distinguished company."
 
-Feng Haijiao sat in a sedan chair for several days, eating and sleeping makeshift; his body ached and his mouth was tasteless. Seeing Xin Laonan so attentive, he didn't feel suspicious, but rather very comfortable, thinking this old fellow was quite sensible!
+Feng Haijiao had spent several days in his sedan chair, eating and sleeping rough. His body ached and his mouth was tasteless. Seeing such attentiveness from Xin Laonan, he felt no suspicion—only satisfaction. The old fellow clearly knew his place.
 
-Here servants served several trays again, which were bright shining two hundred taels of silver.
+The servants returned with several more trays, these bearing two hundred taels of gleaming silver.
 
-"This is a little greeting gift from Master Zhan to the brothers."
+"A greeting gift from Master Zhan for the brothers."
 
-Seeing Xin and Zhan so attentive, Feng Haijiao felt they must be afraid of him, hence trying their best to fawn. He was complacent in his heart and said, "Too polite! You go tell the two that I am resting here for a moment and will go up the mountain to visit right away."
+Witnessing such deference from both Xin and Zhan, Feng Haijiao concluded they must fear him, hence their desperate fawning. He smiled with smug satisfaction. "Too kind! Go tell them I'm resting here briefly and will come up to pay my respects shortly."
 
-Huang Daqiao responded "Yes" and was about to withdraw. Feng Haijiao suddenly stopped him and asked, "How has Manager Xin been recently?"
+"Yes, Master." Huang Daqiao was about to withdraw when Feng Haijiao suddenly stopped him.
 
-"Thanks to Master Feng's blessing," Huang Daqiao paused, "Manager Xin, his old man's body is still tough, just his legs and feet are slightly inconvenient."
+"How has Manager Xin been lately?"
 
-This was Xin Laonan’s old injury, which was why he washed his hands in a golden basin a few years ago.
+Huang Daqiao paused. "Thanks to your blessing, Master Feng, Manager Xin remains hale, though his legs give him some trouble."
 
-"No headaches or brain fevers?"
+This was Xin Laonan's old injury—the very reason he had retired from the trade years ago.
 
-"Master Feng really loves to joke," Huang Daqiao smiled apologetically, "Fine weather, neither cold nor hot, how come suddenly a headache or brain fever..."
+"No headaches or fevers?"
 
-Feng Haijiao didn't smile. A pair of yellow eyes stared dead at Huang Daqiao. Only after a long time did he suddenly beam and say, "I am just worried about my old partner."
+Huang Daqiao smiled apologetically. "Master Feng loves his jokes. The weather's been fine—neither cold nor hot. Why would there suddenly be headaches or fevers?"
 
-"Many thanks to Master Feng." Huang Daqiao paid respects again and slowly retreated.
+Feng Haijiao didn't smile. His yellow eyes fixed on Huang Daqiao with an unblinking stare. Only after a long moment did he suddenly break into a grin. "Just concerned about my old partner, that's all."
 
-Feng Haijiao’s probe just now didn't reveal anything unusual. Here the main force arrived successively. Thirsty minions cheered upon seeing clear water and were about to crowd up to drink, but were dispersed by his personal guards with whips.
+"Your kindness is appreciated." Huang Daqiao bowed again and slowly withdrew.
 
-"Throw his mother, rushing to be reincarnated!" While scolding, he called the doctor under him to test each vat for poison with silver needles.
+The probe had revealed nothing suspicious. Soon the main force arrived in waves. Parched soldiers cheered at the sight of clear water and surged forward to drink, but his personal guards drove them back with whips.
 
-Upon testing, there was no poison, so he let the minions drink. He himself wasn't at ease, so he called the doctor to test the wine and food on the banquet table sequentially. Confirming no obstruction, he sat down and began to eat and drink.
+"Damn you all, rushing to be reborn!" he cursed, then summoned his physician to test each vat for poison with silver needles.
 
-After eating and drinking, he began to arrange the matters for going up the mountain.
+The tests came back clean. Only then did he allow his men to drink. Still not entirely at ease, he had the physician examine each dish and cup of wine at the banquet table. Finding no obstruction, he finally sat down to eat and drink.
 
-Although he had determined that Xin and Zhan had no conspiracy, a bachelor who had been a bandit for many years had many thoughts and had to guard against the ten thousandth chance. He immediately called his trusted aides over to arrange the mountain ascent one by one.
+After the meal, he turned his attention to the ascent.
 
-"We men are going up the mountain now." Feng Haijiao said to his trusted leaders, "Keep your eyes bright, every one of you! Old Man Xin although old is not muddled yet. With so many of us going up the mountain, needless to say, he has to guard against us. I feel it's awkward for everyone to guard against like this, might as well merge into one family for straightforwardness."
+Though he had concluded that Xin and Zhan harbored no plots, years as a bandit had made him cautious. Even a one-in-ten-thousand chance demanded preparation. He gathered his trusted subordinates.
 
-The leaders cheered loudly. Feng Haijiao signaled them to keep their voices down.
+"We're going up now," Feng Haijiao told his leaders. "Keep your eyes sharp. Old Man Xin may be aged, but he's no fool. With so many of us ascending, he'll naturally be wary. Frankly, all this mutual suspicion is tiresome—better to simply merge into one family and be done with it."
 
-"Xin Laonan did business for decades, picking official merchants and large households to trade. Needless to say, there are plenty of excellent things in the manor—"
+The leaders cheered. Feng Haijiao signaled them to quiet down.
 
-Speaking of this, the eyes of all leaders revealed greed, all somewhat eager to try. Feng Haijiao continued: "...But Old Man Xin is not a mediocrity either. That he is willing to let us up the mountain, presumably he has some preparations. You also saw, the terrain of this Thunder Struck Slope is precipitous. We cannot act rashly. You must all act according to my instructions."
+"Xin Laonan ran his operation for decades, targeting only wealthy officials and major merchants. The manor must hold considerable treasures—"
 
-After saying these few sentences, he dispatched his subordinates one by one. He had walked the road up the mountain and knew roughly that the key terrain depended on the three gates starting from the Great West Gate. So he sent three capable subordinates, each leading twenty minions, to stay put after passing each stockade gate.
+At this, greed flickered in his leaders' eyes. Feng Haijiao continued: "But Old Man Xin is no mediocrity. That he's willing to let us up the mountain suggests he has preparations of his own. You saw the terrain—Thunder Struck Slope is treacherous. We cannot act rashly. Follow my instructions precisely."
 
-"Each stockade gate is guarded by people from Xin Family Manor, not many. You just stay put and watch them. If they ask, say you are looking after the follow-up team transporting wealth. As long as they don't drive you away, don't fight them. Avoid making noise to alarm the mountain."
+He then issued orders to each subordinate. Having walked this mountain road before, he knew the key terrain depended on three gates starting from the Great West Gate. He dispatched three capable men, each leading twenty soldiers, to hold position after passing each stockade gate.
 
-These troops were his direct line. Letting them control the stockade gates was equivalent to controlling the road up and down the mountain. Attack to advance, run to retreat; he, Feng Haijiao, would stand in an invincible position. If Xin Laonan was honest, fine; if there were any schemes and plots, in the worst case, he could pull the team and run.
+"Men from Xin Family Manor guard each gate—not many. Simply stay put and watch them. If asked, say you're looking after the rear teams transporting wealth. As long as they don't drive you out, don't fight them. We must not alert the mountain."
 
-In this way, his direct troops remaining were less than fifty. But considering Xin Laonan’s able-bodied men were no more than twenty or thirty, and although Zhan Zhekun had thirty-some people, he was an outsider and completely unnecessary to stand up for a powerless Xin Laonan—after all, since Sun Dabiao was finished, he was the biggest strength faction in the three Yangshan counties, and Advisor Zhan still counted on him to fight the Hair thieves.
+These were his most loyal troops. Controlling the gates meant controlling the road up and down. He could advance or retreat at will—an invincible position. If Xin Laonan proved cooperative, excellent. If treachery emerged, he could withdraw his men and escape.
 
-If he refused a toast only to drink a forfeit, eating him wouldn't be hard; after all, he had absolute superiority in military force.
+This left him with fewer than fifty of his core troops. But Xin Laonan had at most twenty or thirty able-bodied men, and though Zhan Zhekun commanded thirty-odd, he was an outsider with no reason to risk himself for a powerless old man. After all, with Sun Dabiao finished, Feng Haijiao was now the dominant force in the three Yangshan counties. Advisor Zhan still needed him to fight the Taipings.
 
-He calculated in his heart again and again; this matter was a sure win for him.
+If they refused a toast, they would drink the forfeit instead. Defeating them would be simple enough—he held absolute military superiority.
 
-After dispatching his subordinates, Feng Haijiao ate and drank some more. It wasn't until gradually noon that he saw Bi Xuansheng riding a nag, lazily catching up from behind.
+He calculated again and again. This was a certain victory.
 
-Although he was no longer as guarded in his heart as at the beginning, he always treated him as an "outsider," so for this relocation, he sent him to bring up the rear escorting property.
+After dispatching his subordinates, Feng Haijiao ate and drank some more. Near noon, he spotted Bi Xuansheng riding a nag, lazily catching up from behind.
 
-Escorting property and grain was exhausting and responsible. If this kid Bi Xuansheng could do it, he might as well promote him more in the future.
+Though his suspicions had faded, he still considered Bi Xuansheng an "outsider" and had assigned him to escort property at the rear. It was exhausting, responsible work. If the young man performed well, perhaps he was worth promoting.
 
-He didn't greet Bi Xuansheng, only called a minion:
+He didn't greet Bi Xuansheng directly, instead summoning a soldier.
 
-"Pass my order to Advisor Bi, say he worked hard escorting luggage. The moving brothers and everyone's families are also tired. Let them rest at the foot of the mountain for an hour (two hours) before going up the mountain; it's not too late."
+"Tell Advisor Bi that his work escorting the luggage is appreciated. The moving brothers and everyone's families are tired as well. Have them rest at the foot of the mountain for two hours before ascending."
 
-Next, he called Mo Chong:
+Next, he called Mo Chong.
 
-"You take a hundred newly joined brothers and follow behind the central army up the mountain. If there are changes ahead, you immediately bring people to rush over to support!"
+"Take one hundred of the new recruits and follow behind the main group. If anything goes wrong ahead, bring them up immediately as reinforcements."
 
 "Yes, Master!"
 
-"Up the mountain!"
+"Move out!"
 
-In the temple hall, people reported Feng Haijiao’s movements continuously. Zhan Zhekun’s mood was slightly nervous. Looking at Yang *Juren*, however, he was chatting and laughing nonchalantly. He couldn't help admiring secretly—worthy of being a figure who could command wind and clouds in Guangning!
+In the temple hall, reports of Feng Haijiao's movements arrived continuously. Zhan Zhekun felt slightly nervous. Yet Yang *Juren* chatted and laughed as though nothing were amiss. He couldn't help but admire the man—truly worthy of being someone who could command influence in Guangning.
 
-Thinking of this, he forced himself to calm his mind, putting on a calm and composed expression, unwilling to let Yang *Juren* look down on him.
+Steeling himself, Zhan Zhekun forced composure onto his features, unwilling to appear lesser.
 
-"Reporting to the two Masters, Master Feng has already passed the second stockade gate."
+"Master, Master Feng has passed the second stockade gate."
 
-"Did he leave people at the stockade gate?"
+"Did he leave men behind?"
 
-"He did! Only the distance is far, small one couldn't see clearly, about twenty or thirty people."
+"He did. The distance was too great to count precisely—perhaps twenty or thirty."
 
-"How many people are around him now?"
+"How many remain with him now?"
 
-"Small one counted, fifty or sixty people."
+"I counted fifty or sixty."
 
-"These are probably all his direct line." Yang Jinghui said.
+"Those are likely all his core troops," Yang Jinghui observed.
 
-"Are there follow-up troops?"
+"Are there follow-up forces?"
 
-"There are about a hundred people, following to climb the mountain, but haven't passed the second gate yet."
+"About a hundred, still climbing but not yet past the second gate."
 
-"This Feng Haijiao is really a slick old fox." Yang Jinghui laughed, "It's hard on him too, arranging quite tightly."
+"This Feng Haijiao is a cunning old fox indeed." Yang Jinghui chuckled. "One must give him credit—his arrangements are quite tight."
 
-"If he weren't a slick old fox, how would he be willing to eat my fragrant bait?" Zhan Zhekun was confident at this moment.
+"If he weren't cunning, would he have swallowed my fragrant bait?" Zhan Zhekun felt his confidence growing.
 
-Feng Haijiao led the team, full of ambition, climbing the mountain and passing checkpoints all the way without obstruction. Of the two stockade gates passed, only the first had twenty able-bodied men guarding, the second simply had two old men watching. And no one dared to object when he left people behind.
+Feng Haijiao led his men up the mountain, full of ambition. They passed each checkpoint without obstruction. The first stockade gate had twenty guards; the second had only two old watchmen. No one objected when he left his men behind.
 
-Seeing the main gate was just ahead, once past this gate, Thunder Struck Slope would have no danger to defend. Xin Family Manor would be in his bag.
+The main gate lay just ahead. Once through, Thunder Struck Slope would have no defensible positions. Xin Family Manor would be his.
 
-The more he thought, the more proud he became. Seeing a few more tenants coming respectfully to welcome him ahead.
+His pride swelled. Several tenants approached respectfully to welcome him.
 
-"Where is your Manager Xin?"
+"Where is Manager Xin?"
 
-"The Manager is waiting in front of the temple, waiting to wash the dust for the Master." The tenant smiled apologetically.
+"The Manager awaits before the temple, ready to wash the dust from your journey." The tenant smiled ingratiatingly.
 
-Feng Haijiao nodded. Reaching the mountaintop, he saw open space all around. Only seven or eight tenants guarded the main gate, and more than ten people worked in the paddy fields. Birds in the mountain forest were not startled, obviously no large troops were hidden. His heart settled a few points more.
+Feng Haijiao nodded. Reaching the summit, he surveyed the open terrain. Seven or eight tenants guarded the main gate while a dozen worked in the paddy fields. Birds in the mountain forest remained undisturbed—clearly no large forces lay hidden. His heart settled further.
 
-Arriving in front of the temple, he saw Zhan Zhekun with a face full of spring breeze, welcoming in front of the temple, surrounded by no more than three or four attendants. He couldn't help but be secretly suspicious, arched his hands in return and said: "Where is Manager Xin?"
+Arriving at the temple, he found Zhan Zhekun waiting at the entrance with a welcoming smile, attended by only three or four servants. Suspicion flickered within him, but he returned the greeting. "Where is Manager Xin?"
 
-"Manager Xin had an old injury flare up these days, inconvenient to move, waiting in the hall." Zhan Zhekun smiled. Feng Haijiao felt vaguely uneasy, but relying on the thirty or forty minions around him, all his direct trusted aides, even if there was an ambush inside, they could protect him to charge out, so he said carelessly: "In that case, let's go inside to talk again!" After saying this, he signaled his subordinates with his eyes and followed Zhan Zhekun in.
+"An old injury has flared up. He's having difficulty moving, so he awaits you in the hall." Zhan Zhekun smiled.
 
-His subordinates immediately followed in. However, the temple itself was not big. Once dozens of people came in, the courtyard was immediately packed full. The main gate of the main hall was open. Xin Laonan was sitting in front of the Buddha statue in the hall. Although not seeing clearly, his complexion seemed not bad. There were only a few attendants in the hall too. Feng Haijiao’s heart settled greatly. Smiling, he raised his head and entered the hall, laughing: "Manager Xin, I trust you have been well since we parted..."
+Feng Haijiao felt a vague unease, but with thirty or forty of his most trusted men surrounding him, even an ambush inside could be fought through. He spoke carelessly: "Then let us go inside." He signaled his subordinates and followed Zhan Zhekun in.
 
-Before his voice finished, he only heard a gust of wind behind him, followed by a loud bang, dust flying. Feng Haijiao was startled. Just about to turn his head, he felt heat on his face, as if splashed with hot water. However, the special sticky feeling made him immediately realize: This is human blood!
+His men crowded after him. The temple was not large, and dozens of people packed the courtyard immediately. The main hall's doors stood open. Xin Laonan sat before the Buddha statue—though difficult to see clearly, his complexion appeared healthy. Only a few attendants occupied the hall. Feng Haijiao's heart settled completely. Smiling, he strode forward, calling out: "Manager Xin! It's been too long—"
 
-Feng Haijiao turned pale with fright. looking back, he saw the four attendants who followed him closely into the main hall had all been killed on the ground. The originally open main gate of the main hall was also closed tightly, and a few minions were putting the top door bar on.
+Before he could finish, a gust of wind erupted behind him, followed by a thunderous crash. Dust flew. Feng Haijiao whirled around, then felt heat splash across his face—like hot water, but with a distinctive stickiness that told him instantly: this was human blood.
 
-Outside were the wild shouts and desperate door-banging sounds of the minions he brought. Feng Haijiao wanted to draw his sword, but was forced not to dare move by several long spears.
+He went pale with terror. Looking back, he saw that the four attendants who had followed him into the hall lay dead on the ground. The main gate had slammed shut, and several soldiers were ramming the crossbar into place.
 
-He forced himself to be calm and roared: "Surname Xin, what is your meaning?!"
+Outside came the wild shouts of his men and the desperate pounding of fists against doors. Feng Haijiao reached for his sword, but several spears leveled at him froze his hand.
+
+He forced himself to remain calm. "Surname Xin! What is the meaning of this?!"
 
 ---
 **Next Update:** Volume 7 - Guangzhou Governance Part 464

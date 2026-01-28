@@ -1,133 +1,133 @@
 # Chapter 2310 - New Clues
 
-"Cai Lan is also a principal offender; her life cannot be spared," Xie Erren said. "I will give her a chance to commit suicide with dignity, avoiding the humiliation of a public execution. I will also provide a good set of grave clothes and choose a place for burial."
+"Cai Lan is also a principal offender—her life cannot be spared," Xie Erren said. "However, I will grant her a chance to die with dignity, avoiding the humiliation of public execution. I'll provide a proper set of burial clothes and select an appropriate resting place."
 
-Yi Haoran cupped his hands and said, "Many thanks!" He said generously, "Do as you wish!"
+Yi Haoran cupped his hands. "Many thanks." His voice was steady, generous. "Do as you see fit."
 
-"Good! Mr. Yi is truly a hero. Straightforward!" Xie Erren nodded, secretly delighted. "Take Mr. Yi back and serve him well."
+"Excellent! Mr. Yi is truly a man of character—straightforward and decisive!" Xie Erren nodded, secretly delighted. "Take Mr. Yi back and see that he's well cared for."
 
-Yi Haoran was taken down, and Zhao Fengtian walked in quietly.
+After Yi Haoran was led away, Zhao Fengtian slipped quietly into the room.
 
-"Do you think this old man can keep his promise?"
+"Do you think the old man will keep his promise?"
 
-"Half and half," Zhao Fengtian said. "He is a dying man; saying anything doesn't matter. It depends on whether he really cares about the Luo and Jiang families. However," he paused, "I see he is a righteous man of affection."
+"Half and half," Zhao Fengtian replied. "He's a dying man—what he says costs him nothing. Whether he follows through depends on how much he truly cares about the Luo and Jiang families." He paused. "That said, he strikes me as a man of genuine sentiment."
 
-"I have that feeling too." Xie Erren nodded. "He counts as a gentleman! However, I fear that if he regrets it at the moment and shouts out at the public trial rally, it will be unseemly..."
+"I have the same impression." Xie Erren nodded. "He carries himself like a gentleman. My only concern is if he has second thoughts at the last moment and starts shouting during the public trial rally. That would be... unseemly."
 
-"That won't be a problem," Zhao Fengtian whispered. "The public trial venue is large; tin megaphones are needed for everyone to hear. Just assign a sharp police officer to hold the megaphone and remove it at any time. Also, put a noose around his neck with a knot at the throat. Have someone pull it from behind. If he really starts shouting indiscriminately, just pull the rope tight, and he won't be able to say a single word."
+"That won't be a problem," Zhao Fengtian said in a low voice. "The trial venue is large—we'll need tin megaphones for the crowd to hear anything. Simply assign a sharp officer to hold the megaphone and pull it away if necessary. Also, put a noose around his neck with a knot at the throat. Have someone stand behind him holding the rope. If he starts shouting anything unexpected, one tug and he won't be able to utter a single word."
 
-"You really have a way," Xie Erren patted his shoulder. "Let's do that! Go back and plan his confession carefully to see how it should be written."
+"You really do have a way with these things." Xie Erren clapped him on the shoulder. "Let's do that. Go back and draft his confession carefully—consider how it should be written."
 
-"Yes, I'll consider it right away." Just as Zhao Fengtian was about to withdraw, Xie Erren stopped him again: "How are arrangements for Cai Lan?"
+"I'll get on it immediately." Just as Zhao Fengtian was about to withdraw, Xie Erren stopped him again. "What about Cai Lan's arrangements?"
 
-"Everything is arranged properly," Zhao Fengtian said. "Chief, rest assured."
+"Everything is in order," Zhao Fengtian assured him. "Rest easy, Chief."
 
-Following Zhao Fengtian's instructions, Zheng Ergen specifically arranged for two female wardens who specialized in guarding female prisoners in the Yamen. They were ruthless types, most skilled at torturing and humiliating female prisoners physically and mentally. In less than three or five days, Cai Lan wouldn't be able to endure it and would have to seek death.
+Following Zhao Fengtian's instructions, Zheng Ergen had arranged for two female wardens who specialized in guarding female prisoners at the Yamen. They were ruthless types, expert at breaking women physically and mentally. Within three to five days, Cai Lan wouldn't be able to endure it any longer and would seek death on her own.
 
-But it wasn't appropriate to say these words to Xie Erren. He understood this Senator too well.
+But it wasn't appropriate to say such things to Xie Erren directly. Zhao Fengtian understood this Senator all too well.
 
-Xie Erren nodded and said, "Is the report to Guangzhou ready?"
+Xie Erren nodded. "Is the report to Guangzhou ready?"
 
-"The draft is finished. I'll send it to your desk in a moment. Please give modification comments after reviewing it."
+"The draft is finished. I'll send it to your desk shortly. Please review it and provide comments."
 
-"This report is most critical. It must be sent out tonight. Otherwise, the Senate will inevitably be suspicious later." Xie Erren was quite satisfied with his efficiency.
+"This report is critical—it must go out tonight. Otherwise, the Senate will inevitably grow suspicious later." Xie Erren was quite satisfied with his efficiency.
 
-The unloading work continued until evening before finishing completely. It was safe and sound. Large amounts of grain entered the warehouse, and rice prices dropped in response. That night, according to Xie Erren's instructions, the more than twenty captives and insider spies caught last night were publicly strangled at various city gates in Wuzhou. The originally panicked city settled down again.
+The unloading work continued until evening before finally concluding. Everything went smoothly. Large quantities of grain entered the warehouses, and rice prices dropped in response. That night, following Xie Erren's instructions, the twenty-odd captives and insider spies caught during the previous night's raid were publicly strangled at the city gates throughout Wuzhou. The panicked city finally settled down again.
 
-The Second Squadron, which took over the defense of Sanhezu, set up a shelter there, successively receiving hundreds of scattered refugees and captives. These refugees were then handed over to the fleet returning the next day to be taken back to Sanshui. Wuzhou could no longer shoulder these burdens.
+The Second Squadron, having taken over the defense of Sanhezu, established a shelter there and successively received hundreds of scattered refugees and captives. These refugees would be handed over to the returning fleet the next day and transported back to Sanshui. Wuzhou could no longer shoulder such burdens.
 
-In the city, Xie Erren carefully read Zhao Fengtian's report. To be fair, the report was written very adequately. But it was inevitably too plain and narrative, lacking language sense and proper measure. Xie Erren was a professional in this aspect, an expert level in wording and phrasing.
+In the city, Xie Erren carefully reviewed Zhao Fengtian's report. To be fair, it was written adequately. But it was inevitably too plain and narrative, lacking rhetorical finesse and proper weight. Xie Erren was a professional in this regard—an expert in the art of wording and phrasing.
 
-This report had to be handled extremely carefully. It had to make the Guangdong Region feel the situation wasn't serious, yet not show an intention to downplay it. After pondering the wording carefully for half a day and making painstaking modifications, he was finally satisfied.
+This report required extremely careful handling. It had to convey to the Guangdong Region that the situation wasn't serious, yet without appearing to deliberately minimize it. After pondering the wording for half the evening and making painstaking revisions, he was finally satisfied.
 
-In the report, he didn't mention a word about Cai Lan destroying the transfer letter. This joint was too big and had to be flatly denied. As for the relationship between him and Cai Lan, it was mentioned even less. Cai Lan was only categorized as a "retained staff member" mixed into the list of insider personnel captured during the riot.
+In the report, he made no mention of Cai Lan destroying the transfer letter. That detail was too significant—it had to be flatly denied. As for his relationship with Cai Lan, that went unmentioned entirely. She was simply categorized as a "retained staff member" and listed among the insider personnel captured during the riot.
 
-Reading it through one last time and changing a few words and punctuation marks, Xie Erren stamped his large seal, put the document into a "Top Secret, Urgent" bag, and handed it to the confidential clerk.
+Reading through one last time and adjusting a few words and punctuation marks, Xie Erren stamped his official seal, placed the document in a "Top Secret, Urgent" bag, and handed it to the confidential clerk.
 
-"Send a summary via radio tonight, and send the full text early tomorrow morning!"
+"Send a summary via radio tonight, and dispatch the full text first thing tomorrow morning."
 
-After finishing these things, Xie Erren let out a breath. He felt his soul had returned a little.
+After finishing these tasks, Xie Erren let out a long breath. He felt some semblance of his soul returning.
 
-"Liu Youwang woke up?" Zhao Fengtian was exhausted after tossing and turning for a day and a night. He had already washed up and returned to his bedroom, ready to go to bed early and sleep well. Unexpectedly, Zheng Ergen suddenly came to find him, reporting that Liu Youwang, who was found in the ruins of Sanhezu, had woken up.
+"Liu Youwang is awake?" Zhao Fengtian had been exhausted after a day and night of ceaseless activity. He had already washed up and returned to his bedroom, ready for an early night's sleep. But then Zheng Ergen arrived unexpectedly to report that Liu Youwang, who had been found in the ruins of Sanhezu, had regained consciousness.
 
-Hearing this news, Zhao Fengtian didn't dare to delay. He hurried back to the office and lit a candle.
+Hearing this news, Zhao Fengtian didn't dare delay. He hurried back to his office and lit a candle.
 
-Liu Youwang was the Warden of Sanhezu. In the whole of Sanhezu, only he and Jiang Yougong were naturalized cadres. The others were all retained personnel.
+Liu Youwang was the Warden of Sanhezu. In the entire camp, only he and Jiang Yougong were naturalized cadres—everyone else was retained personnel.
 
-Jiang Yougong was already dead, and strictly speaking, he didn't have much to do with the Sanhezu camp. If the Senate wanted to investigate the Sanhezu matter, Liu Youwang was the key figure.
+Jiang Yougong was already dead, and strictly speaking, he hadn't been deeply involved in the camp's operations anyway. If the Senate wanted to investigate the Sanhezu matter, Liu Youwang was the key figure.
 
-Exactly how the bandits and Ming army breached the Sanhezu camp and what happened before and after—only he could explain it clearly now. The key was that from the preliminary interrogation of surviving retained personnel, and the returned captives and refugees, the water in Sanhezu was very deep.
+How exactly the bandits and Ming army breached the camp, what happened before and after—only he could explain it clearly now. And from preliminary interrogations of surviving retained personnel, returned captives, and refugees, it was clear the situation at Sanhezu ran deeper than it appeared.
 
-"How is Liu Youwang's condition now?"
+"What's Liu Youwang's condition now?"
 
-"He is conscious. The medic said he is fine, mostly flesh wounds and contusions," Zheng Ergen said.
+"He's conscious. The medic said he's fine—mostly flesh wounds and contusions," Zheng Ergen reported.
 
-Zhao Fengtian frowned slightly and whispered, "This medic is too arbitrary. He isn't even a doctor; on what basis does he say Liu Youwang is fine?"
+Zhao Fengtian frowned slightly and lowered his voice. "That medic is being too hasty. He isn't even a proper doctor—on what basis does he declare Liu Youwang fine?"
 
-Zheng Ergen was a bit baffled. He said, "Then, then I'll let him check carefully again..."
+Zheng Ergen was somewhat baffled. "Then... should I have him examine him more carefully?"
 
-"What can he find by checking again? He isn't a doctor. Just don't draw conclusions casually."
+"What would another examination find? He isn't a doctor. Just tell him not to draw conclusions so casually."
 
-Zheng Ergen understood somewhat and immediately said, "I know!"
+Zheng Ergen understood the implication and immediately said, "I understand."
 
 "Did Liu Youwang say anything?"
 
-"He just said the opera chest exploded during the rehearsal. He knows nothing else."
+"He only said the opera chest exploded during a rehearsal. Beyond that, he claims to know nothing."
 
-"Weren't the opera chests taken from the Three Generals' Office warehouse? Those chests were taken out of the warehouse as items left untouched for decades. The gunpowder certainly wasn't original—someone put it in halfway."
+"Weren't the opera chests taken from the Three Generals' Office warehouse? Those chests had been sitting untouched for decades. The gunpowder certainly wasn't original—someone planted it later."
 
-"Liu Youwang also said he personally came to Wuzhou to transport the chests back, approved by the Chief personally," Zheng Ergen said. "But he also admitted that after moving the chests into the camp, he didn't manage them and handed them all to Chang Qingyun."
+"Liu Youwang said he personally came to Wuzhou to transport the chests back, with the Chief's approval," Zheng Ergen continued. "But he also admitted that after moving them into the camp, he didn't manage them himself. He handed everything over to Chang Qingyun."
 
 "Who is Chang Qingyun?"
 
-"A captive in the camp, heavily originally an advisor of Xiong Wencan."
+"A captive in the camp. Apparently he was previously an advisor to Xiong Wencan."
 
-"Was this Chang Qingyun caught?"
+"Was Chang Qingyun captured?"
 
 "No. No corpse was found either—perhaps it was burned."
 
-"Is there a confession saying Chang Qingyun was an insider?"
+"Is there any confession implicating Chang Qingyun as an insider?"
 
-"Currently... not yet," Zheng Ergen said. "According to the captives and refugees, Chang Qingyun was Liu Youwang's dog-head advisor (consigliere), often helping Liu Youwang do bad things and persecuting refugees in the camp. He put the most effort into organizing the opera troupe and getting women."
+"Currently... not yet," Zheng Ergen said. "According to the captives and refugees, Chang Qingyun served as Liu Youwang's consigliere—his dog-headed advisor, always helping Liu Youwang with dirty work and persecuting refugees in the camp. He was particularly active in organizing the opera troupe and procuring women."
 
-"So this Chang Qingyun was a helping hand (hanger-on)." Zhao Fengtian felt much more at ease.
+"So this Chang Qingyun was essentially a hanger-on." Zhao Fengtian felt much more at ease.
 
-"Should be." Zheng Ergen continued to report that Liu Youwang did many bad things in the camp: raping and occupying women, embezzling money and grain, and abusing or even killing captives and refugees.
+"That appears to be the case." Zheng Ergen continued his report, detailing Liu Youwang's many transgressions in the camp: raping and seizing women, embezzling money and grain, abusing and even killing captives and refugees.
 
-"...Public resentment against him was great. So when the bandits attacked and the insiders shouted, the camp immediately fell into chaos. Jiang Yougong wasn't any better. National Army soldiers said he rarely cared about military affairs and often fooled around with Liu Youwang in the camp."
+"...Public resentment against him was severe. So when the bandits attacked and the insiders raised the alarm, the camp immediately descended into chaos. Jiang Yougong wasn't any better. National Army soldiers said he rarely attended to military matters and often spent his time carousing with Liu Youwang in the camp."
 
-"I didn't expect the camp's problems to be so big!" Zhao Fengtian feigned surprise. "This is important information. We must focus on collecting relevant evidence."
+"I didn't expect the camp's problems to run so deep!" Zhao Fengtian feigned surprise. "This is vital information. We must focus on collecting relevant evidence."
 
-"It seems now that Liu Youwang and Jiang Yougong acting unlawfully and being paralyzingly careless in the camp was the main reason for the accident at Sanhezu."
+"It appears now that Liu Youwang and Jiang Yougong's lawlessness and negligence in the camp was the primary cause of the Sanhezu disaster."
 
-"I think so too." Zheng Ergen agreed with Zhao Fengtian's tone-setting. "There is one more thing I need to report."
+"I believe so too." Zheng Ergen readily agreed with Zhao Fengtian's framing. "There's one more matter I need to report."
 
-"Speak."
+"Go on."
 
-"A small ox-horn seal was found on Liu Youwang. Strangely, a nearly identical one was found on Jiang Yougong, only the seal script was different."
+"A small ox-horn seal was found on Liu Youwang. Strangely, a nearly identical one was found on Jiang Yougong—only the seal script differs."
 
-Saying this, Zheng Ergen took out a kraft paper bag for evidence and poured out the seals.
+As he spoke, Zheng Ergen produced a kraft paper evidence bag and poured out the seals.
 
-"Both small seals were kept close to their bodies and wrapped very carefully. Obviously, they are very important things. But the seal script on these seals cannot be read at all."
+"Both seals were kept close to their bodies, wrapped very carefully. Obviously, they're quite important. But the seal script is completely illegible."
 
-Zhao Fengtian examined the two small seals in turn. From the size, texture, and script, he could judge they were from the same batch and the same hand. But the seal script was strange writing no one recognized.
+Zhao Fengtian examined the two small seals in turn. From their size, texture, and style, he could tell they came from the same batch and the same craftsman. But the seal script consisted of strange characters that no one could read.
 
-"This is a secret cipher seal. The script is a code; only the shop that issued the seal understands it." Zhao Fengtian was knowledgeable. "It is used to deposit and withdraw money from shops and banks—it seems this Liu Youwang got quite a bit of wealth." He explained briefly to Zheng Ergen.
+"This is a secret cipher seal. The script is a code—only the shop that issued the seal can decode it." Zhao Fengtian was knowledgeable in such matters. "It's used for depositing and withdrawing money from shops and banks. It seems this Liu Youwang acquired quite a fortune." He explained briefly to Zheng Ergen.
 
-Zheng Ergen suddenly realized: "So Jiang Yougong had one too..."
+Sudden realization crossed Zheng Ergen's face. "So Jiang Yougong had one too..."
 
-"Exactly. The two of them were in cahoots at Sanhezu, making a mess of things, and even poking a hole in Wuzhou City." Zhao Fengtian sighed. "It's meaningless to say this now. The key is where they hid the silver—maybe others are involved."
+"Exactly. The two of them were in league at Sanhezu, making a complete mess of things and nearly blowing a hole through Wuzhou City." Zhao Fengtian sighed. "But that's beside the point now. What matters is where they hid the silver—and whether others are involved."
 
-Large shops or banks that took deposits made secrecy their primary principle, so the secret cipher seals usually had no name, only the depositor knew where it was deposited. Confidentiality was high.
+Large shops and banks that accepted deposits made secrecy their first principle, so secret cipher seals typically bore no names. Only the depositor knew where the money was held. The confidentiality was extremely high.
 
-"Did Liu Youwang say where this thing came from?"
+"Did Liu Youwang say where this seal came from?"
 
-"I haven't asked him yet. I estimate he won't say. But it's not hard to check. There are few seal-carving shops in Wuzhou City. Ask an old master, and we'll roughly know which shop carved it."
+"I haven't asked him yet. I expect he won't say. But it shouldn't be hard to find out. There aren't many seal-carving shops in Wuzhou City. Have an experienced master take a look, and we'll roughly know which shop carved it."
 
-"Check it. You must put effort into this case and investigate strictly! Get to the bottom of it!" Zhao Fengtian set the tone instantly, making the Sanhezu corruption case a key focus. This way, he could maximize potential blame-shifting and divert the line of sight of future investigations.
+"Investigate this thoroughly. You must put real effort into this case—get to the bottom of it!" Zhao Fengtian set the tone immediately, making the Sanhezu corruption case a focal point. This approach would maximize potential blame-shifting and divert future investigators' attention.
 
-"Yes, I'll go investigate right now!"
+"Yes, I'll begin the investigation right away."
 
-"For Liu Youwang's side, don't alert him for now. Just send someone to watch him. Start from the periphery. First, clarify the source of the ox-horn seals; second, clarify what illegal activities he and Jiang Yougong specifically conducted in the Sanhezu camp, and if any other naturalized cadres are involved—report this case directly to me!"
+"As for Liu Youwang—don't alert him for now. Just have someone watch him. Start from the periphery. First, clarify the origin of the ox-horn seals. Second, determine exactly what illegal activities he and Jiang Yougong conducted in the Sanhezu camp, and whether any other naturalized cadres are involved. Report this case directly to me."
 
 **(End of Chapter)**

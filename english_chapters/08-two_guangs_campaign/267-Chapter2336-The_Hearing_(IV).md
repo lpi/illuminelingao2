@@ -1,101 +1,101 @@
 # Chapter 2336 - The Hearing (IV)
 
-His remarks were extremely mild, not only exonerating Xie Erren, but also letting off other responsible departments lightly along with him. However, Ma Jia understood clearly in his heart. These words seemed itching but not painful (superficial/harmless), but the underlying subtext was that the Liangguang Campaign exceeded the capability range of the Senate.
+His remarks were extremely mild, exonerating not only Xie Erren but also the other responsible departments. Yet Ma Jia understood the subtext clearly: the Liangguang Campaign had exceeded the Senate's capabilities.
 
-Since it exceeded the Senate's capability range, what to do next was ready to come out at a call.
+And since it had exceeded their capabilities, what came next was obvious.
 
-*Young man has a future,* Ma Jia thought, *this plan Comrade Zhou plotted secretly for a long time in the past is finally revealing the dagger (intentions) this time.*
-*
-What would happen next? Ma Jia himself didn't know. But judging from the appearance of Liangguang stretched at every turn, proposals of further expanding the war, burning war to Jiangxi, Lianghu (Hunan/Hubei), landing and thrusting into Jiangnan, Shandong, and landing on Liaodong Peninsula etc. were basically ruined. Even if there were, the scale of projection would be limited.
+*This young man has a future,* Ma Jia thought. *The plan Comrade Zhou has been quietly plotting is finally showing its true colors.*
 
-Next would be nothing more than squatting locally (consolidating) or going south to open mines. Ma Jia knew about Zhou Wei going to Danzhou Industrial Park to lobby in the previous stage, and also knew what he said at the meeting.
+What would happen next? Even Ma Jia couldn't say. But judging from how stretched Liangguang was at every turn, proposals to further expand the war—pushing into Jiangxi, Hunan and Hubei, launching amphibious assaults into Jiangnan or Shandong, landing on the Liaodong Peninsula—were essentially dead in the water. Even if something emerged, the scale of any projection would be limited.
 
-But Ma Jia wasn't interested in his activities: whether going south or squatting in Liangguang, it had no practical meaning to the Law Society. What the Law Society was most interested in now was establishing a new judicial system in Liangguang—if successful, he and his Law Society would be counted as immortalized in history.
+What remained was either consolidating locally or going south to open mines. Ma Jia knew about Zhou Wei's lobbying trip to Danzhou Industrial Park in the preceding stage, and what he had said at the meeting there.
 
-Next a few more Senators spoke. Xie Erren was already a dead tiger; criticism of him was basically just an opening remark passed over with one stroke. Firepower gradually concentrated on the Personnel Department and Political Security Bureau.
+But Ma Jia had no particular interest in these activities. Whether they went south or stayed in Liangguang made little practical difference to the Law Society. What interested the Law Society most right now was establishing a new judicial system in Liangguang—if successful, he and his Law Society would be making history.
 
-Why could Xie Erren obtain the appointment of Wuzhou Director? This was the most query—obviously, Xie Erren didn't have any local administrative experience before holding this post. Was there any certain "backstage deal" in his obtaining this appointment? Secondly naturally was the absence of the Political Security Bureau in Wuzhou.
+Several more Senators spoke next. Xie Erren had become a dead tiger; criticism of him was now little more than an opening pleasantry before moving on. Fire was gradually concentrating on the Personnel Department and the Political Security Bureau.
 
-Then someone proposed a motion, requiring these two departments to send representatives to provide relevant answers regarding the issues. If the answers couldn't obtain trust and pass at the hearing, then establishing a specialized investigation team to conduct "in-depth investigation" on these two departments would be proposed at the General Assembly.
+Why had Xie Erren received the Wuzhou Director appointment? This was the most common question—obviously, Xie Erren had no local administrative experience before assuming this post. Had there been some "backstage deal" behind his appointment? And naturally, there was the Political Security Bureau's absence in Wuzhou.
 
-The motion passed unanimously. Because both departments had specific work, usually the hearing would end here, continuing tomorrow. But Hai Lin expressed opposition, believing main responsible persons of these two departments were both in Lingao and should send representatives to attend the hearing immediately. This was "respect" for the Senate. His motion immediately obtained passage. Organization Section was one thing, usually presence not strong, but Political Security Bureau was always ranked first in many Senators' persecution delusions.
+Someone proposed a motion requiring both departments to send representatives to address these issues. If the answers failed to satisfy and pass at the hearing, a specialized investigation team would be proposed at the General Assembly to conduct "in-depth investigation" of both departments.
 
-Ma Jia knew his mind, fearing meeting again every other day would lose the current atmosphere, and also give them prep time.
+The motion passed unanimously. Given that both departments had pressing work, the hearing would normally have adjourned here and resumed the next day. But Hai Lin objected, arguing that the principal officials of both departments were in Lingao and should send representatives immediately. This was a matter of "respect" for the Senate. His motion quickly passed. The Organization Section was one thing—usually low-profile—but the Political Security Bureau had always ranked first in many Senators' persecution anxieties.
 
-"Since the meeting has passed the proposal, we will send people to invite their representatives over." Ma Jia announced, "If everyone temporarily has nothing to speak, the meeting rests now."
+Ma Jia understood his thinking: waiting until the next day would let the current atmosphere dissipate and give them time to prepare.
 
-The originally somewhat tense assembly hall instantly restored its original relaxed sense. Attending Senators gathered in groups of three or five, whispering to each other. Judging from many people's excited faces and almost unconcealable joy, many people were confident. There were a few people who remembered Ma Jia was the Director of Political Security Bureau, so their gazes moved towards his side from time to time, seeming to want to see some clues from his face. Ma Jia couldn't help laughing secretly, deliberately making a look of being worried and restless.
+"Since the motion has passed, we will send for their representatives now," Ma Jia announced. "If there's nothing further to discuss, the meeting is in recess."
 
-Unexpectedly this was discovered by Dong Shiye, asking: "Court President Ma, you look..."
+The previously tense assembly hall instantly relaxed. Attending Senators gathered in clusters of three and five, whispering among themselves. Judging from many excited faces and barely concealed satisfaction, quite a few were confident. Several people, remembering that Ma Jia was the Director of the Political Security Bureau, kept glancing his way, trying to read something from his expression. Ma Jia couldn't help smiling inwardly, and deliberately put on an air of worried unease.
 
-"Nothing, nothing, just feeling funny." Ma Jia's expression didn't change, continuing a look of uneasiness.
+This didn't escape Dong Shiye, who asked, "Court President Ma, you look..."
 
-"I don't find it funny at all." Dong Shiye's expression was very grave, "To be honest, I am still very approving of Pan Jiexin's formulation. The Senate should conduct a Rectification, not these baffling hearings—current hearings have turned into what..." He paused, "To be honest, I feel the Senate's current ethos is very bad. Any matter will become the utilizing object of a certain faction force. How to handle a certain matter or person, is not first considering the Senate's interest and consequences caused, but putting striking opponents or expanding own faction's proposition in the first place. Even vaguely there is a trend that one cannot accomplish things without attaching to a certain faction: wanting to accomplish things, must form cliques, expanding influence. Going on like this, aren't we no different from bureaucrats keen on party struggles in late Ming?"
+"Nothing, nothing—I just find it amusing." Ma Jia's expression remained troubled.
 
-"You are right." Ma Jia said, "Last time He Ming also talked about this privatley with me. Such phenomenon of watching other departments make fools of themselves, gloating and even using this as evidence is appearing more and more now. Even in the troops there are similar signs."
+"I don't find it amusing at all." Dong Shiye's expression was grave. "Honestly, I rather approve of Pan Jiexin's formulation. The Senate should conduct a Rectification—not these bewildering hearings that have turned into who knows what." He paused. "Frankly, the current atmosphere in the Senate is terrible. Any matter becomes a tool for factional exploitation. How to handle a matter or person isn't decided by first considering the Senate's interests and consequences, but by putting striking opponents or advancing one's faction first. There's even a growing trend that nothing can be accomplished without joining some faction: if you want to get things done, you must form cliques and expand influence. If this continues, how are we different from the bureaucrats obsessed with factional struggles in the late Ming?"
 
-"My heavan, he wouldn't be talking about Hai..."
+"You're right," Ma Jia said. "He Ming spoke with me privately about this not long ago. This phenomenon of gloating when other departments stumble, even using it as evidence, is appearing more and more. Even in the military, there are similar signs."
 
-Ma Jia interrupted his words: "Who it is isn't important. Just that such an atmosphere has formed. Reversing it probably isn't [work of] one morning or evening." He sighed, "We have natural defects. To be honest, such a bizarre system operating smoothly till now, can only say it's because we used cheats (hacks) in this spacetime..."
+"Good heavens, surely he wasn't talking about Hai—"
 
-In just an hour's effort, two representatives from Organization Section and Pol-Sec Bureau came. And both were specific persons in charge, one was Ming Lang, and one was Zhao Manxiong who rarely showed his face in public occasions.
+Ma Jia cut him off: "Who it is doesn't matter. The atmosphere has already formed. Reversing it won't happen overnight." He sighed. "We have inherent defects. Honestly, the fact that such a bizarre system has operated smoothly until now can only be attributed to our having used cheats in this timeline..."
 
-The two performed the ceremony first, then entered the inquiry stage. Ming Lang was the first.
+Within an hour, two representatives arrived from the Organization Section and the Pol-Sec Bureau. Both were the actual persons in charge—one was Ming Lang, and the other was Zhao Manxiong, who rarely appeared in public.
 
-This Section Chief had performed duties for many years, basically still preserving appearance and habits of the civil servant era in the past. Dressed simply, expression rigorous. After sitting down in the listening seat, he took out a notebook and a fountain pen.
+Both performed the ceremonial formalities before entering the inquiry stage. Ming Lang went first.
 
-"I want to ask Section Chief Ming Lang, Xie Erren was appointed as Wuzhou Regional Director. Who made this appointment." Hai Lin raised the first question.
+This Section Chief had served in his position for many years, still retaining the appearance and habits of a civil servant from the old era. Simply dressed, expression serious. After sitting in the hearing seat, he took out a notebook and fountain pen.
 
-Ming Lang first recorded a few strokes in the notebook, then answered:
+"I want to ask Section Chief Ming Lang: who made the appointment of Xie Erren as Wuzhou Regional Director?" Hai Lin posed the first question.
 
-"The appointment was suggested by the Senate Organization Section according to Attachment 11 *Interim Regulations on Appointment and Removal of Senator Cadres*, reviewed and passed by the Senate Standing Committee, then formally filed and appointed by the State Council."
+Ming Lang first made several notes in his notebook, then answered:
 
-"Then what function does your department play in the whole process?"
+"The appointment was proposed by the Senate Organization Section in accordance with Attachment 11, *Interim Regulations on Appointment and Removal of Senator Cadres*, reviewed and passed by the Senate Standing Committee, then formally filed and appointed by the State Council."
 
-"Organization work is relatively complex to speak of. Specifically can be divided into multiple items. Specifically to the cadre part: mainly responsible for macro-management of cadres served by Senators. Including planning, research, guidance etc. in aspects of management system, policies and regulations, personnel system etc., proposing suggestions on term change adjustment appointment and removal etc."
+"What role does your department play in the entire process?"
 
-Hai Lin's face twitched once, saying impatiently: "Don't drop book bags (show off bookishness), please answer the question directly: In the matter of Xie Erren becoming Director, how did you handle affairs?"
+"Organization work is complex to explain in detail. It can be divided into multiple items. Regarding cadres specifically: we're mainly responsible for macro-management of cadres serving as Senators. This includes planning, research, and guidance on management systems, policies and regulations, personnel systems, and so forth, as well as proposing suggestions on term adjustments, appointments, and removals."
 
-A trace of imperceptible disdain appeared at the corner of Ming Lang's mouth. He smiled slightly, saying: "I will explain in simple terms. Any position served by Senator Cadres must go through these steps: 'Nomination or Registration' - 'Organization Section Filing and Inspection' - 'Senate Approval - State Council Appointment'.
+Hai Lin's face twitched with impatience. "Don't lecture me with jargon. Please answer the question directly: regarding Xie Erren becoming Director, how did you handle the matter?"
 
-"Among these, 'Nomination and Registration' is open. Whether the Senator himself, or various departments, can all propose candidates—can be others or oneself. As long as conforming to relevant nomination conditions."
+A trace of imperceptible disdain flickered at the corner of Ming Lang's mouth. He smiled slightly. "I'll explain in simple terms. Any position filled by a Senator Cadre must go through these steps: 'Nomination or Registration' – 'Organization Section Filing and Inspection' – 'Senate Approval' – 'State Council Appointment.'
+
+"Of these, 'Nomination and Registration' is open. Whether the Senator himself or various departments, anyone can propose candidates—including themselves. As long as the nomination conditions are met."
 
 "Who nominated this Xie Erren?"
 
 "Himself."
 
-"Not others? Perhaps likely a certain Senator signaled him to register?"
+"Not others? Perhaps someone signaled him to register?"
 
-"I cannot judge this speculation. According to the content on the nomination form, Xie Erren registered himself."
+"I cannot judge such speculation. According to the nomination form, Xie Erren registered himself."
 
-"Even if he registered himself. Since you are responsible for filing and inspection, naturally you should screen out unsuitable candidates right? Why wasn't he screened out? Judging solely from Senator Xie's resume, he has fundamentally no local political experience, nor educational background in this aspect."
+"Even if he registered himself, since you're responsible for filing and inspection, you should have screened out unsuitable candidates, correct? Why wasn't he screened out? Judging by Senator Xie's resume alone, he has fundamentally no local political experience, nor any relevant educational background."
 
-"You are completely correct." Ming Lang said, "In our preliminary inspection we also indeed believed he wasn't suitable for assuming local administrative position. But..."
+"You're entirely correct." Ming Lang said, "In our preliminary inspection, we indeed concluded he wasn't suitable for a local administrative position. However..."
 
 "Did certain people give you instructions?"
 
-"No." Ming Lang said, "At that time in the second recruitment of Liangguang administrative chief officials, we posted a total of fifteen local administrative cadre positions served by Senators. Actual registrants were only ten. Basically there was no choice."
+"No." Ming Lang said, "At the time of the second recruitment for Liangguang administrative chiefs, we posted a total of fifteen local administrative cadre positions for Senators. Actual registrants numbered only ten. We essentially had no choice."
 
-"It is said Ma Qianzhu once said: give Xie Erren a chance. Was there such a thing?"
+"It's said Ma Qianzhu once remarked: 'Give Xie Erren a chance.' Was there such a thing?"
 
-"Haven't heard him say such words." Ming Lang said, "Meetings regarding appointment of Liangguang Senator Cadres all have meeting minutes. Can be queried."
+"I've never heard him say such words." Ming Lang said, "All meetings regarding the appointment of Liangguang Senator Cadres have minutes. They can be queried."
 
-"We will query. Such an important location as Wuzhou, handing to such a person with zero administrative ability to hold, is it appropriate?" Hai Lin continued to press, "I believe with your professional attainment, you wouldn't make such a choice."
+"We will query them. Handing such an important location as Wuzhou to someone with zero administrative ability—is that appropriate?" Hai Lin pressed on. "I believe with your professional judgment, you wouldn't have made such a choice."
 
-"Indeed inappropriate." Ming Lang said without hesitation.
+"Indeed it wasn't appropriate," Ming Lang said without hesitation.
 
-"Then why recommend him up again?"
+"Then why recommend him anyway?"
 
-"Because among these ten places to go, the environments of the other nine were more complex. Mostly Han-Yao mixed habitation or counties with serious bandit scourges. In comparison, Wuzhou belongs to the rear of our battle line, and is a water and land wharf. Whether defense posture, social condition or local resources, relatively are all better. Letting him serve as Wuzhou Director was exactly considering his deficiency in this aspect." Ming Lang said, "If needed, we can provide the list of these ten places and the final appointment results."
+"Because among those ten applicants, the environments of the other nine locations were more complex. Most were areas with mixed Han-Yao populations or counties plagued by bandits. In comparison, Wuzhou is behind our front lines and serves as a water and land transportation hub. Whether in terms of defensive posture, social conditions, or local resources, it was relatively better. Assigning him as Wuzhou Director was precisely because we considered his deficiencies in those respects." Ming Lang said, "If needed, we can provide the list of all ten locations and the final appointment results."
 
-"Hehe, what you say now is nothing more than shirking responsibility. No matter what, you pushed an incompetent person onto the post of Wuzhou Director, causing him to commit serious mistakes in the end. Cannot say you have zero responsibility for this."
+"Hah. What you're saying now is just passing the buck. Regardless, you pushed an incompetent person into the Wuzhou Director position, leading to serious mistakes in the end. You cannot claim zero responsibility for this."
 
-"Responsibility is definitely there. If the Senate ultimately believes our department should bear main responsibility in this matter, then I have nothing to defend either." Ming Lang said calmly.
+"There is certainly responsibility. If the Senate ultimately believes our department should bear primary responsibility in this matter, I have nothing to defend." Ming Lang remained calm.
 
-Hai Lin stared fiercely at Ming Lang for a good while, only then said: "I have no questions."
+Hai Lin glared fiercely at Ming Lang for a long moment before finally saying, "I have no further questions."
 
-Next, several Senators raised inquiries again. But all circling on these few questions. Ming Lang answered one by one tirelessly.
+Several more Senators raised inquiries, but all circled around the same few points. Ming Lang answered each one tirelessly.
 
-Obviously, on Ming Lang's part, Hai Lin didn't get any handle on Ma Qianzhu. A disappointed expression appeared more or less on his face.
+Obviously, from Ming Lang, Hai Lin had gotten no handle on Ma Qianzhu. A look of disappointment crept across his face.
 
 **(End of Chapter)**

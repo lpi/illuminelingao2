@@ -1,86 +1,85 @@
 # Chapter 2354: Old Friend Li Huamei (Part 6)
 
-The detached house Li Huamei built in the "Commercial District" was handled by Qi Feng from architectural structure to interior decoration. The design was exquisite, and the construction was meticulous, taking nearly two years in total. Many of the brick and tile building materials inside were specially customized. The attached courtyard was designed by Li Xiaolu. After completion, it aroused the envy of many Senators. If it weren't for the Liangguang Campaign distracting the Senators' energy and the subsequent large number of Senators moving north, "building villas" would probably have become another storm in the Senate.
+The detached house Li Huamei had built in the "Commercial District" was handled entirely by Qi Feng, from architectural structure to interior decoration. The design was exquisite, the construction meticulous, taking nearly two years to complete. Many of the brick and tile materials were specially custom-made. The attached courtyard was designed by Li Xiaolu. Upon completion, it drew the envy of many Senators. Had the Liangguang Campaign not distracted everyone's attention and the subsequent large-scale northward migration of Senators not followed, "building villas" would probably have become the next storm sweeping through the Senate.
 
-Qi Feng didn't know yet that his villa had become a "model house," but in this new spacetime, he finally had a building built according to his own ideas, which was some comfort.
+Qi Feng didn't yet know his villa had become a "model house," but in this new spacetime, he had finally built something according to his own vision. That was some consolation.
 
-Running the past two years of dating and cohabiting with Li Huamei, borrowing his girlfriend's east wind, he took the *Hangzhou* to many places. The Ruins of St. Paul's in Macao were still under construction, but Qi Feng didn't disdain this semi-finished product. He drew sketches of the construction site at the site, exchanged architectural insights with the presiding priests and Portuguese craftsmen, saw the blueprints they drew, and saw with his own eyes how Japanese and Chinese craftsmen built this cathedral brick by brick.
+Over the past two years of dating and cohabiting with Li Huamei, he had borrowed his girlfriend's connections to travel on the *Hangzhou* to many places. The Ruins of St. Paul's in Macao were still under construction, but Qi Feng didn't disdain this half-finished work. He sketched the construction site on location, exchanged architectural insights with the presiding priests and Portuguese craftsmen, studied their blueprints, and watched with his own eyes as Japanese and Chinese craftsmen built the cathedral brick by brick.
 
-To be honest, although he had traveled through time for nearly ten years, the feeling of witnessing with his own eyes how the wreckage of a building standing in another spacetime was built brick by brick back then was still very marvelous.
+Though he had traveled through time for nearly ten years, the sensation of witnessing how a building that stood in ruins in another spacetime was originally constructed—brick by brick—still felt marvelous.
 
-Besides Macao, he went most to Japan and India. Japan didn't leave much impression on him. As a fanatical believer of the "Western Fine Arts Religion," Qi Feng had little interest in Japan. But the large number of Portuguese buildings in Goa left a deep impression on him. especially the newly completed Se Cathedral. This building, which started construction in 1562 and took half a century to complete, was the largest church in all of Asia at that time. It had a Gothic style, combining a Tuscan Renaissance exterior and a Corinthian interior. It made Qi Feng mesmerized, and he stayed there for months. Because he was so obsessed with this church that he went to the church almost every day, the local bishop thought he was a devout believer.
+Besides Macao, he visited Japan and India most frequently. Japan left little impression on him. As a fervent believer in the "Western Fine Arts Religion," Qi Feng had scant interest in Japanese architecture. But the Portuguese buildings in Goa made a deep impression—especially the recently completed Se Cathedral. This building, begun in 1562 and requiring half a century to finish, was the largest church in all of Asia at the time. Its Gothic sensibility combined a Tuscan Renaissance exterior with a Corinthian interior. Qi Feng was mesmerized, lingering for months. So obsessed was he with this church, visiting almost daily, that the local bishop took him for a devout believer.
 
-Although Li Huamei's family had served the Portuguese for a long time, her parents had never converted to Christianity. They were very puzzled by Qi Feng's behavior of having absolutely no religious belief yet being so obsessed with church and monastery architecture. Anyway, this was just one of the countless incredible things about the Australians.
+Though Li Huamei's family had served the Portuguese for generations, her parents had never converted to Christianity. They were baffled by Qi Feng's behavior—having absolutely no religious belief yet being obsessed with church and monastery architecture. But then, this was merely one of countless inexplicable things about the Australians.
 
-Apart from this, the relationship between the two was quite harmonious. Probably because they gathered less and parted more. Absence makes the heart grow fonder. They could always find freshness in each other. And both Li Huamei and Qi Feng were enthusiastic about their own careers and attached great importance to personal space.
+Beyond this, the relationship between them was quite harmonious—probably because they spent more time apart than together. Absence made the heart grow fonder, and they always found freshness in each other. Both Li Huamei and Qi Feng were passionate about their own work and valued personal space.
 
-During the days when Li Huamei was not around, Qi Feng's main pastime in his spare time was studying and teaching. He and Trini became a pair of "good buddies"; either he went to this Italian's house, or the Italian came to his house. The two would either talk loudly or comment on creations, sometimes staying for a whole day.
+During the days when Li Huamei was away, Qi Feng's main leisure activity was study and teaching. He and Trini had become close "buddies"—either he went to the Italian's house, or the Italian came to his. They would debate loudly, critique each other's work, sometimes spending entire days together.
 
-Qi Feng also accepted a few students—all seedlings selected from Trini's training class. In terms of painting and sculpture skills, he was not as good as this Italian, but when it came to architecture, he still left this Italian several streets behind.
+Qi Feng had also taken on a few students—all promising talents selected from Trini's training class. In painting and sculpture, he couldn't match the Italian's skill, but when it came to architecture, he still left the man several streets behind.
 
-Naturally, what he explained to the students was not the "Bauhaus School Lingao Style" that dominated the General Construction Company, but "Architecture of Pure Beauty." Of course, he also taught knowledge of architectural space, mechanics, and functionality, but the main theme was still "how to design beautiful buildings."
+What he taught his students wasn't the "Bauhaus School Lingao Style" that dominated the General Construction Company, but "Architecture of Pure Beauty." He included knowledge of architectural space, mechanics, and functionality, but the main theme remained "how to design beautiful buildings."
 
-When Trini was busy, he would lead the students in his own studio to knock and beat, make models, engage in sculpture, and paint, busy and happy. Covered in dirt. But Qi Feng enjoyed it tirelessly. Although he couldn't build the various magnificent buildings he had drawn countless times now, at least his life was very fulfilling.
+When Trini was busy, Qi Feng would lead the students in his own studio, hammering, building models, sculpting, painting—busy and happy, covered in dust. But Qi Feng never tired of it. Though he couldn't yet build the magnificent structures he had drawn countless times, at least his life felt full.
 
-"Someone from the PSB is looking for me?" Qi Feng put down the ruling pen and pretended to be solemn, "Strange, I have nothing to do with them."
+"Someone from the PSB is looking for me?" Qi Feng set down his ruling pen and affected solemnity. "Strange, I have nothing to do with them."
 
-"Do you want me to turn him away?" his secretary asked.
+"Shall I turn him away?" his secretary asked.
 
-"No need, let him in." Qi Feng thought, *Could it be about Li Huamei?*
+"No need, let him in." Qi Feng thought, *Could this be about Li Huamei?*
 
-Ever since knowing his "wife" had "historical issues," this matter had always been a worry in his heart. Although Zhou Botao swore to assure him back then that as long as Li Huamei had no factual "hostile behavior," the PSB would never take action against her. In recent years, his affection for Li Huamei deepened day by day, and he became increasingly worried that this tough woman of the sea, the little woman in his arms, would be momentarily confused and commit some "hostile incident."
+Ever since learning that his "wife" had "historical issues," the matter had been a constant worry. Though Zhou Botao had sworn to him that as long as Li Huamei committed no "hostile acts," the PSB would never move against her, his affection for Li Huamei had deepened over the years. He worried increasingly that this tough woman of the sea, the gentle woman in his arms, might become momentarily confused and do something "hostile."
 
-Don't look at Li Huamei's great fame in the Senate; since she started dating him, there were quite a few people who turned from love to hate. Back then, they didn't hesitate to hang an innocent female instructor; now they might not necessarily be unable to do this. When the time came, he would probably only have to flee to the ends of the earth with her. But his ideal of transmigration would be annihilated...
+Li Huamei enjoyed considerable fame in the Senate. But since she had started dating him, quite a few admirers had turned from love to hate. They hadn't hesitated to hang an innocent female instructor years ago; they might well be capable of similar action now. When the time came, he would probably have no choice but to flee with her to the ends of the earth. But his dreams of transmigration would be annihilated...
 
-This hidden worry had been hidden deep in his heart. He once thought about whether to let Li Huamei go to Europe in advance to buy some property as a final escape plan. After all, it would still be difficult for the Senate to extend its jurisdictional hand to Europe in his lifetime.
+This hidden worry had been buried deep in his heart. He had once considered whether to send Li Huamei to Europe ahead of time to purchase some property as a final escape route. After all, it would be difficult for the Senate to extend its jurisdictional reach to Europe within his lifetime.
 
-But after thinking it over again and again, he gave up this idea. A voyage to Europe took eight or nine months one way. Neither the Southeast Asia Company, the Navy, nor the PSB would let her just disappear for two years. Since the PSB had already sent a letter informing that Li Huamei's "background was suspicious," there might have long been spies planted among her sailors and entourage. These little tricks couldn't be hidden from them—at that time, it would instead become some kind of "evidence of crime."
+But after much deliberation, he abandoned the idea. A voyage to Europe took eight or nine months one way. Neither the Southeast Asia Company, the Navy, nor the PSB would allow her to simply vanish for two years. Since the PSB had already notified him that Li Huamei's "background was suspicious," spies had likely long been planted among her sailors and entourage. Such petty tricks couldn't escape their notice—and might instead become "evidence of guilt."
 
-Qi Feng opened the envelope with slight nervousness, scanned it hastily, and then his brows suddenly tightened. Then his brows relaxed again.
+Qi Feng opened the envelope with slight nervousness, scanned it hastily, and his brows tightened. Then they relaxed again.
 
-"A new official applies three fires," he complained in a low voice, then looked up and said:
-"I've read the letter. Go back and report to your leadership; my answer is: 'Why not.'" As he spoke, he took out a metal lighter from the drawer, lit the note, and threw it into the large brush washer on the table serving as a wastebasket.
+"A new official applies three fires," he complained under his breath, then looked up and said: "I've read the letter. Go back and report to your leadership—my answer is: 'Why not.'" As he spoke, he took a metal lighter from the drawer, lit the note, and dropped it into the large brush washer on the table that served as a wastebasket.
 
 "So Qi Feng expressed willingness to cooperate?"
 
-"Saying cooperate might be too much, but at least he won't interfere with our actions." Guo Yi said, "I think he won't let go of this opportunity to 'detoxify' Li Huamei."
+"'Cooperate' might be too strong a word, but at least he won't interfere with our actions," Guo Yi said. "I believe he won't pass up this opportunity to 'cleanse' Li Huamei."
 
-"You are right. This matter is very tricky. Right now is a good opportunity to solve it. Since everyone has a consensus, I approve your plan." Zhao Manxiong nodded, "Who specifically do you plan to send to execute it?"
+"You're right. This matter is delicate, but now is a good opportunity to resolve it. Since everyone's in agreement, I approve your plan." Zhao Manxiong nodded. "Whom specifically do you plan to send to execute it?"
 
-"I arranged two young men. Although they lack experience, they have been systematically trained by us. I have attached the relevant files to the action plan. One is responsible for infiltrating the Southeast Asia Company, and then the Nanyang Company will be responsible for arranging him to be by Li Huamei's side. His public identity is a newly attached naturalized citizen transferred to the Nanyang Company. The other, I plan to let him work on the periphery as an entourage of an indigenous merchant."
+"I've selected two young men. Though they lack experience, they've received systematic training from us. I've attached their files to the action plan. One will infiltrate the Southeast Asia Company—the Nanyang Company will then arrange for him to be assigned to Li Huamei's side. His public identity is a newly naturalized citizen transferred to the Nanyang Company. The other I plan to deploy on the periphery, posing as an attendant of an indigenous merchant."
 
-"Good." Zhao Manxiong expressed satisfaction, "Li Huamei won't have any major problems; the main issue is Li Siya..."
+"Good." Zhao Manxiong expressed satisfaction. "Li Huamei won't cause major problems. The main concern is Li Siya..."
 
-Guo Yi knew these words set the tone for the entire operation: "I understand."
+Guo Yi recognized these words as setting the tone for the entire operation. "I understand."
 
-"Also, regarding the cooperation with the Nanyang Company. Who do you plan to send as the deputy director?"
+"Also, regarding cooperation with the Nanyang Company—whom do you plan to send as deputy director?"
 
-"I have a suitable candidate, but he is a bit old. I'm afraid he can't stand the tossing of boats."
+"I have a suitable candidate in mind, but he's somewhat elderly. I'm concerned he can't handle the rigors of sea travel."
 
-"Are you talking about that old man?" Zhao Manxiong laughed, "I think the problem isn't big. The Nanyang Company is all ships and colonies; he, the deputy director of the Security Department, won't have many opportunities to go to sea—the headquarters of the Nanyang Company is currently planned to be in Sanya, and in the future, it will probably be moved to places like Malacca. Just let him do more paperwork at the headquarters residence. You decide the other candidates—give young people more opportunities."
+"Are you referring to that old man?" Zhao Manxiong laughed. "I don't think that's a serious issue. The Nanyang Company is all ships and colonies, but the deputy director of the Security Department won't have many opportunities to go to sea—the Nanyang Company headquarters is currently planned for Sanya, and will probably eventually move somewhere like Malacca. Just let him handle paperwork at headquarters. You decide the other candidates—give young people more opportunities."
 
-*The chief chooses an old man, while the subordinate must "give young people more opportunities,"* Guo Yi thought, *this Director Zhao's instructions remain unique.* However, he had long been accustomed to the leader's kind of steady, seemingly plain but actually information-heavy words. He nodded in agreement immediately.
+*The chief chooses an old man, while I'm told to "give young people more opportunities,"* Guo Yi thought. *Director Zhao's instructions remain as characteristically layered as ever.* However, he had long since grown accustomed to the leader's style—seemingly plain words that actually carried dense information. He nodded in agreement immediately.
 
-Liu Fuqing opened the window. He took a deep breath of the outside air.
+Liu Fuqing opened the window and drew a deep breath of the outside air.
 
-Lingao's winter was not as cold and damp as his hometown Nanjing; the sun was warm and the sky was clear for miles. The flowers in the flower beds in the courtyard downstairs were blooming prosperously, faint floral fragrance drifted past his nose, and small birds were chirping.
+Lingao's winter wasn't as cold and damp as his hometown of Nanjing. The sun was warm, the sky clear for miles. Flowers in the courtyard below bloomed vigorously, faint fragrance drifting past his nose, small birds chirping.
 
-This place was truly a fairyland on earth, Liu Fuqing thought. Who could have thought that a government office could look like this!
+This place was truly a paradise on earth, Liu Fuqing thought. Who could have imagined a government office could look like this!
 
-He turned around. The air in the office with closed windows seemed a bit stale. He had sat in this small office for nearly three years—since returning from Jeju Island, he had been working here.
+He turned around. The air in the closed office seemed somewhat stale. He had sat in this small office for nearly three years—ever since returning from Jeju Island, he had worked here.
 
-He looked at his office with mixed feelings. The mountainous pile of documents on the table had been cleared away, and the filing cabinet was sealed with handover strips. The desk lamp with a green glass shade was wiped clean. The document baskets marked "Incoming" and "Outgoing" were empty; there were no more varied documents.
+He surveyed his office with mixed emotions. The mountainous pile of documents on the desk had been cleared away, and the filing cabinet was sealed with handover strips. The desk lamp with its green glass shade had been wiped clean. The document baskets marked "Incoming" and "Outgoing" stood empty—no more varied documents flowing through.
 
-On the coat rack at the door hung his uniform, the winter wear just issued this year. Adorned with his rank: Region Commander. This was the end point of his service to the Great Song.
+On the coat rack by the door hung his uniform, the winter wear just issued this year, adorned with his rank: Region Commander. This was the endpoint of his service to the Great Song.
 
-Taking a boat from Xuwen across the sea to Lingao to defect to the Chiefs seemed like something that happened yesterday. In the blink of an eye, he had served the Senate for six years. He was already an old man of sixty-two.
+Taking a boat from Xuwen across the sea to Lingao to defect to the Chiefs seemed like something that had happened just yesterday. In the blink of an eye, he had served the Senate for six years. He was now an old man of sixty-two.
 
-A few days ago, he received a notification from the Personnel Division asking him to handle the handover and prepare for retirement.
+A few days earlier, he had received notification from the Personnel Division asking him to handle the handover and prepare for retirement.
 
-He naturally understood retirement; the Ming Dynasty also had this rule. When one got old and couldn't work anymore, one had to go home. For officials, it was called resigning from office; clerks weren't so particular. Once the superior spoke, those who knew what was good for them would resign. Fortunately, after being a clerk for so many years, he had accumulated some family property. Spending his remaining years in peace and playing with grandchildren was not difficult.
+He understood retirement well enough—the Ming Dynasty had similar rules. When you grew old and could no longer work, you had to go home. For officials, it was called "resigning from office"; for clerks, the process wasn't so formal. Once your superior spoke, those who knew what was good for them would resign. Fortunately, after years as a clerk, he had accumulated some family property. Spending his remaining years in peace, playing with grandchildren—that wouldn't have been difficult.
 
-If he hadn't met with that calamity back then, he probably would have been "retiring" in the Nanjing countryside like this seven or eight years ago.
+Had he not met with that calamity back then, he probably would have been "retiring" in the Nanjing countryside like this seven or eight years ago.
 
-Unexpectedly, a disaster almost put him to death, ending up with his family broken and dead! All that was left to him was a chest full of hatred. It was precisely this hatred in his chest that supported him to be exiled to Lingnan with his aging body, and then cross the sea to "defect to the Kuns."
+But a disaster had nearly killed him, leaving his family shattered! All that remained was a chest full of hatred. It was precisely this burning hatred that had sustained him through exile to Lingnan in his aging body, then across the sea to "defect to the Kun."
 
 **(End of Chapter)**

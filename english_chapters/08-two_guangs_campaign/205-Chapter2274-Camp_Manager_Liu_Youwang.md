@@ -1,98 +1,100 @@
 # Chapter 2274: Camp Manager Liu Youwang
 
-Yi Haoran couldn't help being astounded. Chang Qingyun shook his head quietly, pressing his voice extremely low, saying: "This is the Sun family. His family old master was originally a Ninth Grade Registrar in the county. Australians fought over; old master hanged himself with a rope. Leaving only a distant nephew, a concubine, and a daughter raised by the legal wife. Australians originally sent them back to hometown; this nephew seeing military chaos, and bringing several female dependents, afraid the road was unsafe, voluntarily stayed here—this was originally not wrong either. Just days long, wolf heart and dog lungs thoughts were born..."
+Yi Haoran couldn't help but be astounded. Chang Qingyun quietly shook his head and pressed his voice to barely above a whisper: "That's the Sun family. The old master was originally a Ninth Grade Registrar in the county. When the Australians came, he hanged himself. All that's left is a distant nephew, a concubine, and a daughter raised by the legal wife. The Australians originally wanted to send them back to their hometown, but this nephew saw the military chaos and figured traveling with several female dependents would be unsafe, so he voluntarily stayed here—a reasonable enough decision. But as time passed, wolfish thoughts began to grow in his dog's heart..."
 
-Turns out this nephew was extremely poor in the captive camp. Seeing other families' female dependents selling smiles, quite enjoying it, thoughts arose, so he occupied the uncle's concubine, forcing her to sell smiles.
+It turned out this nephew had been living in extreme poverty in the captive camp. Seeing other families' female dependents selling their smiles and living rather well, he got ideas. So he took possession of his uncle's concubine and forced her into prostitution.
 
-"...A few days ago the Camp Manager Master here took a fancy to the Sun family Miss. This girl is called 'Qiaoniang', truly born with proper appearance, and knowing books and understanding propriety! Alas no heavenly justice, reduced to captive prisoner aside, taken fancy by the Camp Manager here again. This thief eagerly wishes to climb up the pole; these few days forcing bitterly..."
+"...A few days ago, the Camp Manager here took a fancy to the Sun family's daughter. The girl is called 'Qiaoniang'—truly born with proper features and knowing both books and propriety! Alas, there's no justice in heaven. Reduced to captivity wasn't enough; now she's caught the eye of the Camp Manager. That wretch is eager to climb the ladder, and these past few days he's been forcing her bitterly..."
 
-"Actually such matter!" Yi Haoran was angry now. Seeing Chang Qingyun face full of panic, he realized he lost composure, hurriedly lowered voice saying: "Hair thieves allowing selling smiles is one thing, isn't this forcing good into prostitution?"
+"Such a thing!" Yi Haoran was angry now. Seeing Chang Qingyun's panicked expression, he realized he had lost his composure again and quickly lowered his voice. "Allowing prostitution is one thing, but this is forcing a decent woman into the trade!"
 
-"Forcing good into prostitution, so what," Chang Qingyun whispered lonely, "People are knife and chopping block." He looked at the door, suppressing voice to like mosquito sound: "You come in seeing here calm and tranquil, organized; down below dark without sun, matters injuring heaven and harming reason are many..."
+"Forcing a decent woman into prostitution—so what?" Chang Qingyun whispered desolately. "We are the fish on the chopping block." He glanced at the door, his voice dropping to barely a mosquito's hum: "You come in here and see everything calm and orderly. But underneath, where the sun doesn't reach, crimes against heaven and reason are many..."
 
-"Didn't say Australians manage matters most methodically..."
+"But I thought the Australians managed everything most methodically..."
 
-"Words are not wrong, but that is in Lingao!" Chang Qingyun said, "This is Wuzhou. Stewards of the whole camp only the Camp Manager is an Chen Australian; rest are all local yamen worms, every one a good hand at getting money and making trouble, fawning on above and bullying below. You were also long in yamen shogunate; should know these people's methods."
+"That's true—but only in Lingao!" Chang Qingyun said. "This is Wuzhou. The only Australian among the camp stewards is the Camp Manager. The rest are all local yamen parasites, every one of them expert at squeezing money, making trouble, fawning on superiors, and bullying inferiors. You've worked in yamen shogunates for years—you should know their methods."
 
-The two were relatively speechless, only heard next door long and short crying. Yi Haoran felt compassionate in heart, whispered: "Who is the Camp Manager here?"
+The two men fell silent, listening to the long and short sobs coming from next door. Yi Haoran felt compassion stir in his heart and whispered, "Who is the Camp Manager here?"
 
-"Is a Chen Australian coming from Qiongzhou. Called Liu Youwang." Chang Qingyun said, "I seen him entering and exiting wearing National Army clothes, probably a military officer."
+"A naturalized Australian from Qiongzhou. Name's Liu Youwang." Chang Qingyun said, "I've seen him coming and going in National Army uniform. Probably a military officer."
 
-"Liu Youwang..." Yi Haoran felt this name somewhat familiar, seemed heard somewhere. Thought for half a day but really couldn't remember.
+"Liu Youwang..." Yi Haoran felt the name was somehow familiar, as if he'd heard it somewhere before. He thought for a long while but truly couldn't remember.
 
-Just speaking, suddenly sound came from outside: "Master! Master!"
+Just then, a voice called from outside: "Master! Master!"
 
-Yi Haoran froze, somewhat nervous. Chang Qingyun gestured him not to panic.
+Yi Haoran froze, somewhat nervous. Chang Qingyun gestured for him to stay calm.
 
-"This is my family servant Chang Qing." Saying so he added a sentence, "He doesn't recognize you."
+"That's my servant, Chang Qing." He added, "He doesn't know you."
 
-Yi Haoran remembered; the most useful young servant beside Chang Qingyun was called Chang Wei.
+Yi Haoran remembered—the most useful young servant beside Chang Qingyun was named Chang Wei.
 
-Chang Qingyun got up to go out. Returned in a short while, face somewhat nervous: "Chang Qing said Camp Manager Liu wants me to go over—don't know what matter. You go quickly. If someone asks, hard to fob off."
+Chang Qingyun got up and went out. He returned shortly, his face somewhat anxious. "Chang Qing says Camp Manager Liu wants to see me—I don't know what it's about. You should leave quickly. If someone asks questions, it'll be hard to fob them off."
 
-Yi Haoran was also somewhat nervous. If interrogated by the Camp Manager here, fear it wouldn't be so easy to muddle through. Immediately nodded: "I'll go back right now."
+Yi Haoran felt the tension too. If the Camp Manager here interrogated him, he feared it wouldn't be easy to bluff his way through. He nodded immediately: "I'll head back now."
 
-Yi Haoran came out from the captive camp back to the shop, thinking secretly. Felt the harvest of this trip was big. First he understood management in captive camp was not strict, entry and exit very casual; secondly captive camp steward was greedy for cup and fond of sex, this was a shortcoming to utilize. Finally, he knew dissatisfaction existed in the captive camp.
+Yi Haoran emerged from the captive camp and returned to the shop, his mind churning. The trip had been highly profitable. First, he had learned that camp management was not strict—entry and exit were quite casual. Second, the camp steward was a man who loved his cups and his women—a weakness to exploit. Third, there was real discontent simmering within the captive camp.
 
-Right now, he still didn't know what use these three points had for him, but these were all Australian soft ribs. Australians' military edge had fully taken Wuzhou now; a battalion originally stationed near Wuzhou had marched to the front. And from news gained through chatting with Iron Head Wen usually and reading Australian "newspapers" he knew: Australians were continuously transferring troops to upper reaches of West River, about to launch action against Guangxi.
+For now, he still wasn't sure how these three points could be used to his advantage. But they were all soft spots in the Australian position. The Australians' military strength had fully secured Wuzhou, and the battalion that had been stationed near the city had now marched to the front. From casual conversations with Iron Head Wen and reading Australian "newspapers," he knew the Australians were continuously transferring troops to the upper reaches of the West River, preparing to launch their campaign against Guangxi.
 
-Right now Wuzhou Prefecture city was no longer a frontline city; relatively speaking, military force would inevitably be empty. Although there was still a Fubo Army company stationed in Wuzhou now, once the front was tight needing reinforcement, this company would inevitably be transferred to fill gap... Yi Haoran thought, that time would be our chance!
+Wuzhou Prefecture city was no longer a frontline position. Relatively speaking, the garrison would inevitably be thinned. Although a Fubo Army company still remained stationed in Wuzhou, once the front demanded reinforcements, that company would surely be pulled away to fill the gap...
 
-Chang Qingyun was called to Liu Youwang’s residence. He was Camp Manager; residence was the flower hall renovated from past parade ground supply for reviewing Masters.
+*When that happens,* Yi Haoran thought, *that will be our chance!*
 
-This "Camp Manager Master" feared by everyone in camp, although a "Chen Australian," actually was just over twenty. His original name was Ergou (Two Dog). Lost father and mother at ten, nowhere to go, could only beg plus petty theft to live in Lingao. Did not expect Australians came, surprisingly luck turned.
+Chang Qingyun was summoned to Liu Youwang's residence. As Camp Manager, the man had taken over the flower hall renovated from what had once been the reviewing masters' supply quarters at the old parade ground.
 
-Although only fifteen, not yet an adult, was also pulled as able-bodied man to participate in attack on Bopu. When troops fled, small age and weak body, was caught as captive. Later stayed in Nanhai Farm all along. When Huang Chao raised chickens in the farm back then, selected a few people as his apprentices, also called Liu Ergou to be among them. This name Liu Youwang was given by Huang Chao back then—thinking Liu Ergou becoming a naturalized citizen wouldn't need to live like a dog, but obtain a new life full of hope, thus named Youwang (Has Hope).
+This "Camp Manager Master" whom everyone in the camp feared—though he was a "naturalized Australian"—was actually just over twenty years old. His original name was Ergou, meaning "Two Dog." He had lost both parents at age ten and, with nowhere to go, survived by begging and petty theft in Lingao. When the Australians arrived, his luck unexpectedly turned.
 
-Liu Youwang was clever and smart, but loved playing petty tricks, disliked reading, full of marketplace air. Age slightly older added a fault of lust. Fifteen sixteen molested female workers, obscenity towards village women, causing storm in the farm, also suffered several beatings, making people hate and dogs dislike. finally really couldn't stay down. So Huang Chao wrote a recommendation letter, getting him to Fubo Army to be a soldier.
+Though only fifteen—not yet an adult—he had been pressed into service as a laborer during the attack on Bopu. When the troops fled, his small size and weak body made him an easy capture. Afterward, he remained at Nanhai Farm throughout. When Huang Chao was raising chickens at the farm, he selected several people as apprentices, and Liu Ergou was among them. The name Liu Youwang had been given to him by Huang Chao—thinking that as a naturalized citizen, Liu Ergou would no longer need to live like a dog but could obtain a new life full of hope. Hence the name "Youwang," meaning "Has Hope."
 
-Originally thought being a soldier could temper people. Didn't expect Liu Youwang’s old habits didn't change. Being a soldier for several years, most monthly military pay spent on yellow tickets, rank couldn't go up either. After Two Guangs strategy started, old soldiers like Liu Youwang originally could be promoted to officers, but his bad reputation was outside; General Staff Political Department directly deleted him from promotion list, changed to National Army to be officer. Turning around all the way to Wuzhou, coming and going became this Camp Manager post.
+Liu Youwang was clever and quick-witted, but loved playing petty tricks, disliked reading, and was steeped in the air of the marketplace. As he grew older, he added a fault of lust. At fifteen and sixteen, he was molesting female workers and making advances on village women, causing storms at the farm and earning himself several beatings. He became universally despised. Eventually, unable to stay any longer, Huang Chao wrote him a recommendation letter and got him into the Fubo Army as a soldier.
 
-If others, taking this errand inevitably would have resentment; after all being Camp Manager in rear couldn't build merit and career. Liu Youwang was like fish in water. Captive camp guards, stewards mostly served by local Wuzhou clerks—back then when he wandered begging, was quite familiar with this kind of people in yamen. Clerks also had heart to hold him up; Liu Youwang fell into it enjoying tirelessly at once.
+The hope was that military service might temper him. But Liu Youwang's old habits never changed. During his several years as a soldier, most of his monthly pay went to yellow tickets, and his rank never rose. After the Two Guangs campaign began, veteran soldiers like Liu Youwang would normally have been promoted to officer rank. But his bad reputation preceded him. The General Staff Political Department struck his name directly from the promotion list and transferred him to the National Army as an officer instead. Through one twist after another, he ended up in this Camp Manager position.
 
-Captive camp Camp Manager seemed a very humble post, affairs complex again, but benefits inside were many. Token coupons, grain and cloth issued to captives, none couldn't be manipulated up and down. Highest he reached in troops in past was only Sergeant; surroundings were all comrades, officers had absolute authority again. Even having heart couldn't play tricks. Arriving at captive camp had position of "Under Chief Xie one person, above captive camp multitudes"; big and small affairs, life and death almost all decided by his one word.
+Anyone else taking this assignment would have felt resentful; after all, being Camp Manager in the rear offered no opportunity to build merit or advance a career. But Liu Youwang took to it like a fish to water. The captive camp guards and stewards were mostly former local Wuzhou clerks—and back when he had wandered as a beggar, he had become quite familiar with such yamen types. The clerks were also eager to curry favor with him, and Liu Youwang threw himself into the role with tireless enthusiasm.
 
-Such absolute power and the flattery of yamen scoundrels quickly made several years of troop education lose effect. Started just holding back some grain and cloth; later accepted bribes. Captured officials mostly carried valuables, couldn't endure suffering of labor, so bribed with valuables to avoid. Once this head opened, appetite became big. Thinking oneself followed dragon earliest; naturalized citizens joining gang several years later than self all became regional high officials and officers. Self only mixed a National Army officer. In resentment, doing various illegal dealings had not much psychological pressure. Captive camp could be called "Heaven high Emperor far"; he simply "closed door to be Emperor."
+The Camp Manager position seemed humble and its affairs complex, but the benefits within were numerous. Token coupons, grain, and cloth issued to captives—all could be manipulated for skimming. In his military years, the highest rank he had reached was sergeant. His surroundings had been filled with comrades, and officers held absolute authority—even if he had wanted to play tricks, he couldn't have. Now in the captive camp, he held the position of "under Chief Xie alone, above all the captive camp multitudes." Large and small affairs, life and death—nearly everything was decided by his word alone.
 
-Yi Haoran going to captive camp was just a glancing calm over water; Chang Qingyun was familiar with situation very much. Although he received preferential treatment in captive camp, dared not not to try every means to flatter this "Current Manager."
+Such absolute power, combined with the flattery of yamen scoundrels, quickly rendered years of military discipline ineffective. At first, he only held back some grain and cloth. Then he began accepting bribes. Captured officials mostly carried valuables and couldn't endure the suffering of hard labor, so they bribed him for exemptions. Once this door opened, his appetite grew. Thinking that he had followed the dragon from the earliest days—naturalized citizens who had joined years after him had all become regional high officials and officers, while he had only managed to become a National Army officer—he felt resentment. With that resentment, he felt little psychological pressure about engaging in various illegal dealings. The captive camp was "heaven high and emperor far away"; he simply "closed the door and became emperor."
 
-Tidied clothes, Chang Qingyun said: "Student Chang Qingyun, specially come to visit..."
+Yi Haoran's visit to the captive camp had been merely a passing glance. But Chang Qingyun was thoroughly familiar with the situation. Though he received preferential treatment in the camp, he dared not fail to curry favor with this "Current Manager" through every means possible.
 
-"Oh, is Old Chang, please come in quickly."
+He straightened his clothes. "Student Chang Qingyun has come specially to pay respects..."
 
-Liu Youwang’s voice came from inside.
+"Oh, it's Old Chang. Please, come in quickly."
 
-"Many thanks Officer." Chang Qingyun dared not neglect, walked carefully inside.
+Liu Youwang's voice came from within.
 
-Liu Youwang lay slanted on a Xiangfei couch, not wearing National Army uniform nor "Cadre Suit," but imitating local rich people's leisure dressing, wearing a Daoist robe, yet chest open and bosom exposed, barefoot. Matching his short hair, giving people a bizarre feeling.
+"Many thanks, Officer." Chang Qingyun dared not be careless and walked inside carefully.
 
-On the high table beside Xiangfei couch cups and plates were messy. Few plates of side dishes for wine were left little; five or six empty tin pots thrown on ground.
+Liu Youwang lay sprawled on a Xiangfei couch. He was not wearing his National Army uniform or the "Cadre Suit," but had imitated the local rich men's leisure attire—a Daoist robe, yet worn with his chest exposed and feet bare. Combined with his short hair, it created a bizarre impression.
 
-Air filled with smell of wine. Towards Liu Youwang drinking in daylight, Chang Qingyun was long not surprised; only air also filled with a faint smell of rouge and powder—just now probably had woman accompanying by side.
+On the high table beside the couch, cups and plates lay in disarray. The wine dishes were mostly consumed, and five or six empty tin pots had been tossed on the ground.
+
+The air reeked of wine. Chang Qingyun had long ceased to be surprised by Liu Youwang's daytime drinking. But there was also a faint scent of rouge and powder in the air—a woman had probably been keeping him company until just recently.
 
 "Camp Manager Liu..."
 
-"Old Chang, you sit!" Liu Youwang had no official airs, waving hand, "Sit, sit!"
+"Old Chang, sit down!" Liu Youwang had no airs about him, waving his hand. "Sit, sit!"
 
-"Yes, yes." Chang Qingyun heart apprehensive. He served as clerk in camp, actually chance to see him not much. If not for this sudden painting errand, usually almost couldn't see Liu Youwang.
+"Yes, yes." Chang Qingyun felt his heart grow apprehensive. He served as a clerk in the camp, but his opportunities to see Liu Youwang were actually quite few. If not for this sudden painting assignment, he would hardly have seen the man at all.
 
-Although he didn't see Liu Youwang much, he understood this type of people quite well. Rising from humble and poor, wind and cloud meeting grasped power, heart both inferior and violent, quite twisted. Slightly careless would inexplicably "offend dragon scales." He in camp for months, knew quite a few captives in camp because inadvertently angered him, some beaten half dead, some simply "died of sudden illness." Therefore twelve ten thousands of respect and caution.
+Though he rarely encountered Liu Youwang, he understood men of this type quite well. Rising from poverty and obscurity, meeting the wind and clouds, grasping power—such men's hearts were both insecure and violent, quite twisted. The slightest carelessness could inexplicably "offend the dragon's scales." During his months in the camp, he had learned of quite a few captives who had inadvertently angered the man—some beaten half to death, others who had simply "died of sudden illness." Thus he maintained the utmost respect and caution.
 
-"Old Chang," Although Liu Youwang drank quite some wine, speech was still clear, "Inviting you this time, is want to ask you to help a favor."
+"Old Chang," Liu Youwang said. Though he had drunk quite a bit, his speech was still clear. "I've invited you here because I want to ask you for a favor."
 
-"What words saying Camp Manager Master." Chang Qingyun hurriedly said, "Just need to send someone to order."
+"What are you saying, Camp Manager Master?" Chang Qingyun hurried to reply. "You need only send someone to give the order."
 
-"This is big matter, how can be so casual!" Liu Youwang shook head repeatedly, "You are a scholar, must have learning."
+"This is a big matter—how can I be so casual about it!" Liu Youwang shook his head repeatedly. "You're a scholar. You must have learning."
 
-"Dare not dare not."
+"I wouldn't dare presume..."
 
-"Don't be polite, heard you are even a *Juren* Master—truly not ambiguous!" Liu Youwang stuck up thumb, "Our county for decades only produced those few *Juren* Masters!"
+"Don't be modest. I heard you're even a *Juren* Master—truly impressive!" Liu Youwang gave a thumbs up. "Our county only produced a handful of *Juren* Masters in decades!"
 
-Chang Qingyun somewhat embarrassed, could only keep being polite.
+Chang Qingyun felt somewhat embarrassed and could only continue being polite.
 
-"Since you are *Juren* Master, with neighbor Registrar Sun family can be counted as equal..."
+"Since you're a *Juren* Master, you could be considered an equal of the neighbor Registrar Sun's family..."
 
-Chang Qingyun stunned, didn't know what meaning this words had. Had to say: "Student and Registrar Sun never knew each other; don't know what fame he passed exams for, probably at least also a *Juren*."
+Chang Qingyun was stunned, unsure what the man meant by this. He had to say, "This student never knew Registrar Sun. I don't know what examination rank he achieved—presumably at least a *Juren* as well."
 
 ---
 **Next Update:** Volume 7 - Guangzhou Governance Part 478

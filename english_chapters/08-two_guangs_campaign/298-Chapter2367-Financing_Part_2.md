@@ -1,79 +1,81 @@
 # Chapter 2367: Financing (Part 2)
 
-From the content of the posts, the Senate should raise funds from the private sector; this is the consensus of all parties. Moreover, some practical operations have been carried out in the past. It was also proposed to promote "mixed-ownership enterprises" to separate management rights from equity. Runshitang was the earliest in this regard; this small herbal medicine shop in Lingao is now the largest traditional Chinese medicine enterprise of the Senate, which can be said to be a typical example of "mixed ownership." Later, the Guangzhou "Purple" brand issued non-preferred shares, pioneering the issuance of shares by Senate enterprises to attract private capital.
+From the posts' content, the Senate's intention to raise funds from the private sector was universally accepted. Some practical steps had already been taken. Proposals to promote "mixed-ownership enterprises" that separated management rights from equity had been floated. Runshitang had pioneered this approach—originally a small herbal medicine shop in Lingao, it had grown into the Senate's largest traditional Chinese medicine enterprise, a textbook case of "mixed ownership." Later, Guangzhou's "Purple" brand had issued non-preferred shares, becoming the first Senate enterprise to attract private capital through share offerings.
 
-However, precisely because these early enterprises were too successful, although under the Planning Committee's 51% control principle, the Senate always held control over these mixed-ownership enterprises, quite a few Senators believed that the profits of these enterprises were shared too much. And as these enterprises continued to grow—this is obvious; the equity obtained for only a few hundred or thousand taels of silver back then will gradually expand into assets worth millions or hundreds of millions. This is inevitably "too much of a loss"—this is also the consensus of all parties.
+However, precisely because these early ventures had been so successful—and because, despite the Planning Committee's fifty-one percent control principle, the Senate maintained controlling stakes in all mixed-ownership enterprises—quite a few Senators believed that too much profit was being shared. As these enterprises continued to grow, this was becoming increasingly obvious. Equity acquired for just a few hundred or thousand taels of silver would gradually balloon into assets worth millions or hundreds of millions. This was inevitably seen as "giving away too much"—another point of consensus among all factions.
 
-Excluding those ridicule posts like "cutting leeks" and "going to the rooftop" and plans with no operability, above the two points of consensus, the differences among parties mainly lie in how to finance and whether a stock exchange needs to be established.
+Setting aside ridicule posts about "harvesting leeks" and "jumping off rooftops," and plans lacking any operational feasibility, the disagreements beyond these two points of consensus centered on how to finance and whether a stock exchange was necessary.
 
-Regarding the stock exchange and financing plans, there are basically three lines of thought: issuing stocks, issuing bonds, and mixed issuance. These three lines of thought also have separate views on whether to establish a stock exchange or not. So there are a total of six attitudes. Chu He himself favors mixed issuance and establishing a stock exchange. Especially the stock exchange; this can be considered the main purpose of Chu He rushing back from Jeju this time.
+Regarding the stock exchange and financing approaches, three basic schools of thought had emerged: issuing stocks, issuing bonds, and a mixed approach. Each school held divergent views on whether to establish a stock exchange. This yielded six distinct positions. Chu He himself favored a mixed approach and establishing an exchange. The stock exchange, in particular, was the primary reason he had rushed back from Jeju.
 
-From the perspective of financing means, the Senate can currently use only stocks and bonds, nothing more than which one occupies the dominant position or which one is issued first. But on whether the Guangzhou Stock Exchange should be established, the divergence is very large.
+From a financing perspective, the Senate could currently employ only stocks and bonds—the question was which should dominate or be issued first. But on whether to establish the Guangzhou Stock Exchange, opinions diverged sharply.
 
-Every Senator understands the truth that a stock exchange can "make money." But how a stock exchange makes money, and how capital "creates something out of nothing" or "turns something into nothing" through this market, is not understood by every Senator.
+Every Senator understood that a stock exchange could "generate wealth." But how an exchange made money, and how capital could "create something from nothing" or "turn something into nothing" through this market—that was not widely understood.
 
-Since ancient times, finance has been a game for smart people. Top students flock to the financial field in swarms. Apart from high income, this line of work is not something ordinary people can do.
+Since ancient times, finance had been a game for the clever. Top students flocked to the financial field in droves. Beyond the high income, the work itself was beyond ordinary people's capabilities.
 
-Precisely because the water in this industry is very deep, many Senators oppose the establishment of stock trading institutions, believing that the Senate's current focus should still be on occupying territory and engaging in industry, and there is absolutely no need to engage in projects just for the sake of starting projects. They especially oppose the intention of some within the Senate scheming to use the exchange as a name to harvest leeks on a large scale. They also pointed out that a stock exchange would inevitably increase speculation, causing financial risks to increase significantly. Therefore, they do not oppose engaging in stocks or bonds, but oppose engaging in specialized institutions for trading.
+Precisely because the waters of this industry ran so deep, many Senators opposed establishing stock trading institutions. They argued that the Senate's current focus should remain on territorial expansion and industrial development—there was absolutely no need to launch projects for their own sake. They particularly opposed the intentions some harbored of using an exchange as a pretext for large-scale "leek harvesting." They further pointed out that a stock exchange would inevitably increase speculation and significantly raise financial risks. Therefore, while they didn't oppose engaging in stocks or bonds, they opposed creating specialized institutions for trading.
 
-Chu He knows: The Senate's goal is to obtain working capital, minimize financing costs, and look good while eating.
+Chu He understood the Senate's goals: obtain working capital, minimize financing costs, and maintain a respectable appearance while profiting.
 
-However, it is quite difficult to take care of all three, especially in the current social environment. No wonder some Senators criticized this as "taking off pants to fart,"
+Taking care of all three proved quite difficult, especially in the current social environment. No wonder some Senators had derided the whole effort as "pulling down one's pants to fart."
 
-His idea is to set the rules first, leaving some space in the corners of the rules for the Senate (regulators) to interpret. Let the Senate itself make big money, and a small number of core forces attached to the Senate make money along with it, using the wealth effect to attract a larger amount of private capital, and using the rules so that this private capital can ultimately only obtain petty profits. Whether to cut some leeks until they lose their capital depends on the impact on the financial ecology and the needs of the Senate. The means is to utilize the Senate's understanding of financial rules, the power to interpret rules, huge financial capital, and legal violence.
+His idea was to establish rules first, leaving interpretive space in the corners for the Senate as regulator. Let the Senate itself make substantial profits, allow a small number of core forces aligned with the Senate to profit alongside it, use the wealth effect to attract a larger pool of private capital, and employ the rules so that this private capital could ultimately obtain only modest returns. Whether to "harvest" some investors to the point of ruin would depend on the impact on the financial ecosystem and the Senate's needs. The means lay in leveraging the Senate's understanding of financial rules, its power to interpret those rules, its vast financial capital, and its legal monopoly on force.
 
-So this exchange must be set up. Even if physical entities cannot be set up for the time being, the rules must be set up as soon as possible.
+Therefore, the exchange had to be established. Even if physical infrastructure couldn't be built immediately, the rules had to be put in place as soon as possible.
 
-It was precisely based on such ideas that he meticulously wrote this plan and posted it on the BBS. However, the situation these few days has been quite waiting for him. It has been almost a week since he released his financing plan on the BBS, and the popular situation he imagined did not appear. Even replies discussing his post were few and far between; it wouldn't be an exaggeration to say no one cared. It was completely different from the situation a few days ago when discussions among all parties were in full swing and there were even fierce debates. he secretly wondered if his plan level was too low? But looking around, other plans were not necessarily much smarter than his.
+It was based on these ideas that he had meticulously crafted his plan and posted it on the BBS. But the situation over the past few days had been disheartening. Nearly a week had passed since he released his financing proposal, and the popularity he had envisioned hadn't materialized. Even replies discussing his post were scarce—"no one cared" would not be an exaggeration. This was completely different from the lively debates of just a few days earlier. He wondered privately whether his plan was simply subpar. But looking around, other proposals weren't necessarily any more brilliant.
 
-"No," Chu He made up his mind secretly, "Can't drag on like this anymore. I'll find someone to inquire tomorrow."
+*No,* Chu He resolved. *This can't drag on. Tomorrow I'll find someone to ask.*
 
-The next evening, Chu He stepped into the Nanhai Coffee Shop. His eyes swept a few circles, and suddenly a man called out: "Brother Chu! Over here!" The person calling him was Sun Butao, an old acquaintance of Chu He. Both had financial backgrounds and similar experiences. After D-Day, both were grabbed by the construction team as conscripts. After simple training, one drove an excavator and the other drove a bulldozer. Later, they slacked off together in Fangcaodi, so they could be called brothers who shared weal and woe. It was just that later the financial sector got on track, and Sun Butao actively moved closer to the organization and became a financial migrant worker again. Now he was a not-so-small leader in the Foreign Exchange Administration of the Central Reserve Bank.
+The following evening, Chu He stepped into the Nanhai Coffee Shop. His eyes swept the room several times before a man called out: "Brother Chu! Over here!"
 
-The two exchanged pleasantries for a few sentences, and Sun Butao asked: "Brother Chu, why did you come back suddenly? Is there a new appointment? Where is your family?"
+The caller was Sun Butao, an old acquaintance. Both had financial backgrounds and similar experiences. After D-Day, both had been conscripted by the construction team. After basic training, one drove an excavator, the other a bulldozer. Later, they had slacked off together in Fangcaodi—brothers who had shared hardship and ease. But then the financial sector had gotten on track, and Sun Butao had actively "moved closer to the organization," becoming a financial worker once again. Now he was a mid-level leader in the Central Reserve Bank's Foreign Exchange Administration.
 
-Although Chu He had been a slacker for many years, it didn't delay him having children. Now he had three life secretaries and seven children.
+After exchanging pleasantries, Sun Butao asked: "Brother Chu, why the sudden return? New appointment? Where's your family?"
 
-"I came back on temporary leave." Chu He said while ordering a cup of black coffee—this was the most obvious mark left on him by his life studying abroad back then, "To tell you the truth, I came back this time to run for office."
+Though Chu He had been a slacker for years, it hadn't stopped him from having children. He now had three life secretaries and seven children.
 
-"Running for office, truly rare. If you really wanted to run for office, would you run to Jeju Island?" Sun Butao looked unbelieving, "To be honest, most of these positions in the Senate are busy to death. After working for a few years, one won't even have interest in snoo-snoo..."
+"I came back on temporary leave." Chu He ordered a black coffee—the most obvious mark of his years studying abroad—while speaking. "To be honest, I came back to campaign for a position."
 
-"Am I not enlightened now! There is no future in muddling along." Chu He said, "I can't muddle along in Jeju Island for a lifetime—I'm still young. I'm tired of teaching for so long, preparing to learn from you and actively move closer to the organization."
+"Campaigning? That's rare. If you really wanted to campaign, would you have gone to Jeju Island?" Sun Butao looked skeptical. "Truth be told, most Senate positions work you to death. After a few years, you won't even have interest in... you know..."
 
-Sun Butao's eyes lit up: "Did you come for the Nanyang Company matter? Preparing to go to defect to Zhou Wei? He is hot right now! People wanting to see him are queuing up for numbers..."
+"I've seen the light! There's no future in slacking." Chu He said. "I can't drift around Jeju Island forever—I'm still young. Teaching for so long has worn me out. I'm ready to follow your example and actively move closer to the organization."
 
-"It is true that it's for the Nanyang Company matter, but I don't plan to defect to him." Chu He said.
+Sun Butao's eyes lit up. "Did you come for the Nanyang Company business? Planning to defect to Zhou Wei? He's the hot ticket right now! People wanting to see him are taking numbers and queuing up..."
 
-Sun Butao blinked and said: "Then what do you plan to do? Could it be you are eyeing the stock exchange?"
+"It is about the Nanyang Company, but I don't plan to defect to him." Chu He said.
 
-"About that. I wrote a financing plan for the Nanyang Company and posted it on the BBS. It's been several days without any movement. I feel what I wrote is okay, so I came to inquire what's going on."
+Sun Butao blinked. "Then what's your plan? Could it be you've got your eye on the stock exchange?"
 
-Sun Butao laughed: "Big brother, what movement do you expect? Everyone clapping hands in praise, and then the Organization Department issuing you an appointment letter?"
+"Something like that. I wrote a financing plan for the Nanyang Company and posted it on the BBS. It's been days with no response. I think what I wrote is solid, so I came to find out what's going on."
 
-Chu He said embarrassedly: "Not exactly. I just feel that for such an important matter as Nanyang Company financing, I proposed a plan and no one discussed it?"
+Sun Butao laughed. "Brother, what kind of response did you expect? Everyone applauding, followed by an appointment letter from the Organization Department?"
 
-Sun Butao shook his head and said: "Brother Chu, you have left Lingao for too long. Think about it, the Nanyang Company is certainly important, and there are certainly people discussing it, but who will discuss it with you? You are not in the financial sector. Even if they discuss, how could it be on the BBS? They don't care what someone posted on the BBS."
+Chu He said sheepishly: "Not exactly. I just figured that for something as important as Nanyang Company financing, I'd propose a plan and nobody would discuss it?"
 
-Chu He said: "No way, I see there are quite a few people on the BBS..." Saying this, Chu He felt a lack of confidence in his heart. Compared to the early days of crossing when the BBS was an important channel for internal communication of the Senate, the status of the BBS is now far inferior. One reason is that Senators' suggestions and opinions have formal channels for response and resolution. The second is that many things cannot be solved on the BBS; it is better to visit the ministries personally. Also, most Senators' daily jobs take up a lot of time; if they want to know news, they can just read the internal reference, having no mind to tear each other apart online. Not to mention that a large number of Senators not in Lingao do not have the conditions to access the BBS.
+Sun Butao shook his head. "Brother Chu, you've been away from Lingao too long. Think about it—the Nanyang Company is certainly important, and people are certainly discussing it. But who's going to discuss it with you? You're not in the financial sector. Even when they do discuss it, it won't be on the BBS. They don't care what someone posted there."
 
-"Before... before, didn't the Southbound Faction create public opinion momentum to gain discourse power, and finally forcefully made the Nanyang Company happen? Wasn't that done through the BBS?" Chu He suddenly remembered.
+Chu He protested: "That can't be right. I see plenty of people on the BBS..." Even as he spoke, he felt his confidence waver. Compared to the early days after crossing when the BBS served as a vital internal communication channel, its status had declined considerably. First, Senators' suggestions and opinions now had formal channels for response and resolution. Second, many matters simply couldn't be solved on the BBS—it was better to visit the ministries in person. Third, most Senators' daily work consumed so much time that if they wanted news, they could just read internal references rather than waste energy arguing online. Not to mention that a large number of Senators stationed outside Lingao had no access to the BBS at all.
 
-Sun Butao said: "That was fighting for interests, old brother; of course, they needed to create public opinion momentum. Now it is distributing interests; of course, it is done behind closed doors among own people. How would they say it publicly on the BBS?"
+"Didn't... didn't the Southbound Faction previously use the BBS to build public opinion and gain discourse power, ultimately pushing through the Nanyang Company? Wasn't that done through the BBS?" Chu He suddenly remembered.
 
-Chu He couldn't help sighing that he had left Lingao for too long. He usually stayed away from the political center and didn't pay attention to various affairs within the Senate, so he wasn't very clear about power operations and many other aspects within the Senate. For a moment, he felt this matter was so troublesome, far less relaxed and comfortable than the life of riding horses and teasing *** in Jeju. However, this mood only lasted for a moment. He asked: "Then how should this be solved? Should I go directly to the people in the financial sector? Cheng Dong?"
+Sun Butao said: "That was fighting for interests, brother—of course they needed to build public opinion. Now it's about distributing interests—naturally that's done behind closed doors among insiders. Who would discuss that publicly on the BBS?"
 
-Sun Butao thought for a moment and said slowly: "Probably not. Leaving aside whether you can find him right now, it's uncertain whether this matter falls under his jurisdiction."
+Chu He couldn't help sighing that he had been away from Lingao too long. Living far from the political center and paying little attention to Senate affairs, he had grown unclear about internal power dynamics. For a moment, the whole endeavor seemed impossibly complicated—far less relaxing than life in Jeju, riding horses and amusing himself. But the feeling passed quickly. "So what should I do? Go directly to the finance sector people? Cheng Dong?"
 
-"Then who in the financial sector is in charge of this?"
+Sun Butao considered this for a moment before replying slowly: "Probably not. Setting aside whether you could even find him right now, it's uncertain whether this falls under his jurisdiction."
 
-Sun Butao looked at Chu He's face and asked suspiciously: "Brother Chu, don't you know about that matter?"
+"Then who in the finance sector handles this?"
 
-Chu He looked confused: "What matter?"
+Sun Butao studied Chu He's face and asked suspiciously: "Brother Chu, don't you know about that situation?"
 
-Sun Butao realized: "Oh! Brother Chu, you were on the ship during that time, no wonder you don't know." Immediately he lowered his voice and said mysteriously: "The Southbound Faction conflicted with the Administration Council. During this period, the Southbound Faction engaged in quite a few connections to push their political views, and the public opinion momentum was particularly fierce. It is said that several big shots were very dissatisfied with this, saying they were engaging in partisanship and attacking dissidents, with a great intention of making the Wenlan River flow backward..."
+Chu He looked blank. "What situation?"
 
-"Damn, such a severe hat." Chu He was startled, "Who was very dissatisfied? Chairman Wen? Secretary of State Ma? Or..."
+Sun Butao realized: "Oh! You were at sea during that time—no wonder you don't know." He immediately lowered his voice and spoke conspiratorially: "The Southbound Faction clashed with the Administration Council. During that period, the Southbound Faction was making all sorts of connections to push their political views, and the public opinion campaign was particularly intense. Word has it that several big shots were very displeased, saying they were engaging in factionalism and attacking dissidents. There was even talk of 'making the Wenlan River flow backward'..."
 
-Sun Butao immediately shifted his gaze, "Don't know, not clear, didn't understand. Anyway, the atmosphere was very stiff at that time. This matter is considered subsided now. But the aftermath is still there. If you go to the Finance Department with the financing plan in the name of Nanyang Company now, I'm afraid you won't get any good looks."
+"Damn, that's a serious accusation." Chu He was startled. "Who was displeased? Chairman Wen? Secretary of State Ma? Or..."
+
+Sun Butao immediately looked away. "Don't know. Not clear. Didn't hear. Anyway, tensions were running high at the time. The situation has calmed down now, but the aftermath lingers. If you go to the Finance Department with a financing plan under the Nanyang Company banner right now, I doubt you'll receive a warm reception."
 
 **(End of Chapter)**

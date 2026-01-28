@@ -12,7 +12,7 @@ Quickly opening Director Wen's long transmission telegram, Liu Xiang took a roug
 
 Those who understood the meaning of such temporary teams, like Wang Qiyi and Meng Xian, immediately showed surprised expressions and even began taking the lead in applauding and cheering.
 
-Liu Xiang glanced at Zhou Wei, didn't even bother to tear open the cover of the joint investigation report by Mu Min and Wu Mu, and directly said: "After deciding to use old literati and old officials, we anticipated that corrupt, reactionary, and regressive members would appear in our cadre ranks. This special inspection was not a whim!"
+Liu Xiang glanced at Zhou Wei, didn't even bother to tear open the cover of the joint investigation report by Mu Min and Wu Mu, and directly said, "After deciding to use old literati and old officials, we anticipated that corrupt, reactionary, and regressive members would appear in our cadre ranks. This special inspection was not a whim!"
 
 Zhou Wei was shocked in his heart upon hearing this, waiting for Liu Xiang's second half—did I get off the hook or not?
 
@@ -76,18 +76,18 @@ Simultaneously, using ships and other assets with book value of 530,000 yuan as 
 
 Total stock financing of 180,000 yuan, bond financing of 220,000 yuan, together 400,000 yuan. Calculating at the estimated 2% interest rate for the third phase, estimated first year interest payment was 9,000 yuan, comprehensive interest cost 4.09%.
 
-These materials had been sent to the attending Senators before, and some finance sector Senators had also participated in formulating the financing plan. It quickly entered the inquiry phase. Soon a Senator asked: "Can you briefly state the necessity of issuing bonds?"
+These materials had been sent to the attending Senators before, and some finance sector Senators had also participated in formulating the financing plan. It quickly entered the inquiry phase. Soon a Senator asked, "Can you briefly state the necessity of issuing bonds?"
 
 Zhou Wei thought: does this even need to be said? Isn't it all written in the documents!
 
 "For this question, I'll still ask the relevant Senator—"
 
-You signaled Chu He to answer: "Bonds are easy for natives to accept; explaining stocks wastes energy. Bonds are convenient for multiple issuances; additional stock issuance is troublesome. Stocks amount to selling Senate assets cheaply; bonds protect Senate interests."
+He signaled Chu He to answer. "Bonds are easy for natives to accept; explaining stocks wastes energy. Bonds are convenient for multiple issuances; additional stock issuance is troublesome. Stocks amount to selling Senate assets cheaply; bonds protect Senate interests."
 
 These few sentences made the questioning Senator a bit uncomfortable, thinking: although this isn't the old spacetime Securities Regulatory Commission reviewing materials, and the Nanyang Company and finance sector are actually cooperating to push things forward, you should at least pay attention to your attitude. You're asked to briefly state and you're really quite brief.
 
-At this time, Cheng Dong took over and said: "I see your equity structure has also changed. Not adding the previous asset company?"
+At this time, Cheng Dong took over and said, "I see your equity structure has also changed. Not adding the previous asset company?"
 
-Meichuan said: "Yes, we went back and studied it again. Your suggestion was very correct. At this stage, it really isn't necessary to make it so complicated. Not even many among the Senators can understand it. It would increase difficulty for natives to understand. We'll skip it this time."
+Meichuan said, "Yes, we went back and studied it again. Your suggestion was very correct. At this stage, it really isn't necessary to make it so complicated. Not even many among the Senators can understand it. It would increase difficulty for natives to understand. We'll skip it this time."
 
 **(End of Chapter)**

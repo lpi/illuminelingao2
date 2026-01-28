@@ -14,7 +14,7 @@ Li Shuangkuai was a seasoned old hand, and he feared this might be a trap—perh
 
 After some twists and turns, the message—"The new Song-appointed Magistrate of Yangshan wishes to invite Zhang Tianbo back into service"—reached Dalang Market. Just as Li Shuangkuai had guessed, Zhang Tianbo was hiding at his sworn brother Sun Dabiao's place.
 
-Zhang Tianbo had been whiling away his days eating, drinking, and amusing himself in the stockade—but with a knot of unease in his heart. Word of the Australians' yamen purges had long since reached here. He had heard plenty about how the Australians dealt with functionaries: every manner of cruel "extorting confession," and "entire families executed." Zhang Tianbo was scared out of his wits. Despite Sun Dabiao's repeated assurances that the place was "absolutely safe," Zhang remained despondent, dreading that the Australians would come for him—by Australian "purge" standards, he had earned death a hundred times over. The aggrieved plaintiffs were probably at this very moment lodging complaints!
+Zhang Tianbo had been whiling away his days eating, drinking, and amusing himself in the stockade—but with a knot of unease in his heart. Word of the Australians' yamen purges had long since reached here. He had heard plenty about how the Australians dealt with functionaries: every manner of cruel "extorted confession," and "entire families executed." Zhang Tianbo was scared out of his wits. Despite Sun Dabiao's repeated assurances that the place was "absolutely safe," Zhang remained despondent, dreading that the Australians would come for him—by Australian "purge" standards, he had earned death a hundred times over. The aggrieved plaintiffs were probably at this very moment lodging complaints!
 
 Then this message arrived. Li Shuangkuai, his "great-grandfather in the trade," was someone he trusted—otherwise, he would not have entrusted his family to the man. But trusting Li Shuangkuai did not mean trusting the Australians: for all he knew, the Australians were laying a trap to lure him out and kill him.
 
@@ -34,7 +34,7 @@ Zhang Tianbo counted on his fingers. "If we're talking about those whose money I
 
 "Whether the Australians actually want you as their constable is uncertain. But they probably don't want to kill you." Sun Dabiao thought a moment. "Why not meet with the Australians and see what they say? If there's a way to clear your name—whether or not you become constable—you could at least emerge into daylight again, instead of skulking and hiding."
 
-"Elder Brother speaks wisely. I will go and see." In truth, Zhang Tianbo was still uneasy, but since Sun Dabiao had spoken in favor of "trying," he dared not say no. If he angered this bandit chief, the man might simply truss him up and hand him over to the Australians to curry favor.
+"Elder Brother speaks wisely. I will go and see." In truth, Zhang Tianbo was still uneasy, but since Sun Dabiao had spoken in favor of "trying," he dared not refuse. If he angered this bandit chief, the man might simply truss him up and hand him over to the Australians to curry favor.
 
 Through Li Shuangkuai, word was passed to Wang Chuyi that Zhang Tianbo was willing to meet.
 

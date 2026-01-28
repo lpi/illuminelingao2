@@ -1,91 +1,93 @@
 # Chapter 2120 - Intelligence from the City
 
-Using four companies to cordon off and capture over ten thousand refugees was quite a stretch. Fortunately, refugees moved slowly at night, and with no light and nowhere to run, they usually stopped and waited to be collected as soon as a dozen soldiers showed up with torches and called out.
+Deploying merely four companies to establish cordons and process over ten thousand refugees constituted quite an operational stretch. Fortunately, refugees moved lethargically at night, and with zero illumination and nowhere viable to flee, they typically halted and awaited collection the moment a dozen soldiers materialized bearing torches and issued commands.
 
-Each company had plenty of veterans who had participated in Operation Engine; they had a knack for managing refugee collection. With only bayonets for coercion, they herded the refugees together; for a while, wails rose on all sides, with cries of "Mercy, Australian master!" filling the air. It took a full four hours to escort the more than ten thousand refugees to the eastern foot of Beishan, where three companies guarded them. By then, it was already dawn.
+Each company possessed substantial numbers of veterans who had participated in Operation Engine; they had developed genuine expertise managing refugee consolidation operations. Employing only bayonets for coercion, they methodically consolidated refugees into manageable groups; for extended periods, wails rose from all directions, with desperate cries of "Mercy, Australian master!" filling the nocturnal air. The complete operation—escorting the more than ten thousand refugees to Beishan's eastern foothills, where three companies established guard positions—consumed a full four hours. By then, dawn had already broken.
 
-Zhu Quanxing was overwhelmed—he had to arrange the assault while simultaneously dealing with the refugee problem. The reserve forces and civil affairs cadres were on the move, preparing to take over this mess.
+Zhu Quanxing found himself utterly overwhelmed—he was obligated to arrange the impending assault while simultaneously managing the refugee crisis. Reserve forces and civil affairs cadres were mobilizing, preparing to assume control of this chaotic situation.
 
-Just as he was swamped, a runner reported that an old man among the refugees who had left the city insisted on personally delivering a letter to him.
+Precisely as he was thoroughly inundated, a runner reported that an elderly man among refugees who had departed the city adamantly insisted upon personally delivering correspondence to him.
 
-"He says it absolutely must be handed over in person."
+"He states it absolutely must be handed over in person."
 
-"Search him and bring the letter." Zhu Quanxing had no interest in listening to an old man ramble. If this was about "pacifying the people" or something, he had no time to waste.
+"Conduct a thorough search and confiscate the letter." Zhu Quanxing possessed zero interest in listening to elderly rambling. If this concerned "pacifying the populace" or similar matters, he had no time to squander.
 
-"He says he was sent by Lone Wolf!"
+"He claims he was dispatched by Lone Wolf!"
 
-Zhu Quanxing paused. He knew about Lone Wolf—an intelligence operative planted in Wuzhou by the External Intelligence Bureau. Not long ago, he had even sent signals from the city walls.
+Zhu Quanxing froze mid-motion. He knew of Lone Wolf—an intelligence operative embedded in Wuzhou by the External Intelligence Bureau. Not long previously, he had even transmitted signals from the city walls.
 
-That changed things.
+That altered circumstances substantially.
 
-"All right, bring him." Zhu Quanxing said. "And report to Chief Xu—have him come at once!"
+"Very well, bring him forward." Zhu Quanxing ordered decisively. "And dispatch immediate report to Chief Xu—have him come at once!"
 
-Sun Sancai was from Shandong, a refugee collected during Operation Engine. Because he was tall and strong, he had been recruited into the Army. Now Sun Sancai was a sergeant and squad leader. But his combat record was slim—apart from a handful of bandit suppression operations, Sun Sancai had never truly fought a battle. It wasn't until the Mainland Offensive that he finally saw real action. He had hoped to kill enemies and win great merit on the battlefield, so he could advance, get rich, and bring honor to his wife and children.
+---
 
-But to his surprise, from landing all the way to Wuzhou, Sun Sancai hadn't fired a single shot—he had just carried his rifle and traveled by boat the whole way. That killed half his ambition to make his mark.
+Sun Sancai hailed from Shandong, a refugee collected during Operation Engine. Because he possessed considerable height and strength, he had been recruited into the Army. Now Sun Sancai served as sergeant and squad leader. But his combat record remained disappointingly slim—apart from scattered bandit suppression operations, Sun Sancai had never genuinely engaged in battle. It wasn't until the Mainland Offensive commenced that he finally witnessed authentic combat action. He had harbored hopes of slaying enemies and earning magnificent battlefield merit, facilitating advancement, acquiring wealth, and bringing honor to his wife and children.
 
-At Zhaoqing, he had heard that over ten thousand Ming troops were massed at Wuzhou; there would surely be a great battle. Sun Sancai was excited, thinking his chance had finally come. But to his dismay, once they reached the battlefield, his company's first combat mission was... intercepting refugees who had left the city.
+But to his profound consternation, from initial landing all the way to Wuzhou, Sun Sancai hadn't discharged a single shot—he had merely shouldered his rifle and traveled by watercraft the entire journey. That reality had extinguished half his ambition to establish his reputation.
 
-Now the refugees were penned in at the eastern foot of Beishan, surrounded by barricades of wire and stakes. They sat on the ground while medics made the rounds, providing simple bandaging for those who were injured. Sun Sancai's company had received new orders: guard duty around the perimeter of this makeshift refugee encampment.
+At Zhaoqing, he had learned that over ten thousand Ming troops massed at Wuzhou; surely there would materialize a magnificent battle. Sun Sancai had been excited, convinced his opportunity had finally arrived. But to his dismay, upon reaching the battlefield theater, his company's inaugural combat mission proved to be... intercepting refugees departing the city.
 
-Sun Sancai was in a foul mood. If he spent the whole time watching these refugees, he wouldn't get to fight at all. At this rate, when would he ever get promoted?
+Now the refugees were confined at Beishan's eastern foothills, surrounded by barricades constructed from wire and wooden stakes. They sat upon the ground while medical personnel made rounds, providing rudimentary bandaging for those who had sustained injuries. Sun Sancai's company had received fresh orders: guard duty surrounding the perimeter of this improvised refugee encampment.
 
-Grumbling was one thing; orders still had to be followed. That was "iron discipline." Sun Sancai didn't dare slack off; he led his men on patrol along the cordon. In particular, they had to watch for anyone "making trouble" inside the refugee crowd—such things had happened before. Even among "fellow sufferers," and even on the brink of survival, the law of the jungle prevailed in refugee camps: robbery, brawling, rape... every kind of crime.
+Sun Sancai languished in foul temperament. If he devoted the entire campaign monitoring these refugees, he wouldn't participate in combat whatsoever. At this dismal rate, when would he ever achieve promotion?
 
-Suddenly, an old man pushed through to the cordon, waving his arms and jabbering in a tongue Sun Sancai couldn't understand. It only soured his mood further. He barked: "Stay in line!"
+Internal grumbling constituted one matter; orders still demanded compliance. That was "iron discipline." Sun Sancai dared not demonstrate slackness; he led his men on patrol along the cordon. Particularly, they were obligated to monitor for anyone "creating disturbance" within the refugee population—such incidents had materialized previously. Even among "fellow sufferers," and even perched on survival's precipice, the law of the jungle prevailed in refugee encampments: robbery, violent confrontations, sexual assault... every conceivable crime.
 
-The old man was none other than Li Wensheng, the elderly manager under Luo Yangming. Though Li Wensheng was a shopkeeper, he only spoke Cantonese Mandarin. Sun Sancai, being from Shandong, naturally couldn't understand—apart from the new standard language used in the military, he only knew his hometown dialect. He couldn't even communicate in the western three prefectures, let alone here in Wuzhou.
+Suddenly, an elderly man pushed aggressively through to the cordon, gesticulating wildly and jabbering in a dialect Sun Sancai couldn't comprehend. It only deteriorated his mood further. He barked: "Maintain position in line!"
 
-Because "New Speech" was the common tongue in the military and he rarely interacted with outsiders, Sun Sancai knew almost nothing of Cantonese Mandarin.
+The elderly man was precisely Li Wensheng, the senior manager serving under Luo Yangming. Though Li Wensheng operated as a shopkeeper, he spoke exclusively Cantonese Mandarin. Sun Sancai, originating from Shandong, naturally couldn't understand—apart from the new standard language employed within military structures, he possessed command only of his hometown dialect. He couldn't even communicate in the western three prefectures, let alone here in Wuzhou.
 
-Li Wensheng grew more agitated, even trying to climb over the barrier. Sun Sancai reflexively raised his rifle and pushed Li Wensheng back with the bayonet.
+Because "New Speech" constituted the common military tongue and he rarely interacted with external civilians, Sun Sancai knew virtually nothing of Cantonese Mandarin dialects.
 
-Li Wensheng remembered his master's instructions. Steeling himself, ignoring the warnings from those around him, he pushed forward again, waving frantically and shouting that he wanted to see the chief.
+Li Wensheng grew progressively more agitated, even attempting to scale the barrier. Sun Sancai reflexively elevated his rifle and pushed Li Wensheng backward employing the bayonet.
 
-Sun Sancai still couldn't understand a word. Seeing the old man being obstinate and disorderly, regulations called for "enforcement measures"—using the bayonet directly wasn't allowed, but the rifle butt was right there. He flipped his rifle around and gave the old man a solid butt-stroke.
+Li Wensheng recalled his master's critical instructions. Steeling his resolve, disregarding warnings from surrounding refugees, he pushed forward again, gesticulating frantically and bellowing that he required audience with the chief commander.
 
-Li Wensheng took the hit squarely, toppling to the ground with a thud. The refugees around him stirred, quickly backing away.
+Sun Sancai still couldn't comprehend a solitary word. Observing the elderly man being obstinate and creating disorder, regulations mandated "enforcement measures"—employing the bayonet directly wasn't authorized, but the rifle butt remained readily available. He inverted his rifle and delivered a substantial butt-stroke to the old man.
 
-But Li Wensheng was nothing if not persistent—"entrusted by another, faithful to the end." After taking the blow, he immediately scrambled back up and resumed shouting.
+Li Wensheng absorbed the impact squarely, toppling to earth with a resounding thud. The refugees surrounding him stirred nervously, rapidly withdrawing.
 
-Now Sun Sancai was truly annoyed. He ordered: "Tie him up! Stuff some grass in his mouth!"
+But Li Wensheng proved nothing if not stubbornly persistent—"entrusted by another, faithful to the conclusion." After absorbing the blow, he immediately scrambled upright again and resumed vociferous shouting.
 
-"What's going on here?"
+Now Sun Sancai felt genuinely aggravated. He commanded: "Restrain him! Stuff vegetation in his mouth!"
 
-Sun Sancai turned to see Platoon Leader Lin Gongyong. He snapped to attention and saluted: "Reporting, Platoon Leader! An old man refusing to obey orders and causing a disturbance!"
+"What transpires here?"
 
-Lin Gongyong was originally from the Lin clan of Baitu Village—by the genealogy, a nephew of Lin Xianming and a younger cousin of Lin Gonglao. After the Baitu Village expulsion, the Lin clan had been scattered; some had been relocated to Sanya, some remained in Lingao. As the territory under the Council of Elders expanded, both branches were further dispersed. Lin Gongyong's father, being a shipwright, had been moved to Kaohsiung, and the whole family now worked at the local naval shipyard.
+Sun Sancai pivoted to observe Platoon Leader Lin Gongyong. He snapped to attention and saluted crisply: "Reporting, Platoon Leader! An elderly man refusing to obey directives and creating disturbance!"
 
-Because Baitu Village had once serviced ships from everywhere, its villagers knew multiple dialects. After moving to Kaohsiung, Lin Gongyong interacted with people from all corners and could speak not only his native Hokkien but also Lingao dialect, Qiongshan dialect, and Cantonese—all without an accent others could detect. It was precisely this linguistic talent that had gotten him into the NCO training program before the Mainland Offensive.
+Lin Gongyong originated from the Lin clan of Baitu Village—by genealogical records, a nephew of Lin Xianming and younger cousin of Lin Gonglao. Following the Baitu Village expulsion operation, the Lin clan had been systematically scattered; some had been relocated to Sanya, others remained in Lingao. As territories under Council of Elders governance expanded, both branches were further dispersed. Lin Gongyong's father, being a skilled shipwright, had been transferred to Kaohsiung, and the entire family now labored at the local naval shipyard facilities.
 
-He understood Li Wensheng's words. Hearing him repeatedly shout that he wanted to see the chief, Lin Gongyong found it odd—"Chief" was a term of respect for members of the Council of Elders, not widely known in this border city between Guangdong and Guangxi. How did this old man know it? He calmed Li Wensheng in Cantonese, asking what the matter was.
+Because Baitu Village had historically serviced vessels from every quarter, its villagers possessed command of multiple dialects. After relocating to Kaohsiung, Lin Gongyong interacted with individuals from all corners and could speak not merely his native Hokkien but also Lingao dialect, Qiongshan dialect, and Cantonese—all without detectable accent that others could identify. It was precisely this linguistic proficiency that had secured him admission into the NCO training program before the Mainland Offensive commenced.
 
-Li Wensheng, finally encountering someone who understood Cantonese and could speak it, was beside himself with excitement. Ignoring the gleaming bayonets all around him, he lunged forward, seized Lin Gongyong's hands, and wouldn't let go, repeating: "I have important intelligence for the Australian chiefs."
+He comprehended Li Wensheng's words. Hearing him repeatedly bellow that he required seeing the chief, Lin Gongyong found it peculiar—"Chief" constituted a respectful term for Council of Elders members, not widely recognized in this border city straddling Guangdong and Guangxi. How did this elderly man possess such knowledge? He pacified Li Wensheng in Cantonese, inquiring what the urgent matter entailed.
 
-"What?"
+Li Wensheng, finally encountering someone who comprehended Cantonese and could articulate it fluently, was beside himself with excitement. Disregarding the gleaming bayonets surrounding him, he lunged forward, seized Lin Gongyong's hands, and wouldn't relinquish his grip, repeating insistently: "I possess critical intelligence for the Australian chiefs."
 
-"Please tell the chief—I have intelligence from Lone Wolf!"
+"What precisely?"
 
-At the word "intelligence," Lin Gongyong didn't dare delay. He immediately pulled Li Wensheng aside for questioning, but the old man refused to say anything beyond "I have important intelligence for the Australian chiefs" and "I was sent by Lone Wolf."
+"Please inform the chief—I carry intelligence from Lone Wolf!"
 
-Lin Gongyong worried this might be a Ming spy who wanted to get close to the chiefs for an assassination attempt. He had the soldiers search the old man thoroughly—even undoing his hair bun—but found no weapons. Apart from some odds and ends, there was only an ordinary family letter.
+At the utterance "intelligence," Lin Gongyong dared not demonstrate delay. He immediately extracted Li Wensheng aside for interrogation, but the elderly man adamantly refused articulating anything beyond "I possess critical intelligence for the Australian chiefs" and "I was dispatched by Lone Wolf."
 
-He turned the items over and over but couldn't see anything unusual. Finally, he ordered the man held in isolation and sent a runner to report to battalion headquarters.
+Lin Gongyong worried this might constitute a Ming spy who desired proximity to the chiefs for assassination purposes. He had soldiers conduct thorough search of the elderly man—even undoing his hair topknot—but discovered no weaponry. Apart from assorted miscellaneous items, there existed only an apparently ordinary family correspondence.
 
-Li Wensheng was placed in a tent, sitting nervously on a camp chair. Beads of sweat the size of beans had formed on his forehead. He felt that in all his years, he had never been this anxious.
+He examined the items repeatedly but couldn't detect anything irregular. Finally, he ordered the man detained in isolation and dispatched a runner to report to battalion headquarters.
 
-A soldier with a bayoneted rifle stood just outside the tent—if he tried to escape, he would certainly be shot without hesitation. His master had long done business with the Dachang Rice Company, and it was an open secret that Dachang was backed by the Australians. Anyone in Wuzhou's rice trade had to deal with Dachang, and naturally knew some of the stories.
+Li Wensheng was positioned within a tent, seated nervously upon a camp chair. Perspiration beads the size of soybeans had materialized on his forehead. He felt that throughout all his accumulated years, he had never experienced thisintensity of anxiety.
 
-If his master dealt with Dachang, perhaps he had some connection to the Australians that couldn't be openly discussed. His master never said, and Li Wensheng never asked—that was his master's private affair. But Li Wensheng didn't know the Australians' full background; to protect his master, it seemed wiser to reveal as little as possible. So he simply stopped talking—apart from what his master had instructed, "I have important intelligence for the Australian chiefs" and "I was sent by Lone Wolf," he said nothing else.
+A soldier wielding a bayoneted rifle stood positioned directly outside the tent—should he attempt escape, he would certainly be shot without hesitation. His master had long conducted commercial ventures with the Dachang Rice Company, and it constituted an open secret that Dachang possessed Australian backing. Anyone operating within Wuzhou's rice trade was obligated to conduct business with Dachang, and naturally absorbed some of the circulating narratives.
 
-After a long wait, a sedan chair arrived. Xu Ke, upon hearing that someone had brought news from Lone Wolf, immediately demanded that Zhu Quanxing have the man brought to the command post south of the city.
+If his master dealt with Dachang, perhaps he maintained some connection to the Australians that couldn't be openly discussed. His master never articulated it, and Li Wensheng never inquired—that constituted his master's private affairs. But Li Wensheng didn't comprehend the Australians' complete background; to safeguard his master, revealing minimal information seemed prudent. So he simply ceased talking—apart from what his master had specifically instructed, "I possess critical intelligence for the Australian chiefs" and "I was dispatched by Lone Wolf," he articulated nothing additional.
 
-"Put him in a sedan chair and bring him at once!"
+After prolonged waiting, a sedan chair materialized. Xu Ke, upon learning that someone had delivered news from Lone Wolf, immediately demanded that Zhu Quanxing have the man transported to the command post south of the city.
 
-For ease of command, Zhu Mingxia had established a forward command post south of Wuzhou city; Changzhou Island served as the rear supply depot and troop rest area—Yang Zeng's 8th Battalion was currently resting on Changzhou Island. Preliminary counts of the collected refugees came to over eighteen thousand, mostly elderly, children, and women; some able-bodied men had slipped out in the chaos. These were held under separate guard to prevent Ming spies from hiding among them.
+"Position him in a sedan chair and transport him immediately!"
 
-Zhu Mingxia was now deeply troubled: Xiong Wencan had really pulled off a masterstroke of passing the buck!
+For optimal command efficiency, Zhu Mingxia had established a forward command post south of Wuzhou city; Changzhou Island functioned as the rear supply depot and troop rest area—Yang Zeng's 8th Battalion was currently resting on Changzhou Island. Preliminary census counts of collected refugees totaled over eighteen thousand souls, predominantly elderly, children, and women; certain able-bodied men had slipped away during the chaos. These were detained under separate guard to prevent Ming intelligence operatives from concealing themselves among civilian populations.
 
-Wuzhou's flourishing trade meant most of its residents made their living from commerce and crafts, relying on the city's role as a hub for rice distribution from northern and western Guangxi. The big rice merchants were one thing, but most ordinary folk had no farmland or estates outside the city walls—and now they had nowhere to go. Whatever valuables they had carried were long since stripped by the soldiers who had expelled them. On top of that, Xiong Wencan had systematically requisitioned grain from the surrounding villages before the war, half-buying, half-seizing it. Most of the villages' stores could now barely sustain themselves; for these elderly, infirm women and children to find food was next to impossible.
+Zhu Mingxia now found himself profoundly troubled: Xiong Wencan had genuinely executed a masterstroke of transferring burdensome responsibility!
+
+Wuzhou's flourishing commercial activity meant most residents derived their livelihood from commerce and specialized crafts, relying upon the city's pivotal role as a distribution hub for rice from northern and western Guangxi regions. The prosperous rice merchants constituted one category, but most ordinary populace possessed neither farmland nor estates beyond the city walls—and presently they had absolutely nowhere viable to seek refuge. Whatever modest valuables they had carried were long since systematically stripped by the soldiers who had expelled them. Additionally, Xiong Wencan had methodically requisitioned grain from surrounding rural villages before hostilities commenced, half-purchasing, half-seizing provisions. Most villages' storage reserves could now barely sustain themselves; for these elderly, infirm women and children to locate sustenance proved nearly impossible.
 
 *(End of Chapter)*

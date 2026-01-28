@@ -34,11 +34,11 @@ The night shift was relatively quiet. Xie Yao and Chen Ruihe each managed three 
 
 "A drop in the bucket...?" Chen Ruihe felt his worldview crumbling. "But... the Council's medicine is the divine art of raising the dead and regrowing bone—how can it be 'a drop in the bucket'?"
 
-"We physicians can cure disease, but not fate. Though the Elders possess great knowledge and power, they are still flesh and blood—not immortals. Where in this world is there an art that can truly raise the dead? However skillful the medicine, there are still incurable illnesses!"
+"We physicians can cure disease, but not fate. Though the Elders possess great knowledge and power, they are still flesh and blood—not immortals. Where in this world is there an art that can truly raise the dead? However skillful the medicine, there are still incurable illnesses."
 
 "But... even if we can't cure fate, the Council can! Elder Lin says, 'The people are poor and therefore filthy; filth leads to disease.' Isn't that because the Ming world was bad? Now that the Council has liberated Liangguang and life is better..."
 
-Xie Yao gave a cold laugh: "By your logic, those who live in comfort should fare better than corpses by the roadside—on the road to the underworld, each should stroll leisurely to reincarnation?"
+Xie Yao gave a cold laugh. "By your logic, those who live in comfort should fare better than corpses by the roadside—on the road to the underworld, each should stroll leisurely to reincarnation?"
 
 Chen Ruihe did not answer, but his expression showed he agreed.
 
@@ -52,7 +52,7 @@ Chen Ruihe did not answer, but his expression showed he agreed.
 
 "By the time she reached Provincial-Hong Kong General Hospital, her diabetic foot was so bad you couldn't touch it. Both feet were rotting; bone was poking through the flesh. The day they brought her to me, she had only a thin breath left.
 
-"At that stage, there was no saving her. The foot ulcers were classic diabetic ketoacidosis. No one wanted to keep such a patient. Internal medicine stabilized the acidosis and half-saved her life, then dumped her on orthopedics to deal with the rotting feet. Orthopedics didn't want her either—even amputation couldn't control the infection. On some pretext—'infection not controlled, possible concurrent stroke'—they dumped her on me. As the saying goes, 'Long illness, no filial sons.' Her several sons, though all prosperous and willing to spend money, would not attend at her bedside. Learning that the Song hospital could keep patients for 'admission,' they cared nothing for appearances and admitted her at once—clearly they wanted to be rid of the old matriarch! Fortunately, they did spend freely, so she stayed on in the ward.
+"At that stage, there was no saving her. The foot ulcers were classic diabetic ketoacidosis. No one wanted to keep such a patient. Internal medicine stabilized the acidosis and half-saved her life, then dumped her on orthopedics to deal with the rotting feet. Orthopedics didn't want her either—even amputation couldn't control the infection. On some pretext—'infection not controlled, possible concurrent stroke'—they dumped her on me. As the saying goes, 'Long illness, no filial sons.' Her several sons, though all prosperous and willing to spend money, would not attend at her bedside. Learning that the Song hospital could keep patients for 'admission,' they cared nothing for appearances and admitted her at once—clearly they wanted to be rid of the old matriarch. Fortunately, they did spend freely, so she stayed on in the ward.
 
 "The old lady was confused when she arrived—no wonder orthopedics suspected stroke. But what could I do with such a critical case? After a day of fussing, I sent her to orthopedics for amputation, then got her back. The old matriarch was dazed; when the anesthesia wore off and she saw both feet gone, she burst into tears and could not be consoled. She cried until exhausted, then fell into a stupor; woke, and cried again. She had been pampered all her life; now, with her mind unclear, who could comfort her?
 

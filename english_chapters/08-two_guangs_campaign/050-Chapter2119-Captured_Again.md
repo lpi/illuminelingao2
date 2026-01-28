@@ -1,119 +1,119 @@
 # Chapter 2119 - Captured Again
 
-"It's alright—as long as we're alive!" Chang Qingyun said. "If they have any conscience, they'll come back on their own. If they don't want to follow me anymore, let them take the silver and find their own way."
+"It matters little—as long as we draw breath!" Chang Qingyun declared with forced optimism. "If they possess any conscience, they'll return of their own accord. If they've chosen to abandon my service, let them take the silver and forge their own path."
 
-Just as he spoke, Changqing suddenly squeezed through the crowd toward him, crying out when he saw him: "Master!"
+Even as he spoke, Changqing suddenly squeezed through the refugee throng toward him, crying out upon spotting his master: "Master!"
 
-"Shh!" Chang Qingyun hastily silenced him. "We're fleeing for our lives—no formalities. Don't give us away!"
+"Quiet!" Chang Qingyun hastily silenced him with urgent gestures. "We're fleeing for our very lives—dispense with formalities. Don't expose our identity!"
 
-Changqing quickly shut his mouth, looked around, then said in a low voice: "Changwei turned bad! He deliberately left me behind and ran off with the silver, mixed in with the crowd!"
+Changqing quickly sealed his lips, glanced around furtively, then whispered in a low voice: "Changwei proved treacherous! He deliberately abandoned me and absconded with the silver, disappearing into the crowd!"
 
-"Never mind. When disaster strikes, even husband and wife must look out for themselves. Let him go." Chang Qingyun smiled bitterly. Of the three servants, Changwei had been his favorite. Who would have thought that when the moment came, he would be the one to abscond with the funds.
+"Think nothing of it. When disaster strikes, even spouses must fend for themselves individually. Let him go." Chang Qingyun smiled bitterly. Of his three servants, Changwei had been his particular favorite. Who could have anticipated that when crisis materialized, he would be precisely the one to abscond with their funds.
 
-"Let's go quickly—if we get out, we'll live!" With that, the three of them blended into the crowd and headed toward the river.
+"Let's proceed quickly—escape means survival!" With that, the three of them blended into the refugee exodus and headed toward the river.
 
-A saber suddenly barred their way: "Hand over your valuables!"
+A saber suddenly barred their path: "Surrender your valuables!"
 
-Seeing several men in military tunics closing in from left and right, Chang Qingyun knew there was no reasoning with these soldiers now. He put on a fawning smile: "Brothers, we left the city in a hurry and didn't bring any silver. Please let us pass..."
+Observing several men in military tunics closing in from both flanks, Chang Qingyun instantly recognized that reasoning with these rogue soldiers was futile. He plastered on an obsequious smile: "Brothers, we fled the city in desperate haste and brought no silver. Please permit us passage..."
 
-Before he could finish, the lead soldier had grabbed him by the collar, snarling:
+Before he could complete the plea, the lead soldier had seized him by the collar, snarling viciously:
 
-"Drop the act, you bookworm. Look at you—soft and pale, with servants in tow. You must be from a big household! Better hand over the silver yourself, nice and dignified, or don't blame this blade for not recognizing faces." With that, he suddenly slashed at Changshan's throat. Chang Qingyun felt something hot and wet splatter his face; Changshan collapsed, legs twitching rhythmically, dark blood pooling around him.
+"Cease your theatrics, you pampered scholar. Look at yourself—soft and pale-skinned, with servants attending you. You must hail from a prosperous household! Better surrender your silver with dignity intact, or don't fault this blade for failing to recognize faces." With that, he suddenly slashed at Changshan's throat. Chang Qingyun felt something hot and wet splatter across his face; Changshan collapsed, legs twitching rhythmically, dark blood pooling rapidly around him.
 
-Chang Qingyun was petrified with terror. These soldiers were murdering openly—utterly lawless. He was penniless; if he angered them, he was dead. He stammered: "Brothers... brothers... please don't be rough—I really don't have any money..."
+Chang Qingyun was petrified with absolute terror. These soldiers were committing murder openly—utterly lawless savages. He possessed not a copper cash; provoking their wrath meant certain death. He stammered desperately: "Brothers... brothers... please exercise restraint—I genuinely possess no funds..."
 
-By now he was nearly in tears. He bitterly regretted his rash decision to volunteer. The determination to die a hero's death had vanished; in an instant, his aged mother, wife, concubines, children... all flickered through his mind like a revolving lantern.
+By now tears threatened to spill. He bitterly regretted his rash decision to volunteer. The determination to perish a hero's death had evaporated entirely; in an instant, his aged mother, wife, concubines, children... all flickered through his consciousness like a revolving lantern of lost futures.
 
-Just as Chang Qingyun shut his eyes and awaited death, a string of sharp reports rang out like firecrackers. The sound was all too familiar to him—not a three-eyed blunderbuss, not a matchlock, but the quick-firing guns of the Australians!
+Precisely as Chang Qingyun squeezed his eyes shut and awaited death's embrace, a rapid string of sharp reports erupted like exploding firecrackers. The sound proved all too familiar—not three-eyed blunderbusses, not matchlock arquebuses, but the devastating quick-firing rifles of the Australians!
 
-At the first shot, Chang Qingyun instinctively dropped into a crouch. From the nearby hillside came a man's voice, amplified so loud everyone could hear:
+At the first shot, Chang Qingyun instinctively dropped into a defensive crouch. From the nearby hillside came a man's voice, amplified to thunderous volume so everyone could hear:
 
-"All Ming soldiers and civilians, hear this! The Fubo Army of the Great Song has surrounded you. Further resistance is futile..."
+"All Ming soldiers and civilians, heed this proclamation! The Fubo Army of the Great Song has surrounded your position. Further resistance is utterly futile..."
 
-"Damn it all—follow me, we'll fight our way out!" The soldier who had confronted Chang Qingyun swung his saber and rallied the scattered troops to charge.
+"Damn them all—follow me, we'll cut our way through!" The soldier who had menaced Chang Qingyun swung his saber overhead and rallied the scattered troops to charge the hillside.
 
-"Whoosh—thunk." A bloody hole exploded from the man's chest; he fell backward in slow motion, landing beside Changshan's corpse.
+A distinct "whoosh—thunk" sounded. A bloody crater exploded from the man's chest cavity; he toppled backward in slow motion, landing adjacent to Changshan's corpse.
 
-Everyone within several hundred meters froze.
+Everyone within several hundred meters froze motionless.
 
-The voice continued: "...Your resistance is futile. Throw all your weapons on the ground, clasp your hands over your heads, and squat down! The Fubo Army of the Great Song shows mercy to the good and treats prisoners humanely..."
+The amplified voice continued inexorably: "...Your resistance is futile. Discard all weapons upon the ground, clasp hands atop your heads, and assume squatting positions! The Fubo Army of the Great Song displays mercy toward the virtuous and treats prisoners with humanity..."
 
-Clang—a saber clattered to the ground. Then came a chorus of weapons hitting the dirt.
+Clang—a saber clattered to earth. Then erupted a cascading chorus of weapons striking dirt.
 
-All resistance collapsed. No one wanted to test the marksmanship of the Hair-Bandit sharpshooters. Several hundred people squatted in a great mass. Chang Qingyun peeked up and saw ten or so soldiers in short blue tunics descending the slope, each cradling a quick-firing gun fitted with a short blade.
+All resistance evaporated instantaneously. No one possessed any inclination to test the marksmanship of Australian sharpshooters. Several hundred individuals squatted en masse. Chang Qingyun ventured a covert upward glance and observed approximately ten soldiers in short blue tunics descending the slope, each cradling a quick-firing rifle fitted with its characteristic short blade.
 
-"Have I... been caught again?" Chang Qingyun felt dazed.
+"Have I... been captured again?" Chang Qingyun felt consciousness swimming.
 
-What followed was a "familiar routine." First, a dozen Hair-Bandit soldiers spread out along both sides of the road, each crouching with guns still raised—what he knew to be "securing the area."
+What followed constituted a "disturbingly familiar routine." First, a dozen Australian soldiers dispersed along both flanks of the roadway, each crouching with rifles still raised—what he recognized as "securing the perimeter."
 
-Two more Hair-Bandits stood on the high ground, directing thirty or forty soldiers to herd the crowd together and begin organizing them. By Chang Qingyun's estimate, there were perhaps five or six hundred people captured alongside him. The soldiers worked in squads of seven or eight, holding their bayoneted rifles, torches lit, dividing the mass of people into small groups. Despite their numbers, the captives didn't dare resist—not a cough among them.
+Two additional Australians stood upon the high ground, directing thirty or forty soldiers to consolidate the crowd and commence systematic organization. By Chang Qingyun's reckoning, perhaps five to six hundred individuals had been captured alongside him. The soldiers operated in squads of seven or eight, wielding bayoneted rifles, torches blazing, methodically dividing the mass of prisoners into manageable groups. Despite their overwhelming numbers, the captives dared not resist—not even a stifled cough among them.
 
-An officer on the high ground pulled out a megaphone and shouted in both Cantonese and Mandarin, over and over: "All women and children, stand up! All men, stay squatting! Anyone who moves without permission—don't blame the bullets for not having eyes."
+An officer positioned on the elevated ground extracted a megaphone and bellowed in both Cantonese and Mandarin, repeating continuously: "All women and children, stand immediately! All men, maintain squatting positions! Anyone moving without express permission—don't fault the bullets for possessing no eyes."
 
-After repeating this several times, the mass of squatting people began to stir. First a few, then most of the women stood up. The soldiers paid no heed to propriety—they dragged the ones who hesitated to their feet. A few men from wealthy households tried to shield their womenfolk, but one look at the bayonets and they hurriedly squatted back down. All thewoman and children below waist height were grouped in tens, bound by the right arm with rope, and led to the roadside in strings. The women began to weep; the men squatting on the ground joined in with their own wails.
+After multiple iterations, the mass of squatting prisoners began stirring uncertainly. Initially a few, then progressively most women rose to their feet. The soldiers demonstrated zero concern for propriety—they physically hauled hesitant ones upright. Several men from prosperous households attempted shielding their womenfolk, but one glance at the menacing bayonets prompted them to squat hastily back down. All women and children below waist height were assembled in groups of ten, bound by their right arms with rope, and led away in connected chains toward the roadside. The women commenced weeping; the men squatting on the ground joined their lamentation.
 
-"The rest of you—civilians, stand up! Soldiers, stay squatting!" the officer shouted again. This time a large crowd stood. Chang Qingyun thought: I'm a scholar, not wearing a military tunic—so he stood up too. This time, the soldiers were clearly more cautious, standing outside the group with bayoneted rifles. "Come out one by one!"
+"The remainder—civilians, stand! Soldiers, maintain squatting positions!" the officer bellowed again. This time a substantial crowd rose. Chang Qingyun calculated: I'm a scholar, not wearing military uniform—and stood accordingly. This time, the soldiers exhibited markedly greater caution, positioning themselves outside the group wielding bayoneted rifles. "Emerge singly!"
 
-The men were also bound in groups of ten and led to the opposite side of the road. Pleas for mercy rose on all sides; some who looked like wealthy merchants were clearly trying to curry favor, pulling out silver and calling cards: "Sir, sir—my family does business with the Austr—ah, with the Great Song, in Guangzhou. The chiefs know my house's name..." The soldiers remained stone-faced, accepting neither silver nor words. They left everyone's belongings alone, letting each person carry their own.
+The men were likewise bound in groups of ten and led to the opposite roadside. Pleas for mercy arose from all directions; some who clearly appeared to be wealthy merchants were transparently attempting to curry favor, extracting silver ingots and calling cards: "Sir, sir—my family conducts commercial ventures with the Austr—ah, with the Great Song, in Guangzhou. The chiefs recognize my household's reputation..." The soldiers remained stone-faced, accepting neither silver nor entreaties. They left everyone's personal belongings undisturbed, permitting each person to retain their possessions.
 
-The remaining Ming soldiers numbered only about fifty—some bare-chested with tunics slung over their shoulders, some in armor. By the torchlight, Chang Qingyun could make out four or five different units' insignia. These were apparently the ones who had decided not to risk their luck "striking it rich" inside the city.
+The remaining Ming soldiers numbered merely approximately fifty souls—some bare-chested with tunics slung across shoulders, some still wearing armor. By torchlight, Chang Qingyun could distinguish insignia from four or five distinct military units. These apparently represented those who had declined risking their fortunes "striking it rich" within the doomed city.
 
-The discarded swords, spears, and matchlocks littered the ground. The soldiers didn't bother sorting them; they simply tied up all the prisoners together and held them separately.
+The discarded swords, spears, and matchlock firearms littered the ground in chaotic profusion. The soldiers didn't bother sorting the weaponry; they simply bound all military prisoners together and segregated them separately.
 
-"Everyone, calm down. The Fubo Army does not oppress the good or harm prisoners. Women and children will be released as soon as the fighting ends. Except for soldiers, all other civilians will be released after we finish our investigation." Halfway through, a crisp cannon shot suddenly echoed from the direction of Wuzhou city; the crowd flinched.
+"Everyone, compose yourselves. The Fubo Army does not oppress the innocent or brutalize prisoners. Women and children will be liberated immediately upon conclusion of hostilities. Excepting active soldiers, all other civilians will be released following completion of our investigation." Midway through this proclamation, a crisp cannon shot suddenly echoed from Wuzhou city's direction; the crowd collectively flinched.
 
-"Don't be afraid," the officer said, grinning. "That's the Fubo Army's victory signal. By tomorrow morning, Wuzhou city will be back in the hands of the Council of Elders of the Great Song. Everyone will be able to go home soon! As for tonight, I'm afraid you'll have to bear with us for a bit."
+"No cause for alarm," the officer announced, grinning broadly. "That constitutes the Fubo Army's victory signal. By tomorrow morning, Wuzhou city will have returned to the governance of the Council of Elders of the Great Song. Everyone will be permitted homeward shortly! As for tonight, I fear you must exercise patience momentarily."
 
-The bound prisoners whispered among themselves, but no one dared speak aloud. Keeping their lives was already the best of luck—no one dared hope for more.
+The bound prisoners exchanged whispered speculation, but no one dared vocalize openly. Preserving their lives already constituted extraordinary fortune—no one presumed to hope for additional mercy.
 
-"Good thing I'm in the civilian queue," Chang Qingyun thought. "Who knows where the soldiers will be sent for hard labor." He was tied behind a porter, whose greasy back pressed against his chest, making him queasy. He could only close his eyes and endure.
+"Fortune favors me being classified among the civilian contingent," Chang Qingyun reflected internally. "Heaven knows where the military prisoners will be dispatched for forced labor." He found himself bound behind a common porter, whose greasy, malodorous back pressed against his chest, inducing queasiness. He could only seal his eyes and endure the discomfort.
 
-Suddenly, shouting broke out among a group of newly captured soldiers.
+Suddenly, shouting erupted among a group of newly apprehended soldiers.
 
-"Sir! There's an official over here!"
+"Sir! There's an official concealed here!"
 
-Chang Qingyun started and opened his eyes. The soldiers were pointing at him—he vaguely recognized them as men from Xiong Wencan's standard battalion.
+Chang Qingyun started violently and opened his eyes. The soldiers were gesturing directly at him—he vaguely recognized them as men from Xiong Wencan's standard battalion.
 
-It's over! Before Chang Qingyun could shrink back, two soldiers had seized him and dragged him before the officers.
+Catastrophe! Before Chang Qingyun could shrink back defensively, two soldiers had already seized him and dragged him before the commanding officers.
 
-Both officers were naturalized locals, speaking official Mandarin with a Qiongzhou accent. "You're a Ming official?"
+Both officers were naturalized local recruits, speaking official Mandarin inflected with distinct Qiongzhou accents. "You claim to be a Ming official?"
 
-"No, no—those soldier-scoundrels are lying! Just now they tried to rob me and killed one of my servants. They're trying to frame me—please investigate, Chief..."
+"No, no—those soldier-scoundrels fabricate malicious lies! Moments ago they attempted robbing me and murdered one of my servants. They're manufacturing false accusations against me—please investigate thoroughly, Chief..."
 
-But the soldiers raised a clamor:
+But the soldiers raised a clamorous outcry:
 
-"Sir! Don't listen to his nonsense! He's Xiong Wencan's staff officer!"
+"Sir! Don't credit his deceptions! He's Xiong Wencan's personal staff adviser!"
 
-"He was always with Xiong Wencan—Xiong Wencan did everything he said!"
+"He maintained constant proximity to Xiong Wencan—Xiong Wencan implemented everything this man proposed!"
 
 ...
 
-Chang Qingyun's face went white; he kept protesting.
+Chang Qingyun's complexion drained to ashen white; he continued protesting desperately.
 
-"Oh? Then what are you?"
+"Indeed? Then what profession do you practice?"
 
-"I'm a merchant—a cloth merchant."
+"I'm a merchant—a cloth trader."
 
-"If you're a cloth merchant, how much does a foot of Songjiang cotton cost? A foot of watered silk? A foot of Shandong homespun? If I want three feet of Songjiang cotton, five feet of watered silk, and six feet of homespun, how much altogether?" the officer asked.
+"If you genuinely trade in cloth, state the price per foot of Songjiang cotton? Per foot of watered silk? Per foot of Shandong homespun? If I require three feet of Songjiang cotton, five feet of watered silk, and six feet of homespun, calculate the total cost?" the officer demanded.
 
-"I..." Chang Qingyun never concerned himself with household expenses at home—how would he know cloth prices? But Changqing was the one who handled shopping; he would surely know. "Sir, I have a servant here—" He turned to look for Changqing. "Sir, if you please..."
+"I..." Chang Qingyun never concerned himself with trivial household expenditures at home—how would he possibly know fabric prices? But Changqing handled all household purchasing; he would certainly know. "Sir, I have a servant present here—" He pivoted searching for Changqing. "Sir, if you would permit..."
 
-Changqing, having no guile, saw his master brought before the officers and looking back for him; he thought his master had made a connection. Excitedly, he waved: "Master! Master!"
+Changqing, possessing no capacity for guile or deception, observed his master brought before the officers and glancing back seeking him; he assumed his master had established advantageous connections. Excitedly, he waved enthusiastically: "Master! Master!"
 
-He was brought before another officer. "What business does your master do?"
+He was brought before another officer. "What profession does your master practice?"
 
-Seeing the officer's pleasant expression, Changqing relaxed considerably. "My master is a provincial graduate—how could he do business?"
+Observing the officer's pleasant demeanor, Changqing relaxed considerably. "My master is a provincial graduate scholar—how could he possibly engage in commercial trade?"
 
-Realizing he had slipped, both officers exchanged smiles.
+Realizing his catastrophic verbal slip instantly, both officers exchanged knowing smiles.
 
-"Men—take them both to the prisoner group! One at the front, one at the rear."
+"Men—escort them both to the military prisoner group! Position one at the formation's front, the other at the rear."
 
-Chang Qingyun cried "Injustice!" but no one paid him any mind. He was dragged to the prisoner group and tied together with the very soldiers who had denounced him.
+Chang Qingyun cried "Injustice!" repeatedly but no one showed the slightest attention. He was dragged to the prisoner column and bound together with the very soldiers who had denounced him.
 
-At a command, the prisoner column moved out first. Escorting soldiers marched ahead with torches; firelight glinted off their bayonets. Chang Qingyun's heart went cold—he wasn't like these common soldiers; he had a "record." If the Hair-Bandits recognized him, this "second arrest" might well cost him his life!
+At a sharp command, the prisoner column moved out  first. Escorting soldiers marched ahead bearing torches; firelight glinted menacingly off their bayonets. Chang Qingyun's heart went frigid—he wasn't comparable to these common foot soldiers; he possessed a documented "criminal record." If the Australians recognized his identity, this "second capture" might very well cost him his life!
 
-At the thought, his stomach lurched. He couldn't help looking around for a chance to escape. Before the guards could even scold him, the soldiers who had "exposed" him had already hissed at him:
+At that terrifying thought, his stomach lurched violently. He couldn't suppress glancing around desperately for any escape opportunity. Before the guards could even issue reprimands, the soldiers who had "exposed" him had already hissed venomously at him:
 
-"Hold still! You bookworm!"
+"Hold absolutely still! You pampered bookworm!"
 
 *(End of Chapter)*

@@ -1,99 +1,103 @@
 # Chapter 2124 - A Mess
 
-"Oh." Zhu Quanxing glanced at his watch—it was nearly noon. These worthies had been waiting three or four hours. Though he had no fondness for them, he still needed to make use of them. After all, the local notables knew the situation best and controlled the most social resources. In particular, the Rice Merchants' Guild—he had high hopes for them.
+"Ah." Zhu Quanxing checked his watch—nearly noon. The worthies had been cooling their heels for three or four hours. He felt no particular warmth toward them, but he needed their cooperation. Local notables knew the terrain best and controlled the bulk of social resources. The Rice Merchants' Guild in particular—he had considerable expectations for them.
 
 "Show them in."
 
-Leading the "delegation of worthies" was none other than Luo Yangming. By his cover rules, he couldn't reveal his identity; he had to wait for his "superiors" to initiate contact.
+Leading the "delegation of worthies" was none other than Luo Yangming. Cover protocols dictated he couldn't reveal his identity—he had to wait for his "superiors" to make contact first.
 
-At this moment, he bore a "grave responsibility." His document wallet held not only the gift list but also the "agency authorization certificate" that Dachang Rice Company had issued him—really just a commercial partnership credential. But the "worthies" believed this was an official "license" from the Australians, a way to make connections.
+At this moment, he carried a weighty responsibility. His document wallet contained not only the gift list but also the "agency authorization certificate" Dachang Rice Company had issued him—in reality, merely a commercial partnership credential. But the "worthies" assumed this constituted an official "license" from the Australians, a pathway to influence.
 
-The worthies of Wuzhou knew little about the Council of Elders, though they had heard assorted rumors. The Fubo Army's conduct upon entering the city had confirmed what they'd heard, so their mood was no longer as anxious as it had been that morning. Though the biggest magnates hadn't dared come in person, all the major households—including gentry who had fled to the countryside—had sent representatives, at least a close relative.
+Wuzhou's worthies knew precious little about the Council of Elders, though they'd heard scattered rumors. The Fubo Army's orderly conduct upon entering the city had confirmed much of what they'd heard, so their anxiety had subsided considerably since morning. Though the wealthiest magnates hadn't dared appear personally, every major household—including gentry who had fled to the countryside—had sent representatives, at minimum a close relative.
 
-Luo Yangming knew what the worthies most urgently wanted to learn: first, whether the Council of Elders intended to stay in Wuzhou; second, if so, what price they would have to pay.
+Luo Yangming understood precisely what the worthies most urgently needed to know: first, whether the Council of Elders intended to remain in Wuzhou; second, if so, what price that would exact.
 
-The first point seemed beyond doubt. The Australians had come in force; they couldn't just fight and leave. Anyone with a sense of geography understood Wuzhou's importance. So they were more concerned about the second point.
+The first point seemed self-evident. The Australians had come in force—they wouldn't simply fight and withdraw. Anyone with geographic awareness grasped Wuzhou's strategic significance. The second point was what truly concerned them.
 
-Since ancient times, whenever guest troops arrived, local magnates had to pay tribute—an iron rule. A few years ago, when Governor-General Wang's punitive expedition against the Hair-Bandits had ended in defeat, all Guangdong had panicked. Quite a few Guangxi troops had been summoned as reinforcements, and Wuzhou had been thrown into chaos. As for the recent guest troops invited by Governor-General Xiong—they had been ready to wipe Wuzhou out entirely.
+Since time immemorial, when visiting armies arrived, local magnates rendered tribute—an iron law of survival. A few years past, when Governor-General Wang's punitive expedition against the Hair-Bandits had collapsed in defeat, panic had swept all Guangdong. Numerous Guangxi reinforcements had been summoned, throwing Wuzhou into turmoil. As for the recent forces invited by Governor-General Xiong—they'd been prepared to reduce Wuzhou to ashes.
 
-Now the Australians had come. No matter how good their discipline, the wealthy still needed to show proper deference. The magnates didn't know how large the Australians' appetite might be, or how they distinguished "public" from "private." Though a gift list and an army reward checklist had been drawn up, no one knew whether the Australians would be satisfied. They were nervous, fearing the Australian general might turn hostile and have them strung up—they had heard plenty of such stories.
+Now the Australians had arrived. However exemplary their discipline, the wealthy still needed to demonstrate appropriate deference. The magnates had no gauge for the Australians' appetite, nor how they distinguished "public requisition" from "private extraction." Though gift lists and army reward schedules had been prepared, no one knew whether the Australians would find them satisfactory. They were nervous, fearing the Australian commander might turn hostile and have them all hanged—such tales were commonplace.
 
-Zhu Quanxing received Luo Yangming and his delegation, offered the customary reassurances about their safety and property, and directed the naturalized vice director of the Wuzhou Military Government to negotiate with them. He announced the establishment of a "Relief Bureau" and asked the worthies to "contribute money and effort"—all this was expected, and everyone agreed.
+Zhu Quanxing received Luo Yangming and his delegation, offered the standard reassurances regarding their safety and property, and directed the naturalized vice director of the Wuzhou Military Government to negotiate specifics. He announced establishment of a "Relief Bureau" and requested the worthies "contribute funds and effort"—all precisely as expected, and everyone dutifully agreed.
 
-"I won't waste words," Zhu Quanxing said. His chief concern was the grain problem. "Wuzhou has suffered warfare; there's much damage in the city. Many civilians are homeless and need shelter repairs as soon as possible. Refugees affected by the fighting need relief as well—please lend your full support. In addition, our army requires provisions. The summer and autumn taxes haven't come due yet, and most common folk have barely enough for themselves. The 'reasonable burden' will have to fall on you gentlemen."
+"I won't mince words," Zhu Quanxing said. His primary concern was grain. "Wuzhou has endured warfare. The city has suffered extensive damage. Numerous civilians lack shelter and require immediate housing repairs. Refugees displaced by the fighting require relief—please extend your full support. Additionally, our army requires provisions. Summer and autumn taxes aren't yet due, and most common folk have barely enough to feed themselves. The 'reasonable burden' must therefore fall on you gentlemen."
 
-Money and grain—this was expected and surprised no one. Someone immediately began pleading hardship.
+Money and grain—entirely predictable, surprising no one. Someone immediately began pleading poverty.
 
-"Silver we can scrape together; it's not too hard. But grain... that's truly difficult..."
+"Silver we can manage to scrape together—that's not insurmountable. But grain... that presents genuine difficulty..."
 
-The speaker was one Da Xinxuan, who owned a rice shop in Wuzhou. But behind this shop stood the Wu family, one of the city's prominent gentry clans. Da Xinxuan came with a certain confidence—because the young master of the Wu family had dealt with the Australians years ago and was reportedly friends with Boss Guo of Guangzhou, having done several "big deals" together.
+The speaker was Da Xinxuan, proprietor of a rice shop in Wuzhou. Behind his operation stood the Wu family, one of the city's prominent gentry clans. Da Xinxuan came armed with certain confidence—the Wu family's young master had conducted business with the Australians years previously and was reportedly on friendly terms with Boss Guo of Guangzhou, having concluded several "substantial deals" together.
 
-Supposedly, the Australians were fond of old connections; those who had done them service wouldn't suffer. So he was the first to cry poverty.
+Supposedly, the Australians valued old relationships—those who had rendered them service would not suffer. Thus emboldened, he was first to cry poverty.
 
-Da Xinxuan lamented that the city had once held substantial grain stores—conservatively, the various rice merchants' warehouses held thirty or forty thousand *shi*. But ever since Governor-General Xiong arrived in Wuzhou, what with feeding men and horses and the frantic shipments to Guangxi, more than half the reserves were gone. The past few days of fighting had meant burning and looting, and every rice merchant had suffered heavily. His own shop was down to only four or five hundred *shi*.
+Da Xinxuan lamented that the city had once possessed substantial grain reserves—conservatively estimate, the various rice merchants' warehouses had held thirty to forty thousand *shi*. But from the moment Governor-General Xiong arrived in Wuzhou, what with provisioning men and horses and frantic shipments westward into Guangxi, over half those reserves had vanished. The recent days of combat had brought burning and looting; every rice merchant had suffered catastrophically. His own establishment retained a mere four to five hundred *shi*.
 
-"...I'm actually one of the better off. Some smaller merchants have had their warehouses stripped bare."
+"...I'm actually among the fortunate. Some smaller merchants have seen their warehouses stripped completely bare."
 
-Luo Yangming knew this account, though partly "pleading poverty," wasn't entirely false. The rice merchants had suffered terribly—his own shop hadn't been left a single grain by the soldiers.
+Luo Yangming knew this account, though calculated to elicit sympathy, wasn't entirely fabricated. The rice merchants had indeed suffered grievously—marauding soldiers had emptied his own shop to the last grain.
 
-So he cleared his throat and added: "Chief, the local rice trade has indeed suffered devastating losses. We will certainly do our best to contribute our 'reasonable burden,' but we beg your indulgence on the timing and amounts."
+He cleared his throat and interjected: "Chief, the local rice trade has truly sustained devastating losses. We will naturally exert every effort to shoulder our 'reasonable burden,' but we respectfully request your indulgence regarding timing and quantities."
 
-Zhu Quanxing nodded. "Discuss the details with the vice director. For now, provide a hundred *shi* of rice immediately to set up porridge stations for the refugees."
+Zhu Quanxing nodded curtly. "Discuss specifics with the vice director. For immediate purposes, provide one hundred *shi* of rice to establish porridge stations for the refugees."
 
-"Yes, yes—the porridge stations were already in operation; we'll have them running again at once."
+"Certainly, certainly—the porridge stations were already operational; we'll have them running again immediately."
 
-Grain inside the city really was scarce. Not only had the merchants' warehouses been depleted; the prefectural and county granaries and the civilian Ever-Normal Granaries were nearly empty too. The logistics officers' preliminary count put seized grain at less than four thousand *shi*, some of it damaged by fire, smoke, or water.
+---
 
-"It seems Old Xiong really did leave us a mess," Zhu Mingxia sighed upon receiving the first post-takeover report.
+Grain within the city was genuinely scarce. Not only had merchant warehouses been depleted—the prefectural and county official granaries and civilian Ever-Normal Granaries stood nearly empty as well. The logistics officers' preliminary inventory tallied seized grain at under four thousand *shi*, portions of it damaged by fire, smoke, or water.
 
-Right now, they had to both gather grain and provide relief. Just the civilians rendered homeless by the urban unrest numbered several hundred households—several thousand people. During the expulsion of civilians, many shops and homes had been ransacked by soldiers and criminals; these victims also urgently needed aid. A rough count showed over twenty thousand people in need of relief.
+"It appears Old Xiong truly left us a disaster," Zhu Mingxia sighed upon receiving the initial post-occupation assessment.
 
-Xu Ke had already gone into the city to "investigate." First, he was supervising prisoner interrogations to see if there was any valuable intelligence. Second, he had to make contact with "Lone Wolf." Apart from needing detailed intelligence on Wuzhou, he was quite curious about this operative who had passed along critical information and swayed a significant portion of the city's powerbrokers.
+At present, they faced dual imperatives: procuring grain while simultaneously providing relief. Civilians rendered homeless by urban chaos alone numbered several hundred households—several thousand individuals. During the forced civilian evacuation, numerous shops and residences had been pillaged by soldiers and opportunistic criminals; these victims urgently required assistance as well. Rough estimates indicated over twenty thousand people requiring relief.
 
-Chang Qingyun and fifty-odd others were being held in the barbican. Their ropes hadn't been removed, and no one gave him special treatment just because he looked like a gentleman. The gate stood wide open, bustling with traffic; the soldiers coming and going, whether running about or standing guard, were all neatly dressed and smartly turned out.
+Xu Ke had already entered the city to "investigate." First priority was supervising prisoner interrogations for actionable intelligence. Second, he needed to establish contact with "Lone Wolf." Beyond requiring detailed intelligence on Wuzhou's current state, he was intensely curious about this operative who had delivered critical information and persuaded a significant fraction of the city's power brokers to collaborate.
 
-"Two years apart, and the Hair-Bandits have grown this strong!" Chang Qingyun sighed.
+---
 
-The prisoners were untied one by one, each taken to a small room at the base of the wall for questioning. Most came out and were held separately; a few emerged beaming and were allowed into the city.
+Chang Qingyun and fifty-odd companions were detained in the barbican. Their bonds remained in place, and no one accorded him differential treatment despite his gentlemanly appearance. The gate stood wide open, thronging with traffic. Soldiers passing through, whether hurrying on errands or standing sentry, all appeared neatly uniformed and smartly disciplined.
 
-Sitting at the foot of the wall, Chang Qingyun was deeply unhappy. Everyone knew that falling into Hair-Bandit hands at least meant no fear for one's life, but a stream of various Australians kept pointing at them, and the Guangxi soldiers tied up alongside him kept shooting him hostile glances—it all made him uneasy.
+"Two years separated, and the Hair-Bandits have grown this formidable!" Chang Qingyun muttered.
 
-Changqing had gone into the little room quite a while ago and hadn't come out. Chang Qingyun was wondering what was happening when suddenly a passerby shouted: "That's Chang Qingyun! He's the one who wanted to burn down the city!"
+Prisoners were unbound individually and escorted one by one to a small chamber at the wall's base for interrogation. Most emerged and were segregated for continued detention; a handful came out beaming and were permitted entry into the city.
 
-A yamen clerk from the prefectural office had recognized him. This clerk owned considerable property in Wuzhou and had been in a panic ever since hearing that Governor Xiong meant to burn the city. Once the Fubo Army took over, he had promptly sided with Australia-Song and was now guiding Australians in inventorying the Wuzhou granaries. His shout drew dozens of people, shouting "Kill him!" "Burn him!" "Xiong Wencan's lackey!" Suddenly spit, mud, and charred debris were flying at Chang Qingyun.
+Seated at the wall's foot, Chang Qingyun simmered with discontent. Common knowledge held that falling into Hair-Bandit custody at least meant one's life was secure, yet a steady stream of passing Australians kept pointing at the prisoners, and the Guangxi soldiers bound alongside him kept shooting him venomous glares—none of which eased his mind.
 
-"Break it up! Break it up!" Fubo Army soldiers quickly dispersed the crowd; two grabbed Chang Qingyun by the arms and hauled him into the little room.
+Changqing had entered that small chamber quite some time ago without emerging. Chang Qingyun was still wondering what delayed him when suddenly a passerby's voice rang out: "That's Chang Qingyun! He's the one who wanted to burn down the city!"
 
-Chang Qingyun had taken a brick fragment to the forehead and was still dazed when he was pushed down onto a bamboo chair.
+A yamen clerk from the prefectural office had recognized him. This clerk owned considerable property in Wuzhou and had lived in terror from the moment he'd heard Governor Xiong intended to torch the city. Once the Fubo Army seized control, he'd promptly aligned himself with Australia-Song and was now guiding Australians through inventories of Wuzhou's granaries. His shout drew dozens of onlookers who began bellowing "Kill him!" "Burn him!" "Xiong Wencan's lapdog!" Suddenly spit, mud, and charred wood fragments were pelting Chang Qingyun.
 
-He steadied himself and looked up. Behind the desk sat three men. Two were young and clearly naturalized locals in uniforms—not real Australians. The third sat slightly back, face hidden in shadow.
+"Disperse! Clear out!" Fubo Army soldiers swiftly scattered the mob. Two seized Chang Qingyun by the arms and hauled him into the interrogation chamber.
 
-"Name?" asked one of the young men.
+Chang Qingyun had taken a brick fragment to the forehead and remained dazed as he was shoved down onto a bamboo chair.
 
-"Your humble servant is Chang Qingyun."
+He steadied himself and looked up. Three men sat behind the desk. Two were young, clearly naturalized locals in uniform—not genuine Australians. The third sat somewhat back, his features obscured in shadow.
 
-"You were Xiong Wencan's staff officer?"
+"Name?" demanded one of the young men.
 
-"Yes, I served in Governor Xiong's staff."
+"This humble one is Chang Qingyun."
 
-"Was the plan to burn Wuzhou your idea?"
+"You served as Xiong Wencan's staff officer?"
 
-"No. This is slander by treacherous people. I beg your honor to investigate." Chang Qingyun knew he absolutely could not admit to this; otherwise, to win popular support, the Australians would certainly punish him severely—possibly hang him outright. "The idea came from Chang Pu, the Enping County Magistrate. It had nothing to do with me."
+"Yes, I was attached to Governor Xiong's staff."
 
-"Whether it was your idea, we will certainly find out. We suggest you confess voluntarily and seek lenient treatment."
+"Was the plan to burn Wuzhou your conception?"
 
-"It truly was not my doing. Heaven is my witness!" Chang Qingyun knew the Australians didn't fabricate charges or arbitrarily borrow heads; he felt somewhat reassured.
+"No. This constitutes slander by malicious individuals. I beseech your honor to investigate." Chang Qingyun understood he absolutely could not admit such culpability. Otherwise, to curry popular favor, the Australians would certainly mete out severe punishment—perhaps summary execution. "The scheme originated with Chang Pu, the Enping County Magistrate. It bore no connection to me."
 
-"Do you know where Xiong Wencan went?"
+"Whether the plan was yours, we shall certainly determine. We recommend you confess voluntarily and seek lenient treatment."
 
-"I do not know." Chang Qingyun thought this sounded too curt, so he added: "The day before your army entered the city, he disappeared. If he fled, it would be toward Tengxian, Rongxian, or thereabouts."
+"It truly was not my doing. Heaven itself bears witness!" Chang Qingyun knew the Australians didn't manufacture charges or casually execute prisoners for show. He took some reassurance from that.
 
-"Tell us what you know about the Ming garrison."
+"Do you know Xiong Wencan's whereabouts?"
 
-Chang Qingyun was puzzled—the defending troops had long since collapsed; what was there to say? But since they asked, he'd better answer honestly to avoid angering the Hair-Bandits.
+"I do not know." Chang Qingyun felt this sounded excessively terse, so he elaborated: "The day before your army entered the city, he vanished. If he fled, he would have gone toward Tengxian, Rongxian, or that general direction."
 
-Having been on the staff, he knew the various forces in detail. He recounted everything: the origins, affiliations, numbers, and officers of both local and guest troops.
+"Inform us of everything you know regarding the Ming garrison."
 
-"The Ming force that defended Bangshan—where did they come from? And who was their commander?"
+Chang Qingyun was puzzled—the defending forces had long since disintegrated; what remained to discuss? Yet since they'd asked, he'd best answer honestly to avoid provoking the Hair-Bandits.
+
+Having served on staff, he possessed detailed knowledge of the various military units. He recounted everything systematically: the origins, command structures, troop strengths, and officer rosters of both local garrison and visiting forces.
+
+"The Ming force that defended Bangshan—what were their origins? And who commanded them?"
 
 *(End of Chapter)*

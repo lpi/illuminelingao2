@@ -1,95 +1,95 @@
 # Chapter 2343 - Freshly Baked Nanyang Company (III)
 
-Brief delay is inadvisable; Nanyang Company has a thousand things waiting to be done. Logically should run a trip to Guangzhou immediately. But Guangzhou's Rat Plague epidemic hadn't been lifted yet; going to Guangzhou to raise shares at this moment was impossible.
+Delay was inadvisable; the Nanyang Company had a thousand tasks waiting. Logically, he should travel to Guangzhou immediately. But the Rat Plague quarantine hadn't been lifted yet—going there to raise shares at this moment was impossible.
 
-He thought again and again, deciding to send a telegram to several Senators in Guangzhou, informing about Nanyang Company establishment and intention to come to Guangzhou for share raising first. Letting them also have a preparation. He knew nothing about Guangzhou, inevitably needing these people to lead way and introduce.
+After much deliberation, he decided to send telegrams to several Senators in Guangzhou, informing them of the Nanyang Company's establishment and his intention to visit for fundraising. This would give them time to prepare. He knew nothing about Guangzhou's business circles and would inevitably need these people to make introductions.
 
-First telegram object naturally was Ai Zhixin; he was now Director of Guangzhou Finance and Tax Bureau, Number One in finance. To take money from Guangzhou must greet him. Second telegram sent to Meng Xian; wanting to raise shares, inevitably needing bank's support and cooperation. As for third one, was sent to Liu Xiang in Guangzhou—taking money on his one acre three cents land (turf), also had to greet.
+His first telegram went naturally to Ai Zhixin, now the Director of the Guangzhou Finance and Tax Bureau—the top finance official. Taking money out of Guangzhou required his blessing. The second telegram went to Meng Xian; raising shares inevitably required the bank's support and cooperation. The third went to Liu Xiang in Guangzhou—extracting money from his turf also demanded a proper greeting.
 
-Finishing drafting telegram handing to confidential clerk, Zhou Wei circled in an office on third floor of Customs Building.
+After handing the drafted telegrams to his confidential clerk, Zhou Wei paced around an office on the third floor of the Customs Building.
 
-This office was exactly where original Southeast Asia Company headquarters located. Ever since he collected key from General Office, he had been nestling here browsing Southeast Asia Company's operation archives.
+This office housed the original Southeast Asia Company headquarters. Ever since he'd collected his key from the General Office, he had been holed up here reviewing the Southeast Asia Company's operational archives.
 
-Third floor of Customs Building all belonged to Southeast Asia Company headquarters, area wasn't small, but third floor was actually attic. Roof ridge highest point only 2.2 meters, roof eaves lowest point only 1.8 meters. With Zhou Wei's height staying inside was more or less somewhat stifled. Let alone temperature of top floor in summer.
+The third floor of the Customs Building belonged entirely to the Southeast Asia Company headquarters. The space wasn't small, but this floor was actually an attic. The roof ridge at its highest point reached only 2.2 meters, dropping to just 1.8 meters at the eaves. At Zhou Wei's height, staying inside felt distinctly cramped—to say nothing of the temperature on a top floor in summer.
 
-*Must move company headquarters away before next summer.* Zhou Wei thought. *This place will definitely turn into large size steamer in summer.*
+*We must relocate the company headquarters before next summer,* Zhou Wei thought. *This place will turn into an oversized steamer.*
 
-Southeast Asia Company headquarters set here, imaginable this company's status in Senate mind.
+That the Southeast Asia Company headquarters was housed here spoke volumes about the company's standing in the Senate's eyes.
 
-Its staff were also very few. Naturalized cadres and clerks working in headquarters were less than twenty people. Nominal Chairman was Liu Xiang. Of course actually Liu Xiang and his big family were living small days collecting dividends in manor in Sanya, only collecting some "Carriage and Horse Fee" here. Specific person in charge was naturalized General Manager.
+Its staff was equally sparse. Fewer than twenty naturalized cadres and clerks worked at headquarters. The nominal Chairman was Liu Xiang—though in reality, Liu Xiang and his extended family were living comfortable lives collecting dividends at their manor in Sanya, merely pocketing a "carriage fee" here. The person actually in charge was the naturalized General Manager.
 
-Speaking of which shabby. Southeast Asia Company despite history not short, status in National Policy Enterprises wasn't high. According to rank only Second Class National Policy Company. Although Planning Academy held 51% shares, investment in Southeast Asia Company in these years was very little. Main assets were ships of various surrendering pirate leaders.
+By any measure, this was shabby. Despite a not-insignificant history, the Southeast Asia Company ranked low among National Policy Enterprises—only Second Class. Though the Planning Academy held 51% of shares, investment in the company over the years had been minimal. Its main assets were the ships contributed by various surrendered pirate leaders.
 
-When Zhou Wei worked in Finance Sector he read Southeast Asia Company's financial report; commenting on its performance could only use "Mediocre" to describe. Although Southeast Asia Company theoretically was a large shipping-trading company, its majority business adopted "Affiliation Mode" (Gua Kao).
+When Zhou Wei had worked in the Finance Sector, he'd read the Southeast Asia Company's financial reports. "Mediocre" was the only word to describe its performance. Though the Southeast Asia Company was theoretically a major shipping and trading company, the bulk of its business operated on an "Affiliation Model."
 
-After various big and small leaders surrendered, they "invested" with ships, affiliated under Southeast Asia Company banner, uniformly hanging Senate Merchant Flag and "Nine Segment Flag", then according to routes they were familiar with, operating shipping and trade business themselves. Of course, their fleet scale was drastically reduced. Crew were also uniformly deployed by Southeast Asia Company, instead of composed completely by own family members, clansmen and fellow villagers in the past.
+After various big and small pirate captains surrendered, they "invested" their ships, affiliating themselves under the Southeast Asia Company banner. They uniformly flew the Senate Merchant Flag and the "Nine Segment Flag," then operated shipping and trade businesses along the routes they knew best. Of course, their fleet sizes were drastically reduced, and crews were now uniformly deployed by the Southeast Asia Company rather than composed entirely of their own family members, clansmen, and fellow villagers as before.
 
-Naturally, this extensive operation mode couldn't bring too much profit. Although Southeast Asia Company's Affiliation Fee wasn't set low, all affiliates could share Southeast Asia Trade and Mainland Coastal Trade licenses. This was much cheaper than the price of 2000 Taels silver per flag in Zheng Zhilong era. And after company collected Affiliation Fee, bad sufficient force and consular protection ability for subordinate ships. Risk borne by ship owners reduced greatly.
+Naturally, this extensive operating model couldn't generate impressive profits. Though the Southeast Asia Company's affiliation fees weren't set low, all affiliates gained access to Southeast Asia Trade and Mainland Coastal Trade licenses. This was far cheaper than the two thousand taels per flag that Zheng Zhilong had charged in his era. And once the company collected its affiliation fees, it provided consular protection for its subordinate ships. The risk borne by ship owners dropped dramatically.
 
-Even if ship owners were too lazy to use brains on operation, solely undertaking shipping business could also guarantee sufficient profit every year. This shipping business came not only from Senate, but also from domestic and foreign merchants coming to Senate ruled area for purchasing.
+Even ship owners too lazy to put thought into operations could guarantee sufficient annual profit just by undertaking shipping contracts. This shipping business came not only from the Senate but also from domestic and foreign merchants who came to Senate-controlled territories to make purchases.
 
-Overall viewing, Southeast Asia Company profit limited, but foundation still not bad. At least not a mess. This more or less reassured Zhou Wei—because he hadn't seen Southeast Asia Company's detailed financial report for several years.
+Overall, the Southeast Asia Company's profits were limited, but its foundation remained sound. At the very least, things weren't a mess. This somewhat reassured Zhou Wei—since he hadn't examined the company's detailed financial reports for several years.
 
-No wonder this company's headquarters only had such small scale. Looking at asset situation again. Different from his expectation, Southeast Asia Company didn't have many ships. This greatly exceeded his expectation. Because when pirate gangs surrendered, every shopkeeper (captain) had three or four ships at least, many like huge bands like Liu Xiang, ships could reach as three to five hundred. He roughly estimated, ships under Southeast Asia Company name, at least should be six seven hundred above.
+No wonder the company's headquarters operated at such a modest scale. When he checked the asset situation, however, he found that the Southeast Asia Company owned far fewer ships than expected. This greatly exceeded his projections. When the pirate gangs had surrendered, each captain had possessed at least three or four ships, with major leaders like Liu Xiang commanding fleets of three to five hundred. By his rough estimate, ships under the Southeast Asia Company's name should have numbered at least six or seven hundred.
 
-However checking asset table today, discovered ships were far less than he imagined.
+But reviewing the asset table today, he discovered the actual count was far less than he'd imagined.
 
-Currently ships "affiliated" under Southeast Asia Company name were only 225, among which 182 were hired by "China Merchants Bureau", operating mainland coastal freight and trade freight to Japan, Korea. Truly running on Southeast Asia routes were only 43 ships.
+Currently, only 225 ships were "affiliated" under the Southeast Asia Company name. Of these, 182 were chartered by the "China Merchants Bureau," operating mainland coastal freight and trade routes to Japan and Korea. Only 43 ships actually ran Southeast Asian routes.
 
-Where did so many ships fleeing over initially go now? Zhou Wei was somewhat puzzled. He found the General Manager.
+Where had all those ships that had originally surrendered gone? Zhou Wei was puzzled. He summoned the General Manager.
 
-Southeast Asia Company General Manager was Wang You who served as accountant under Zhu Cailao initially, later mixed with Zheng Bao. After Zheng Bao was annihilated, because he "abandoned darkness for light" timely. After purification assigned to Southeast Asia Company to take office.
+The Southeast Asia Company's General Manager was Wang You, who had initially served as an accountant under Zhu Cailao before joining Zheng Bao's crew. When Zheng Bao was destroyed, he had "abandoned darkness for the light" at an opportune moment. After purification processing, he was assigned to the Southeast Asia Company.
 
-He mixed in pirate bandit gangs for many years, knew pirate habits and thoughts very well. Mixing in pirate group for many years, could also speak most dialects in pirate group. Key was over long term he was only a "Advisor" identity, frankly speaking just mixing a mouthful of rice to eat. Had no too much common interest with real pirate leaders. So from start listed as "Key Cultivation Object". Wang You was also a person knowing interest and understanding current affairs, naturally also "Actively demanding progress". So very quickly obtained Senator trust. Promoted repeatedly over several years. Wait til Senate digested Southeast Asia Company pirates about enough, Senator no longer concurrently served as this company General Manager, Wang You sat on the throne of General Manager.
+Having spent many years among pirate gangs, he understood pirate habits and mentality thoroughly. His years of immersion meant he could speak most of the dialects used within pirate circles. Crucially, he had always occupied an "advisor" role—frankly, just scraping together a living. He had no deep common interests with the real pirate leaders, so from the start he was listed as a "Key Cultivation Target." Wang You was also a man who understood his circumstances and knew which way the wind blew; naturally, he "actively sought progress." Promoted repeatedly over several years, once the Senate had sufficiently digested the Southeast Asia Company pirates and Senators no longer personally served as General Manager, Wang You ascended to the position.
 
-Zhou Wei taking office, this Wang You was somewhat uneasy. Not that he embezzled or took bribes etc—although Wang You wasn't flawless white jade in these years, didn't do anything excessive either, nothing more than exempting freight carrying some private goods reselling some non-controlled commodities.
+With Zhou Wei taking office, Wang You felt somewhat uneasy—not because of any embezzlement or bribery. Though Wang You hadn't been entirely spotless over the years, he hadn't done anything excessive either. Nothing more than exempting freight on some private goods or reselling non-controlled commodities on the side.
 
-What he worried more was what exactly it meant to suddenly re-appoint a Senator to arrive. Wang You knew, Senate didn't trust pirate surrenderers, especially pirates coming to surrender in groups in the past. Even more objects of key prevention and division. In the first few years of company establishment, he served under Senator, already witnessed various means of Senate dividing and disintegrating surrenderer forces. Now sudden re-appointment of Senator to be General Manager, even creating a "Nanyang Company", exactly what meaning?
+What worried him more was the meaning behind suddenly appointing a Senator to arrive. Wang You knew the Senate didn't trust surrendered pirates, especially those who had come over in large groups. They were targets for intensive prevention and division. In the company's early years, serving under a Senator, he had witnessed the Senate's various methods for dividing and disintegrating the surrenderers. Now, with a Senator suddenly appointed as General Manager and a "Nanyang Company" being created—what exactly did it mean?
 
-*Could it be someone in Southeast Asia Company old surrenderers "plotted unruliness", having some people unknowing death plotting conspiracy in dark?*
+*Could someone among the old Southeast Asia Company surrenderers be "plotting rebellion"? Were people he didn't know scheming in the shadows?*
 
-Thinking of here, hair on back of Wang You's neck stood up. If this really happened, wouldn't it mean sudden big imprisonment! He served as General Manager in this Southeast Asia Company for several years, at least would get a charge of "Negligence of Duty", maybe capped with hat of "Accomplice" or "Tacit Connivance", then small life not guaranteed...
+At this thought, the hair on the back of Wang You's neck stood on end. If this were truly happening, wouldn't it mean a sudden wave of mass imprisonments! Having served as General Manager of the Southeast Asia Company for several years, he would at minimum face charges of "Negligence of Duty"—or perhaps be labeled an "Accomplice" or accused of "Tacit Connivance." Then his life wouldn't be worth much...
 
-Hearing him ask about ship quantity matter, Wang You only then breathed a sigh of relief. Said: "Chief Zhou—"
+Hearing Zhou Wei ask about the ship numbers, Wang You finally let out a breath of relief. He said: "Chief Zhou—"
 
 "Call me General Manager."
 
-"General Manager." Wang You hurriedly corrected, "This matter is like this..."
+"General Manager." Wang You hastily corrected himself. "The situation is like this..."
 
-Turned out quantity of pirate ships surrendering to Senate was indeed very large. According to company receiving ledger, over years various pirate surrenderers hand over ships many hundreds, few one or two. Summarized up, total exceeded one thousand above.
+As it turned out, the number of pirate ships that had surrendered to the Senate was indeed enormous. According to the company's receiving ledger, various pirate surrenderers over the years had handed over ships numbering from hundreds down to just one or two. The total exceeded one thousand.
 
-But among this one thousand plus ships small ships occupied absolute majority, sixty percent above were single mast or double mast ships, small ships with load capacity only thirty forty tons. Such ships could also sail sea, but basically could only use on offshore coastal routes. Unable to go far sea. Even engaging in offshore shipping and trade was uneconomical.
+But among these thousand-plus ships, small vessels made up the overwhelming majority—over sixty percent were single-masted or double-masted ships with load capacities of only thirty to forty tons. Such vessels could technically sail at sea but were really only suitable for offshore coastal routes. They couldn't handle the open ocean. Even for coastal shipping and trade, they were uneconomical.
 
-So these small ships were eliminated very quickly. Remaining were all large medium ships.
+So these small ships were quickly phased out. Only the medium and large vessels remained.
 
-"...General Manager probably doesn't know, quality of these ships mostly bad, many were Material Ships..."
+"...General Manager probably doesn't know, but most of these ships were of poor quality. Many were what we call 'Material Ships'..."
 
-"What is called Material Ship?"
+"What's a Material Ship?"
 
-"Our sea merchants over Fujian side, all cut wood to build ship one year before going to ocean, ship not particular either, no matter workmanship or material usage all sloppy, even wood is wet wood..."
+"Our sea merchants over on the Fujian side would cut timber and build ships the year before going to sea. The ships weren't particular—workmanship and materials were both sloppy, and even the wood was unseasoned..."
 
-"Going to Nanyang to do business, using inferior ship, not afraid of death? Even if he himself doesn't go to sea adventure, cargo drifting away (lost) is also loss." Zhou Wei was very strange.
+"They're going to trade in Nanyang on shoddy ships without fearing death? Even if they don't go to sea themselves, losing cargo to shipwrecks is still a loss." Zhou Wei found this strange.
 
-"General Manager doesn't know, this kind of ship is all one-way. No matter go where. Arriving at locality then sell cargo. This ship is also demolished at locality selling as timber. After selling everything, take other sea ship back."
+"General Manager doesn't understand—these ships were all one-way vessels. Regardless of destination, upon arrival they'd sell the cargo. Then the ship itself would be dismantled and sold as lumber. After selling everything, they'd take other ships home."
 
-Zhou Wei was very puzzled about this. Shipbuilding was a high input investment. A good sea ship, cost could reach thousand taels silver, but once built, could use fifty years to hundred years. Why build this kind of "Disposable Ship"? Sea merchants weren't unable to afford this money. And since going to Nanyang trade every year, why spend effort to build new ship every year?
+Zhou Wei was thoroughly puzzled by this. Shipbuilding was a high-investment enterprise. A good seagoing vessel could cost a thousand taels of silver, but once built, it could serve for fifty to a hundred years. Why build these "disposable ships"? It wasn't as if the sea merchants couldn't afford proper ones. And if they traded in Nanyang annually, why go through the trouble of building new ships each year?
 
-*This matter is really strange!* Zhou Wei thought. *But since sea merchants do so, definitely there are certain reasons behind.*
+*This is truly strange!* Zhou Wei thought. *But since the sea merchants do this, there must be reasons behind it.*
 
-Wang You explained this kind of ship originally quality poor, drifting on sea for several years again, ship condition mostly very poor, so very quickly all eliminated.
+Wang You explained that these ships were originally of poor quality and had been floating at sea for several years afterward, so their condition had deteriorated severely. Thus they were eliminated quickly.
 
-Remaining, were all ships with larger tonnage, better ship condition. Actually among them some ships were new ships purchased in Hong Kong Shipyard by Southeast Asia Company shareholders and part of "Special Service Warships" eliminated from Navy. Ships truly brought by surrenderers weren't many.
+The remaining vessels were those with larger tonnage and better condition. Among them, some were actually new ships that Southeast Asia Company shareholders had purchased from Hong Kong Shipyard, plus some "Special Service Warships" retired from the Navy. Ships truly brought by the surrenderers weren't numerous.
 
-"Speaking so, now ship condition of Southeast Asia Company fleet is relatively good."
+"So the current condition of the Southeast Asia Company fleet is relatively good."
 
-"Yes." Wang You hurriedly nodded, "Operation rate is eighty percent above."
+"Yes." Wang You nodded quickly. "Operating rate is above eighty percent."
 
-Zhou Wei thought, ships hired by China Merchants Bureau were mostly small medium ships, having no big use to himself. His main capital was those 63 ships running Nanyang.
+Zhou Wei thought the ships chartered by the China Merchants Bureau were mostly small to medium vessels—not of great use to him. His main capital was those 43 ships running to Nanyang.
 
-"You make the ship owners of 63 ships currently running Nanyang route and their ship status, operation situation into a report—roughly need how many days?"
+"Prepare a report on the ship owners of the 43 ships currently running Nanyang routes, along with their vessel conditions and operational status—roughly how many days will you need?"
 
-"Three four days time."
+"Three to four days."
 
-"I give you five days time." Zhou Wei looked at calendar, "Material must be as detailed as possible!"
+"I'll give you five days." Zhou Wei glanced at the calendar. "Make the materials as detailed as possible!"
 
 **(End of Chapter)**

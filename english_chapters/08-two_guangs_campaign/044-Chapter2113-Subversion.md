@@ -1,101 +1,107 @@
 # Chapter 2113 - Subversion
 
-Watching the deepening dusk outside the window, Xiong Wencan summoned a servant.
+Watching the deepening dusk stain the sky beyond his window, Xiong Wencan summoned a servant with a subtle gesture.
 
 "Have all the advisors arrived?"
 
-"They are waiting in the garden."
+"They await you in the garden, my lord."
 
 "And the gentlemen?"
 
-"Also waiting in the back."
+"Also waiting, in the rear courtyard."
 
-"Mm." He nodded, stroked his beard, and glanced at his reflection in the Australian crystal mirror.
+"Mm." He stroked his beard thoughtfully and examined his reflection in the Australian crystal mirror—one of the few luxuries he had not yet consigned to the evacuation convoy.
 
-In the mirror, Xiong Wencan had shed his voluminous official robes and changed into military attire.
+The figure in the mirror had shed voluminous official robes in favor of military attire.
 
-He nodded slightly. Two servants immediately began to buckle on his armor—an ordinary set, only slightly finer than what a common soldier or household guard might wear.
+He inclined his head fractionally. Two servants immediately stepped forward to buckle on his armor—a deliberately ordinary set, barely finer than what a common household guardsman might wear. Nothing to distinguish a Governor-General from his retinue.
 
-Once dressed, he inclined his head. One servant immediately opened the door for him—without raising a lamp. Several others followed closely as he descended the steps.
+Once accoutered, he gave another slight nod. A servant opened the door without raising a lamp, and several attendants fell in behind him as he descended the stairs in near-darkness.
 
-At the foot of the stairs, a servant in a blue coat and small cap was already kneeling. Seeing him emerge, the man immediately kowtowed.
+At the foot of the stairwell, a figure in a blue coat and small cap knelt waiting. Seeing the Governor-General emerge from the shadows, the man immediately kowtowed.
 
-"Xiong Yi, I'm troubling you this time."
+"Xiong Yi, I must trouble you this time."
 
-"Master speaks too graciously. This servant will not fail the mission."
+"Your Excellency is too gracious. This servant will not fail his mission."
 
-"You only need to hold until dawn. After that, ask no questions of what follows. Find your own path to survival." Xiong Wencan's voice was low. "Your family will be provided for; they shall not go cold or hungry. If, after this battle is over, fate still binds us as master and servant, return to the old estate in Yongning Guard. Arrangements will be made for you there."
+"You need only hold until dawn. After that, ask no questions. Find your own path to survival." Xiong Wencan's voice carried barely above a whisper. "Your family will be provided for—they shall never know cold or hunger. If fate still binds us as master and servant after this storm has passed, return to the old estate at Yongning Guard. Arrangements await you there."
 
-Xiong Yi kowtowed again. Xiong Wencan said nothing more and led his retinue toward the rear.
+Xiong Yi kowtowed again, low and solemn. Xiong Wencan offered no further words and moved silently toward the rear courtyard, his retinue ghosting behind him.
 
-At the faint light of dawn, the staff officers who had spent the night in anxious unease had not received any summons. Instead, they had gathered on their own at the front hall of the yamen. Nearly all wore traveling clothes, ready to accompany the Governor-General in his breakout.
+---
 
-They more or less understood that the besieging Hair-Bandits were limited in number. Apart from controlling the key waterways of the Xi and Gui Rivers, their land blockade was incomplete. With enough men to provide cover and fast horses, breaking out was entirely feasible.
+At the faint blush of dawn, the staff officers who had passed a sleepless night in mounting anxiety gathered uninvited in the front hall of the yamen. Nearly all wore traveling garments, prepared to accompany the Governor-General in his breakout from the encircled city.
 
-Xiong Wencan's target was large, but as Governor-General of Guangdong and Guangxi, he had his central guard regiment and over a hundred household guards. When the time came, they could pile bodies if necessary to get him out. If they stuck close, their own chances of surviving the breakout were at least eighty or ninety percent.
+The calculation was straightforward. The besieging Hair-Bandits possessed limited manpower. Beyond their stranglehold on the Xi and Gui River waterways, their land blockade remained porous. With sufficient men to screen the escape and fast horses beneath them, breaking out was entirely feasible.
 
-Yet the Governor-General still hadn't appeared. Only his personal servant Xiong Yi showed up from time to time, issuing instructions to the underlings about preparing supplies.
+Xiong Wencan represented an obvious target, but as Governor-General of Guangdong and Guangxi he commanded his central guard regiment and over a hundred elite household troops. When the moment arrived, they could expend bodies like currency if necessary to secure his escape. Those who stayed close to his person could expect survival rates approaching ninety percent.
 
-If Xiong Yi was here, the Governor-General must be here too.
+Yet the Governor-General had not appeared. Only his personal servant Xiong Yi surfaced periodically, issuing crisp instructions to subordinates regarding supplies and provisions.
 
-Some who were on familiar terms with Xiong Yi quietly inquired after the Governor-General's "honored health." Xiong Yi's answer was: "The Master was deliberating strategy late into the night and talking with several of the advisors. He didn't retire until the fourth watch and is still sound asleep."
+If Xiong Yi remained here, the Governor-General must be here as well.
 
-The Prefect of Wuzhou and the Magistrate of Cangwu wore mournful expressions, doing their best to accommodate the various demands of the Governor-General's staff. Unlike the others, they couldn't run. Once the city fell, they would either take their own lives or "surrender to the Hair-Bandits."
+Several officers on familiar terms with Xiong Yi made discreet inquiries about the Governor-General's "honored health." Xiong Yi's answer never varied: "The Master deliberated strategy until late with several advisors. He did not retire until the fourth watch and remains soundly asleep."
 
-Per routine, the Governor-General's yamen served breakfast. The assembled officials were holding their teacups, chit-chatting and picking their teeth, when suddenly the rumble of artillery resumed outside. The staff officers and local officials waiting to see Xiong Wencan grew agitated—at a moment like this, was the Governor-General really still in bed, ignoring the cannon fire?
+The Prefect of Wuzhou and the Magistrate of Cangwu wore expressions of funeral solemnity as they accommodated the multiplying demands of the Governor-General's staff. Unlike the transient officials, they could not flee. When the city fell, they faced a choice between honorable suicide and the ignominy of "surrendering to Hair-Bandits."
 
-In a private residence within the city, Luo Yangming cocked his head to listen to the artillery, a faint smile playing at the corner of his lips.
+Following routine, the Governor-General's yamen served breakfast. The assembled officials sat nursing teacups, engaged in desultory conversation and picking teeth, when the rumble of artillery abruptly resumed outside the walls. The gathering of staff officers and local functionaries grew visibly agitated. At such a critical juncture, was the Governor-General truly still abed, oblivious to cannon fire?
 
-His wife, however, paced back and forth in the room, wringing her handkerchief in anxiety. Since the siege began, she hadn't applied makeup, and her hair was hastily pinned. Seeing the smile on her husband's face, Ding A'tao was convinced he was going mad.
+---
 
-A few days earlier, when the neighborhood heads had organized merchants to "reward the troops," it was supposed to be a simple matter of each household chipping in some silver. But her husband had not only contributed the silver, he had personally bought wine and meat and accompanied the neighborhood head up onto the walls to deliver the food and drink to the soldiers—spending several more taels in the process. This sort of sticking-your-neck-out-to-be-chopped behavior, then coming home with a smile, was the first time Ding A'tao felt her husband might be losing his mind.
+In a private residence elsewhere within the city, Luo Yangming tilted his head to listen to the distant artillery, a faint smile playing at the corner of his mouth.
 
-In recent days, he had also been consorting—for no apparent reason—with the head of the city's constable force. Ding A'tao had always kept her distance from such "official gate" types—they were all sharks who devoured people without spitting out the bones. In the past, her husband had maintained only enough contact with yamen personnel to ensure peaceful business dealings—cordial but not close. Now, through Wen Tietou's connections, he was sparing no expense to cultivate these people, handing out ten, twenty taels of pure silver. What was the point?
+His wife, by contrast, paced the chamber in visible distress, wringing her handkerchief until the fabric threatened to tear. Since the siege cordon had closed, she had abandoned cosmetics and pinned her hair with hasty, careless hands. Observing the smile ghosting across her husband's features, Ding A'tao had grown convinced he was descending into madness.
 
-This silver had been saved up over years, cent by cent. Watching her husband spend so freely made her heart ache.
+Several days earlier, when neighborhood heads had organized merchant "rewards" for the garrison troops—a simple matter of each household contributing modest silver—her husband had not merely donated the expected sum. He had personally purchased wine and meat, then accompanied the neighborhood head up onto the walls to distribute food and drink to the defenders, squandering several additional taels in the process. This sort of volunteer-to-be-butchered behavior, followed by his returning home with that peculiar smile, marked the first time Ding A'tao suspected her husband's mind might be fracturing.
 
-She had been raised on "three obediences and four virtues" and never dared interfere in her husband's affairs. But she truly couldn't see the necessity of any of this. If the city fell into chaos, what use would these swaggering constables be?
+Recently he had also begun cultivating—for no discernible reason—the head of the city's constable force. Ding A'tao had always maintained careful distance from such "official gate" types. They were sharks who consumed victims and never spat out bones. Previously, her husband had maintained only sufficient contact with yamen personnel to ensure peaceful commerce—cordial without intimacy. Now, through Wen Tietou's connections, he lavished gifts upon these people, distributing ten and twenty taels of pure silver as though money held no value. What purpose could it possibly serve?
 
-Mad as he might seem, his speech and actions in daily life appeared normal. But every time he heard cannon fire—while everyone else panicked—he would smile. Ding A'tao had secretly wept again that night: how bitter was her fate! A few years of peaceful life, then war and chaos again. Just when she most needed her husband, he was showing signs of losing his mind.
+This silver represented years of accumulation, saved cent by painstaking cent. Watching her husband spend it with such reckless abandon made her heart physically ache.
 
-If he really went mad, what would she and her children do?!
+She had been raised on the doctrine of "three obediences and four virtues" and dared not interfere in her husband's affairs. But she genuinely could not comprehend the necessity of this expenditure. If the city descended into chaos, what protection could these swaggering constables possibly offer?
 
-Luo Yangming had relaxed after sending the intelligence from the city wall. He didn't know what measures the bosses would take, but now that the Elders had received the information, they would certainly act. Xiong Wencan's scheme was sure to be thwarted. And he himself had been actively working inside the city.
+Mad though he might be, his speech and conduct in daily life appeared normal. Yet every time artillery sounded—when every sensible person trembled in fear—he would smile. Ding A'tao had wept secretly again last night, lamenting her bitter fate. After enjoying a few years of peace, war and chaos had returned. Precisely when she most needed her husband's strength and protection, he was exhibiting signs of losing his wits.
 
-His activities were essentially subversion: rallying and turning the city's armed forces. His focus was the local constables and the garrison soldiers.
+If he truly went mad, what would become of her and the children?
 
-Both groups were composed of locals—especially the constable-recruited "militia," who were almost all Cangwu County natives, at most from nearby suburbs. Their families and relatives were in the city or on its outskirts; they couldn't afford to go to extremes. Moreover, after the influx of "guest troops," these locals had been marginalized. Not only were their pay and provisions unreliable, but they were constantly bullied by the better-armed outsiders. The two sides had deep-seated conflicts, virtually at daggers drawn.
+---
 
-Once Xiong Wencan lit his fires, Wuzhou would be destroyed—and these men's families, homes, and property would burn with it. Emotionally and logically, they were the group least willing to see the city torched. That made them his prime targets.
+Luo Yangming had relaxed considerably since transmitting intelligence from the city wall. He could not predict what specific measures the Australian leadership would implement, but once the Elders received the information, they would certainly act. Xiong Wencan's scheme—whatever it entailed—would be foiled. And he himself had been actively working to undermine the defense from within.
 
-His channel for subversion was Wen Tietou. Wen Tietou had rushed into the city to warn his "brother-in-law," only to find himself trapped inside. He was now staying at the Luo residence and had become an invaluable assistant.
+His activities constituted textbook subversion: rallying and converting the city's armed forces. His primary targets were the local constabulary and the garrison soldiers.
 
-Wen Tietou was a dock boss who had to deal with all sorts of people; he was well acquainted with yamen personnel and had connections in the local garrison. He was an ideal conduit.
+Both groups drew predominantly from local populations. The constable-recruited "militia" especially comprised almost exclusively Cangwu County natives, with perhaps a handful from nearby suburbs. Their families and relatives resided within the city walls or its immediate environs—they could not afford extremism. Moreover, following the influx of "guest troops," these locals had been systematically marginalized. Not only had their pay and provisions grown unreliable, but the better-armed outsiders subjected them to constant bullying and casual abuse. The two groups harbored deep-seated mutual resentment, virtually poised at daggers drawn.
 
-But Luo Yangming couldn't openly announce that he was a Hair-Bandit spy. First, people wouldn't easily believe him. Second, these types were utterly shameless and faithless. They might swear solemn oaths and invoke heaven and earth, then turn around and betray you without a twitch.
+Once Xiong Wencan set his fires, Wuzhou would be incinerated—and these men's families, homes, and accumulated property would burn alongside the city. By any emotional or rational calculus, they constituted the faction least willing to see Wuzhou reduced to ash. That made them ideal targets for his subversion campaign.
 
-After much deliberation, Luo Yangming decided to approach the head of the Rice Merchants' Guild first.
+His channel for this work was Wen Tietou. Wen Tietou had rushed into the city to warn his supposed "brother-in-law," only to find himself trapped inside when the Australian blockade tightened. Now residing at the Luo household, he had transformed into an invaluable conspirator.
 
-The rice wholesale business was lucrative, and the guild head had been sick with worry over the war and siege. When Luo Yangming came to him expressing concern that "if the battle goes badly, Wuzhou might be reduced to ashes," the guild head immediately understood his meaning.
+Wen Tietou's profession as dock boss required navigating diverse social strata. He cultivated extensive acquaintance with yamen personnel and maintained connections throughout the local garrison—an ideal conduit for discreet communication.
 
-This unspoken understanding was widespread not only among the merchants but also among the gentry and magnates. In medieval siege warfare, the support of local elites was crucial. They controlled vast social and material resources and wielded considerable influence. In mobilizing the populace, they were extremely effective. Several desperate Ming-era sieges had been sustained only because the local gentry had thrown their full weight behind the defense.
+But Luo Yangming could not simply announce himself as a Hair-Bandit intelligence operative. First, such a claim would provoke immediate skepticism. Second, these types epitomized shamelessness and faithlessness. They might swear elaborate oaths invoking heaven and earth, then betray you without the slightest moral qualm mere hours later.
 
-But conversely, if the balance of power was lopsided and the enemy was quietly offering terms, these same people might secretly negotiate and open the gates. The Hair-Bandits' power in the Two Guangs was overwhelming. Their reputation for being "strict but fair"—lenient to those who surrendered promptly, devastating to those who resisted—was well known. Resistance never ended well for the leading gentry.
+After considerable deliberation, Luo Yangming elected to approach the head of the Rice Merchants' Guild first.
 
-"What you say is true," the guild head said softly. "I've thought the same. We cannot let the people of Wuzhou fill the ditches for nothing."
+The wholesale rice trade generated substantial profits, and the guild head had been visibly consumed with anxiety over the siege. When Luo Yangming approached him expressing concern that "if the battle proceeds disastrously, Wuzhou might be reduced to ashes," the guild head immediately grasped his unspoken meaning.
 
-"Only, I wonder..." Luo Yangming feigned timidity.
+This tacit understanding permeated not merely merchant circles but extended throughout the gentry and landed magnates as well. In medieval siege warfare, the support of local elites proved absolutely crucial. They controlled vast reservoirs of social and material resources and wielded enormous influence. When mobilizing the populace for defense, their effectiveness was unparalleled. Several desperate Ming-era sieges had endured only because local gentry had thrown their complete weight behind resistance.
 
-"Rest assured," the guild head's eyes narrowed. "The other local notables understand as well. It's just—" His voice dropped to a whisper. "Why does Brother Luo raise this matter? Could it be...?"
+Conversely, if the balance of power tilted overwhelmingly and the besieging force offered reasonable terms, these same individuals might secretly negotiate surrender and open the gates from within. The Hair-Bandits' power throughout the Two Guangs was crushing and undeniable. Their reputation for "strict enforcement but fair dealing"—showing leniency to those who surrendered promptly, devastating those who resisted—was thoroughly established. Prolonged resistance never ended favorably for the leading gentry families.
 
-In the guild, Luo Yangming was only a middling merchant, not especially active. For him to suddenly broach such a topic meant someone was pulling the strings.
+"What you say holds truth," the guild head murmured softly. "I've entertained similar thoughts. We cannot allow the people of Wuzhou to fill mass graves for nothing."
 
-"Precisely so." Luo Yangming knew that without showing some cards, the other man wouldn't trust him. "I've been trading rice with Guangdong and have considerable dealings with Dachang. I'm well acquainted with several of their managers and supervisors."
+"Only, I wonder..." Luo Yangming affected anxious timidity.
 
-Dachang was an Australian enterprise—an open secret in Guangdong and common knowledge in Wuzhou. As a major rice trading center, Wuzhou had many rice merchants who had done business with Dachang. The guild head nodded slightly.
+"Set your mind at ease," the guild head's eyes narrowed shrewdly. "The other local notables understand the situation as well. It's merely—" His voice dropped to barely audible. "Why does Brother Luo raise this delicate matter? Could it be...?"
 
-"...Before Wuzhou was besieged, someone from Dachang came to the city and spoke with me at my residence," Luo Yangming continued. "He said that once hostilities began, Wuzhou—being the key to both provinces—would inevitably see fierce fighting. If everything were to be destroyed, what a catastrophe that would be!"
+Within the guild hierarchy, Luo Yangming ranked as a middling merchant, not especially prominent or active. For him to suddenly broach such a politically dangerous topic suggested someone pulled strings from behind the curtain.
 
-The guild head nodded. "What you say is true." He sighed. "If anyone else were commanding this city, it might be manageable. But with Governor Xiong himself holding the city... and the situation as it is, he's surely determined to fight to the death. With all the guest troops inside, and the most respected elders having retreated to the mountain strongholds, the remaining gentry simply don't have the face to speak up. Even if they did, it probably wouldn't help."
+"Precisely so." Luo Yangming understood that without revealing certain cards, the guild head would never extend trust. "I've been conducting rice trade with Guangdong for years and maintain considerable business dealings with Dachang. I'm well acquainted with several of their managers and supervisors."
+
+Dachang was an Australian commercial enterprise—an open secret throughout Guangdong and common knowledge in Wuzhou. As a major rice trading hub, Wuzhou hosted numerous merchants who had conducted business with Dachang. The guild head gave a slight, knowing nod.
+
+"...Before Wuzhou fell under siege, an individual from Dachang came to the city and spoke with me privately at my residence," Luo Yangming continued. "He observed that once hostilities commenced in earnest, Wuzhou—holding the key to both provinces—would inevitably witness fierce and prolonged combat. If everything were consumed by fire and sword, what catastrophic waste that would represent."
+
+The guild head nodded slowly. "Your words ring true." He exhaled a heavy sigh. "If anyone else commanded this city's defense, the situation might remain manageable. But with Governor Xiong himself holding Wuzhou... and circumstances as they stand, he has surely resolved to fight to the death. With all the guest troops garrisoned inside, and the most respected elders having already retreated to mountain strongholds, the remaining gentry simply lack the social standing to voice objections. Even if they dared speak, it likely wouldn't alter the outcome."
 
 *(End of Chapter)*

@@ -1,94 +1,92 @@
 # Chapter 2262: Giving Gifts
 
-In the courtyard of the main hall, a row of wooden boxes was placed. Counting them, there were exactly thirty-one. Several retained personnel of the county and local commoners were examining them one by one in turn. Occasionally, a dispute would arise. However, they always reached an agreement quickly, and the clerk behind them would make a tick mark with a brush on the folder.
+A row of wooden boxes stood in the courtyard before the main hall—thirty-one in total. Several retained county officials and local commoners examined them one by one. Occasionally a dispute arose, but they always reached quick agreement, and the clerk behind them marked a tick in the ledger.
 
-The air was filled with a mixture of the smell of lime and decay. Yet, the people present seemed not to notice it at all.
+The air carried a mingled odor of lime and decay. Yet no one present seemed to notice.
 
-After about half an hour, the retained clerk ran up to the main hall, presented the folder, and said, "Magistrate! The inspection is correct!"
+After about half an hour, the retained clerk hurried up to the main hall and presented the ledger. "Magistrate! The inspection is complete!"
 
-Sitting upright in the main hall was the Director of Yangshan County, Bi Da. Besides her, several county cadres were also watching the boxes in the courtyard outside.
+Seated in the hall was the Director of Yangshan County, Bi Da. Several county cadres joined her in observing the boxes below.
 
-Bi Da picked up the folder and glanced at the unchecked marks on it. There were thirty-one heads in total. After identification by local relevant personnel, not a single one was missing; the names matched the heads.
+Bi Da picked up the ledger and scanned the unchecked marks. Thirty-one heads. After identification by relevant local personnel, every single one matched—names and faces aligned perfectly.
 
-Bi Da let out a slight breath and said, "So Feng Haijiao is finished."
+She let out a slight breath. "So Feng Haijiao is finished."
 
-"Exactly." Peng Shou’an looked happy, stood up and bowed, "Congratulations, Magistrate..."
+"Indeed." Peng Shou'an beamed and rose to bow. "Congratulations, Magistrate—"
 
-Although the surrounding cadres looked down on his fawning manner, his words were pleasing to the ear. Since they arrived in Yangshan, they had racked their brains over the bandit problem. They had heard the fame of the "Three Tyrants of Yangshan" until calluses grew in their ears. Now that these three groups of men and horses were all eliminated, everyone felt a big stone had been moved from their hearts.
+Though the surrounding cadres found his fawning distasteful, his words were welcome. Since arriving in Yangshan, the bandit problem had consumed their every thought. They had heard of the "Three Tyrants of Yangshan" until their ears grew calluses. Now that all three groups had been eliminated, everyone felt as though a great weight had been lifted from their shoulders.
 
-"This Yangshan County finally sees the sun after the rain!" Luo Yiming’s brows relaxed.
+"At last, Yangshan sees the sun after the rain!" Luo Yiming's brow relaxed.
 
-Naturally, Yangshan still had the problem of the Yao people, but since the suppression of Sun Dabiao, the Yonghua Yao people had roughly restored calm. Senator Huang’s military actions in Lianzhou and other places had also basically suppressed the spread of the Eight Rows Yao rebellion. Although there were sporadic Yao disturbances locally, like small groups of bandits causing trouble, they no longer had much impact on social order.
+Naturally, the Yao problem remained, but since Sun Dabiao's suppression, the Yonghua Yao people had largely calmed. Senator Huang's military operations in Lianzhou and other areas had also contained the spread of the Eight Rows Yao rebellion. Though sporadic Yao disturbances still occurred, like small bands of bandits causing trouble, they no longer posed a significant threat to social order.
 
-Now that Feng Haijiao was also beheaded, the last great scourge of Yangshan was removed. The Yangshan section of the Lian River was completely restored to operation. This was of great significance not only to Yangshan but also to restoring the trade route leading outside the province.
+With Feng Haijiao now beheaded, the last great scourge of Yangshan had been removed. The Lian River's Yangshan section was fully operational again—significant not only for the county but for restoring the trade route leading outside the province.
 
-Once public security was restored, merchants entering and leaving Guangdong could pass through. For a place like Yangshan with poor land and poor people, the economic stimulus and income driven by the transit of merchants were crucial. especially since Chief Huang had also given them specific instructions to do a good job in the purchase, processing, and export of "local products and forestry products." Most of these goods still needed merchants' transportation and sales work, besides going through the cooperative system.
+Once public security was restored, merchants could pass freely through Guangdong. For a poverty-stricken place like Yangshan, the economic stimulus from merchant transit was crucial. Chief Huang had specifically instructed them to focus on the purchase, processing, and export of local products and forestry goods. Most of these still required merchant transportation and sales beyond the cooperative system.
 
-Originally, they had racked their brains on how to cleanly and thoroughly eradicate this last scourge of Yangshan. After Feng Haijiao suddenly abandoned Qinglian Market, the county once lost its target. Only a few days later did news come that Feng Haijiao had gone to Thunder Struck Slope.
+They had long agonized over how to thoroughly eliminate this final scourge. When Feng Haijiao suddenly abandoned Qinglian Market, the county lost track of him entirely. Only days later did word arrive that he had retreated to Thunder Struck Slope.
 
-Those familiar with the county's situation naturally knew what kind of place Thunder Struck Slope was. Once Feng Haijiao went up the mountain, it would be very difficult for the county to exterminate him again unless heavy troops and cannons were deployed.
+Anyone familiar with the county knew what Thunder Struck Slope meant. Once Feng Haijiao was entrenched there, dislodging him would require heavy troops and artillery.
 
-Now that Xin Laonan had disposed of Feng Haijiao in an internal strife, not only killing Feng Haijiao but also presenting the heads of Feng’s main bandit leaders, it was not only a great merit for Yangshan but also a timely rain for the Senate's administrative institutions in Yangshan, which were stretched to the limit and terribly busy.
+Now that Xin Laonan had disposed of Feng Haijiao through internal conflict—not only killing him but presenting the heads of his chief lieutenants—it was both a great achievement for Yangshan and a timely relief for the Senate's overstretched administration.
 
-"In this way, our administration in Yangshan will be smooth," You Ciren said. "The pressure on public security has instantly decreased."
+"This will smooth our governance considerably," You Ciren said. "The pressure on public security has dropped dramatically."
 
-Currently, the National Army and militia supported by the county numbered more than a thousand. Although social order was restored through this, the financial pressure of raising a large number of troops was great. In particular, the current financial gap was mostly filled by the "Reasonable Burden" on local large households. If this continued for a long time, it would be a heavy burden for the large households too, and it was unknown how their attitude would change.
+Currently, the National Army and militia supported by the county numbered over a thousand. Though this had restored order, the financial burden of maintaining such a large force was substantial. Much of the current deficit was covered by "Reasonable Burden" levies on local wealthy households. Prolonged reliance on this would strain even their cooperation.
 
-Bi Da did not participate in their discussion. She pondered for a moment and ordered: "Take all the heads to the city gate for display." After saying this, she picked up the letter and gift list sent with the heads and handed them to Peng Shou’an.
+Bi Da remained silent during their discussion. After pondering a moment, she ordered: "Display all the heads at the city gate." She then picked up the letter and gift list that had accompanied the heads and handed them to Peng Shou'an.
 
-"Mr. Peng, I don't know many characters. I can't understand this letter full of literary phrases. Please explain it to me."
+"Mr. Peng, I don't know many characters. This letter is full of literary phrases I can't understand. Please explain it to me."
 
-Peng Shou’an hurriedly took it. This letter was actually not very literary; it was written entirely in vernacular colloquialisms. The letter was written in Xin Laonan’s name. The first half was about being "muddled for a moment, presumptuously resisting the Heavenly Army, and harboring bandits." The latter part said he "repented" and was willing to submit to the Great Song. Therefore, borrowing the opportunity of Feng Haijiao going up the mountain to seek refuge, he annihilated him and presented the heads to show his sincerity, and so on. The wording was humble, and one could feel a strong desire to survive.
+Peng Shou'an took the documents. The letter was actually quite plain, written entirely in colloquial vernacular. It came in Xin Laonan's name. The first half confessed to being "momentarily confused, presumptuously resisting the Heavenly Army, and harboring bandits." The second half declared his "repentance" and willingness to submit to the Great Song. He had seized the opportunity of Feng Haijiao seeking refuge to annihilate him, presenting the heads as proof of sincerity. The wording was humble, radiating a desperate desire to survive.
 
-Sent along with the letter were not only thirty-one human heads but also gifts: one hundred *shi* of grain, one thousand taels of white silver, two boxes of various jewelry and curios, twenty bolts of silk, one hundred bolts of cotton cloth... The handwriting was not small.
+The letter was accompanied not only by thirty-one heads but also substantial gifts: one hundred *shi* of grain, one thousand taels of silver, two boxes of assorted jewelry and curios, twenty bolts of silk, one hundred bolts of cotton cloth. A considerable offering.
 
-Peng Shou’an read and explained, taking quite a while to finish readings, and laughed: "This Xin Laonan can be considered tactful. He sent us a heavy gift."
+Peng Shou'an read and explained, taking some time to finish. He laughed. "This Xin Laonan is certainly tactful. He's sent us a generous gift."
 
-"He sent heads and gifts; what does he want?"
+"He sent heads and gifts. What does he want?"
 
-"He didn't say what he wanted, only said it was to show sincerity." Peng Shou’an read it a few more times and replied.
+"He doesn't say explicitly—only claims it's to demonstrate sincerity." Peng Shou'an reviewed the letter again.
 
-"He didn't mention amnesty?"
+"He doesn't mention amnesty?"
 
-"No," Peng Shou’an shook his head. "Director, Xin Laonan is not a bandit, just a local large household—considered a good subject. What amnesty does he need..."
+"No." Peng Shou'an shook his head. "Director, Xin Laonan isn't a bandit—just a local wealthy household. A law-abiding subject, technically. What amnesty would he need?"
 
-"Is there a good subject like him?" You Ciren roasted, "Although Xin Laonan washed his hands in a golden basin many years ago, he used to be a great bandit on the Sui River, killing and robbing countless times. Now that he has swallowed Feng Haijiao’s subordinates and wealth, and entrenched himself in such a perilous place as Thunder Struck Slope, he will inevitably be a scourge in the future."
+"Is there a law-abiding subject like him?" You Ciren scoffed. "Xin Laonan may have 'washed his hands' years ago, but he was once a notorious bandit on the Sui River who robbed and killed countless times. Now he's absorbed Feng Haijiao's men and wealth and sits entrenched in that fortress. He'll inevitably become a threat."
 
-Bi Da was very conflicted in her heart at this moment. From her original intention, a local power like Xin Laonan, who acted like a local emperor, was also a target for her to eradicate. But now Xin Laonan not only actively submitted but also specially sent the heads of Feng Haijiao and others, removing a major trouble for Yangshan. Not to mention the legendary difficulty of attacking Thunder Struck Slope, even among local large households, leaving a name of "mean and ungrateful" might be feared—after all, compared to the Three Tyrants of Yangshan, Xin Laonan’s crimes were very hidden, and he mostly harmed passing merchants, so local public anger was very small.
+Bi Da felt deeply conflicted. Her instinct was to eliminate local powers like Xin Laonan who acted as petty tyrants. Yet he had actively submitted and personally delivered the heads of Feng Haijiao and his lieutenants, removing a major obstacle for Yangshan. Setting aside the legendary difficulty of assaulting Thunder Struck Slope, acting against him now would earn her a reputation for ingratitude among local wealthy households. Compared to the Three Tyrants, Xin Laonan's crimes remained hidden—he had mostly victimized passing merchants, generating little local outrage.
 
-Although they had won successive victories in Yangshan, she knew very well that the current improvement in public security had a lot to do with the cooperative attitude of the local large households. To follow Chief Huang's instructions: pacify the situation in Yangshan as soon as possible, she could only hold her nose and continue to cooperate with the large households.
+Though they had won successive victories in Yangshan, she knew the improved security owed much to the cooperation of local wealthy households. Following Chief Huang's directive to stabilize Yangshan as quickly as possible, she had no choice but to continue working with them, however distasteful.
 
-It was a pity that Feng Haijiao was not exterminated by herself. Otherwise, she could have carried out an extermination-style disposal no less than at Dalang Market, to awe the large households and Yao people in the area.
+It was a pity Feng Haijiao hadn't been eliminated by her own hand. Otherwise, she could have carried out the same ruthless purge as at Dalang Market, striking fear into both wealthy households and Yao people.
 
-Thinking of this, she made up her mind. She asked, "Who sent these things?"
+Having made up her mind, she asked: "Who delivered these things?"
 
-"Ouyang Xi sent a steward to deliver them." Peng Shou’an replied, "The messenger delivering the letter dared not come to see you personally, Old One..."
+"Ouyang Xi sent a steward." Peng Shou'an replied. "The messenger delivering the letter didn't dare come see you personally..."
 
-"Oh? Why?" Bi Da asked strangely, "Doesn't the book say: 'Two countries at war do not kill messengers'? I am not a man-eating monster; why dare not come to see me?"
+"Oh? Why not?" Bi Da asked curiously. "Doesn't the saying go: 'Warring nations don't kill envoys'? I'm not some man-eating monster. Why wouldn't he dare see me?"
 
-Now all the cadres laughed. Luo Yiming laughed; "Since we took Dalang Market and killed Sun Dabiao’s gang, the county has practically described you as a monster with a blue face and fangs..."
+The cadres laughed. Luo Yiming chuckled. "Ever since we took Dalang Market and executed Sun Dabiao's gang, people in the county have practically described you as a monster with blue face and fangs."
 
-"Someone outside described you as a female goblin captured by the Chiefs from the Li mountains of Hainan Island, who needs to drink human blood to survive."
+"Some outside the city describe you as a female goblin captured by the Chiefs from the Li mountains of Hainan Island—one who needs human blood to survive."
 
-"Magistrate Bi can stop children from crying at night in Yangshan now."
+"Magistrate Bi can stop children from crying at night just by invoking her name."
 
-...
+The county cadres, infected by the relaxed atmosphere, competed to share legends about Bi Da. The mood in the hall grew lively. Only Peng Shou'an smiled without speaking—he still wasn't accustomed to this lack of hierarchy, even with a Li barbarian woman as superior.
 
-The county cadres were probably infected by the relaxed atmosphere, vying to tell legends about Bi Da in the county one by one. The atmosphere in the main hall was extremely cheerful. Only Peng Shou’an smiled without speaking—he was still not used to this atmosphere of no distinction between high and low status—even if the superior was a Li barbarian woman.
+"So this is what I've become," Bi Da said, smiling yet seeming to sigh. "Perhaps it's fitting. I was originally called a *Jinmu*—do you know what that is? It's a monster from my homeland."
 
-"Unexpectedly I became like this," Bi Da smiled yet seemed to sigh, "Also right! I was originally a *Jinmu*—do you know what a *Jinmu* is? It's a monster from our place..."
+You Ciren, aware of some of Bi Da's history and knowing that the false accusation of being a *Jinmu* was a sore point, quickly offered comfort. "That's just local ignorance—people who've never seen a woman in office talking nonsense. Since ancient times, harsh laws are needed in chaotic times. Criticism is inevitable. Don't take it to heart."
 
-You Ciren probably knew some of Bi Da's past, and being falsely accused as a *Jinmu* was a sore point for her, so he hurriedly comforted: "This is all because local natives are ignorant and haven't seen a woman as an official, speaking nonsense. Since ancient times, heavy codes are used in chaotic times; inevitably one gets criticized and discussed. Don't take it to heart..."
+"Not at all. I'm actually pleased. The common people of Yangshan fear me, and the wealthy households and bandits fear me even more—that's exactly as it should be. They must fear first before we can do our work effectively." She turned to Peng Shou'an. "Please visit the Ouyang family and invite that messenger for a conversation this evening."
 
-"Not at all, I am very happy in my heart. The common people of Yangshan fear me, and the large households and bandits fear me even more—this is right. They have to fear first before we can do our work well. Mr. Peng—" She turned to Peng Shou’an, "Trouble you to make a trip to the Ouyang family and invite that messenger to come over for a chat tonight."
+After Peng Shou'an departed, You Ciren asked: "Magistrate, what's your thinking on this matter?"
 
-After Peng Shou’an left, You Ciren asked, "Magistrate! What is your idea on this matter?"
+"Here's my assessment." Bi Da laid out her reasoning. "Xin Laonan is undeniably a threat. But we lack the strength to deal with him now. Requesting the Fubo Army's assistance for suppression isn't feasible in the short term, and taking Thunder Struck Slope by ourselves is impossible. So my view is to temporarily accept his submission. His sincerity may be questionable, but at least it buys Yangshan a period of calm. First, we lull him into complacency; second, we build our strength. Time is on our side. The longer this drags on, the fewer options he has."
 
-"My thought is this..." Bi Da recounted her considerations one by one, saying, "...Xin Laonan is naturally a hidden danger, but our strength is not strong enough yet. It is impossible to ask the Fubo Army to help us in suppression in a short time. Taking the natural barrier of Thunder Struck Stockade is impossible. So my view is to temporarily accept Xin Laonan’s amnesty. Although he may not be sincere, at least it can keep Yangshan calm for a period of time—firstly to paralyze him, and secondly to accumulate strength. Time is on our side. The longer it drags on, the fewer cards Xin Laonan has to play."
+"But that location is extremely defensible, and he's absorbed Feng Haijiao's men, money, and grain. He can attack or defend at will. Leaving them unaddressed is always a threat to the county." Someone raised an objection.
 
-"But that place of his is very precipitous, and he has swallowed Feng Haijiao’s men, money, and grain. He can attack to advance and defend to retreat. Without removing them, it is always a hidden danger for the county..." Someone raised an objection.
-
-"A hidden danger for the county is correct. But I know the place Thunder Struck Slope," You Ciren was not a local, but was very familiar with military geography annals, and after arriving in Yangshan, he focused on understanding the local geographical situation, "It is very remote, surrounded by mountainous areas, with no key traffic routes. It is insignificant to the entire county administration. Furthermore, although the terrain of Thunder Struck Slope is precipitous and hard for us to attack up, it is not easy for the enemy to come down either. We only need to deploy a squad of the National Army at Hu Bay to effectively monitor their movements. Although Thunder Struck Slope has paddy fields and can be self-sufficient, he has now swallowed Feng’s subordinates, increasing the population several times. Growing grain on the mountain by himself is definitely not enough to eat; he inevitably has to rely on external supplies. We can use this to strangle his neck. So my suggestion is, accepting Xin Laonan’s submission is fine, but we must strangle his neck. The place Hu Bay is just right."
+"True, they're a threat. But I know Thunder Struck Slope." You Ciren wasn't local, but he had studied military geography extensively and familiarized himself with Yangshan's terrain since arriving. "It's remote, surrounded by mountains, with no key trade routes. It's insignificant to the overall administration. Furthermore, while the terrain makes it hard for us to attack, it's equally difficult for them to descend. A single squad of National Army at Hu Bay can effectively monitor their movements. Thunder Struck Slope has paddy fields and could be self-sufficient, but after absorbing Feng's forces, the population has multiplied. Their own crops won't sustain them—they'll need external supplies. We can use that leverage to strangle them. My suggestion: accept Xin Laonan's submission, but keep a firm grip on his throat. Hu Bay is the perfect chokepoint."
 
 ---
 **Next Update:** Volume 7 - Guangzhou Governance Part 466

@@ -1,129 +1,129 @@
 # Chapter 2410: Xiangyunsha
 
-The people Chen Lin usually came into contact with mostly spoke implicitly and tactfully, measuring their words and paying attention to "Doctrine of the Mean," rarely hearing such emotionally unrestrained words. He was a young man after all; Li Yao'er's words couldn't help but stir up enthusiasm in his chest. He hurriedly said, "This small one doesn't dare to say make some great career, but seeking to carry forward this family business is already enough to satisfy me."
+The people Chen Lin usually encountered spoke implicitly and tactfully, measuring their words and practicing moderation. He rarely heard such unguarded emotion. Young as he was, Li Yao'er's words stirred enthusiasm in his chest. He quickly replied, "This humble one wouldn't dare claim to pursue any great career—merely carrying forward the family business would be satisfaction enough."
 
-Li Yao'er smiled without speaking; this young man was insincere. She suddenly thought of something and asked:
+Li Yao'er smiled without responding. The young man wasn't being entirely sincere. A thought struck her, and she asked:
 
-"Do you make Xiangyunsha here?" Li Yao'er suddenly thought of this most famous variety among Guangdong silk fabrics.
+"Do you make Xiangyunsha here?" She had suddenly remembered this most famous variety of Guangdong silk.
 
-Chen Lin looked blank. Fenshenghe had naturally woven gauze, but he had unheard of the noun Xiangyunsha. He said, "Small one hasn't made it, nor heard of it."
+Chen Lin looked blank. Fenshenghe had certainly woven gauze, but he had never heard the term "Xiangyunsha." "I've never made it, nor heard of it."
 
-Li Yao'er thought for a moment and asked again, "It's the gauze dyed with *Shuliang* (Dye Yam)."
+Li Yao'er considered for a moment. "It's gauze dyed with *Shuliang*—Dioscorea rhizome."
 
-"*Shuliang*? That's *Liangchou* (Gambiered Silk)," Chen Lin nodded. "Have, have."
+"*Shuliang*? You mean *Liangchou*—Gambiered Silk." Chen Lin nodded. "Yes, we have that."
 
 "Any finished products?"
 
-"There were some originally, only after the soldier disaster, the stock is probably gone..."
+"We had some, but after the soldiers came through, the stock is probably gone..."
 
-Li Yao'er showed a look of disappointment. Xiangyunsha was a fist product among traditional Guangdong silk fabrics. It was popular for a time in the 1930s and 40s of the old timeline. It was crisp and smooth, had good fastness to sunlight and washing, strong waterproofness, easy to wash and dry, dark in color and dirt-resistant, didn't stick to the skin, light and thin and not easy to wrinkle, soft and full of body, durable, and suitable for wearing in hot summer, welcomed by consumers. It was not only widely praised in the domestic market but also exported in large quantities to foreign countries, especially Southeast Asia.
+Li Yao'er looked disappointed. Xiangyunsha was a signature product among traditional Guangdong silk fabrics, wildly popular in the 1930s and 40s of the original timeline. Crisp and smooth, with excellent sun and wash fastness, strong water resistance, easy to wash and quick to dry, dark-colored and dirt-resistant, cool against the skin, lightweight yet wrinkle-resistant, soft with good body, durable, and perfect for hot summer wear. It had been welcomed by consumers domestically and exported in large quantities abroad, especially to Southeast Asia.
 
-According to the data Li Yao'er saw, Xiangyunsha was a satin variety that only formally appeared in the Republic of China era. But such a variety obviously didn't appear out of thin air. She later checked some materials and found that there were similar production processes in the Ming Dynasty, and also records of export.
+According to her research, Xiangyunsha as a formal satin variety appeared only during the Republic era. But such a product couldn't have emerged from nothing. Her investigation of historical materials had revealed similar production processes dating to the Ming Dynasty, along with export records.
 
-If this kind of satin could be improved and mass-produced, it would be a fist product for local satin export.
+If this satin could be improved and mass-produced, it would make an excellent signature export product.
 
-虽然 records existed, Li Yao'er hadn't seen real Xiangyunsha yet. Asking Chen Xuan was also asking three times without knowing one.
+Despite the historical records, Li Yao'er hadn't yet seen actual Xiangyunsha. Asking Chen Xuan had yielded nothing useful.
 
-"Although there is no stock, my sister still has a *Liangchou* small shirt. If the Chief wants to see it, I will fetch it."
+"Though we have no stock, my sister still has a *Liangchou* undergarment. If the Chief wishes to see it, I can fetch it."
 
-"Good, go fetch it."
+"Good, fetch it."
 
-Chen Lin quickly called Chen Qing over and asked him to go back and ask his sister for a *Liangchou* small shirt.
+Chen Lin quickly called Chen Qing over and asked him to get his sister's *Liangchou* garment.
 
-In just a moment, Chen Qing delivered a cloth bundle. Chen Lin opened it to look; it was exactly a close-fitting small shirt of Chen Yue.
+In moments, Chen Qing returned with a cloth bundle. Chen Lin opened it—it was indeed one of Chen Yue's intimate garments.
 
-This was a sister's close-fitting item; holding it in hand was somewhat awkward, so he presented the cloth bundle.
+Being his sister's underclothing, holding it felt somewhat awkward. He presented the bundle as it was.
 
-Li Yao'er took the material in hand, looked carefully, and rubbed it again. She said, "This isn't *Sha* (Gauze)..."
+Li Yao'er took the fabric and examined it closely, rubbing it between her fingers. "This isn't *Sha*—gauze..."
 
 "This is *Liangchou*."
 
-Chen Lin wasn't wrong; this was indeed a piece of *Liangchou*. The material was dyed brownish-yellow, and the fabric itself was plain woven silk. It felt soft and smooth to the touch, but the hand feel was quite thick. Looking closely, whether silkworm silk texture, dyeing work, or hand feel, all were relatively poor. Far inferior to other silks she had seen.
+Chen Lin wasn't wrong—it was indeed *Liangchou*. The fabric was dyed brownish-yellow, plain-woven silk. It felt soft and smooth but somewhat thick. Looking closely, the silk thread quality, dyeing work, and hand feel were all relatively poor—far inferior to other silks she had seen.
 
-"This is woven from local silk, right?"
+"This was woven from local silk, wasn't it?"
 
-"Chief has good eyesight." Chen Lin said, "This was woven by Fenshenghe. The dyeing was also done by ourselves..."
+"The Chief has a keen eye." Chen Lin said. "It was woven at Fenshenghe. The dyeing too..."
 
 "You know how to dye?"
 
-"Chief is joking. This *Shuliang* dyeing isn't some secret; it's most common." Chen Lin was somewhat strange. Various colorants needed for satin dyeing, except for indigo which was planted in large quantities locally, were either produced in other places or simply came from Nanyang, mostly costing a lot. Only this *Shuliang* was planted in large areas locally and wasn't valuable itself. Besides *Liangchou*, *Liangbu* (Gambiered Cloth) was also very common.
+"The Chief jests. *Shuliang* dyeing isn't secret at all—it's extremely common." Chen Lin was somewhat puzzled. The various dyes needed for satin—except for indigo, which was grown locally in large quantities—were either produced elsewhere or imported from Nanyang at considerable cost. Only *Shuliang* was cultivated widely here and held little value. Besides *Liangchou*, *Liangbu*—gambiered cotton cloth—was also very common.
 
-"Hasn't been coated with mud?"
+"It hasn't been mud-coated?"
 
-"Coated with mud?" Chen Lin was baffled now. "Why coat with mud? Wouldn't coating with mud get it dirty?"
+"Mud-coated?" Chen Lin was baffled. "Why would we coat it with mud? Wouldn't that get it dirty?"
 
-Li Yao'er knew now that there was only *Liangchou* at this time, and no later Xiangyunsha process.
+Li Yao'er understood now. At this time, only *Liangchou* existed—the later Xiangyunsha process hadn't developed yet.
 
-According to the standard of the old timeline, Xiangyunsha actually referred to a traditional process. Broadly speaking, fabrics using mulberry silk fabric as the base embryo cloth and undergoing a mineral coating process were all called Xiangyunsha.
+By the standards of the original timeline, Xiangyunsha actually referred to a traditional technique. Broadly speaking, any fabric using mulberry silk as the base cloth and undergoing a mineral coating process was called Xiangyunsha.
 
-In the textile market of the old timeline, because there were many kinds of Xiangyunsha, everyone had their own preferences. For the same Xiangyunsha fabric, different types of Xiangyunsha were thin or thick, soft or hard, varying greatly.
+In the original timeline's textile market, Xiangyunsha came in many varieties according to different preferences. Even the same fabric type varied greatly—some thin, some thick, some soft, some stiff.
 
-In terms of market price, from low to high, they were Crepe De Chine Xiangyunsha, Pearl Satin Xiangyunsha, Turtle Crack Pattern Xiangyunsha, and Guanle Crepe Xiangyunsha.
+In terms of market price, from low to high: Crepe de Chine Xiangyunsha, Pearl Satin Xiangyunsha, Turtle-Crack Pattern Xiangyunsha, and Guanle Crepe Xiangyunsha.
 
-These were the common types. Traditional Xiangyunsha was plain gauze without printing. Modern Xiangyunsha had patterns and prints according to different varieties, which would affect the specific price. Generally speaking, those with prints were mostly *Liangchou* types. Crepe De Chine Xiangyunsha and Pearl Satin Xiangyunsha were the most numerous; they felt soft and belonged to satin fabrics.
+These were the common types. Traditional Xiangyunsha was plain gauze without printing. Modern Xiangyunsha included patterns and prints depending on the variety, which affected specific prices. Generally, printed varieties were mostly *Liangchou* types. Crepe de Chine and Pearl Satin Xiangyunsha were most numerous—soft-feeling satin fabrics.
 
-Solid color Xiangyunsha were mostly *Liangsha* (Gambiered Gauze) types. They felt relatively harder and had better breathability. In ancient times, there was a saying that women wore *Liangchou* and men wore *Sha*. Generally, Guanle Crepe Xiangyunsha and Turtle Crack Pattern Xiangyunsha belonged to the *Liangsha* type. Traditional Xiangyunsha basically referred to this type.
+Solid-color Xiangyunsha were mostly *Liangsha*—gambiered gauze types. They felt stiffer with better breathability. In ancient times, the saying went: "Women wear *Liangchou*, men wear *Sha*." Generally, Guanle Crepe Xiangyunsha and Turtle-Crack Pattern Xiangyunsha belonged to the *Liangsha* category. Traditional Xiangyunsha basically referred to this type.
 
-Strictly speaking, Xiangyunsha must use *Sha* as the base embryo cloth, dyed with *Shuliang* juice, then coated with river mud from the Shunde area, and then aired and dried.
+Strictly speaking, Xiangyunsha required *Sha* as the base cloth, dyed with *Shuliang* juice, then coated with river mud from the Shunde area, and finally air-dried.
 
-Obviously, this *Liangchou* could only count as generalized Xiangyunsha. Judging from its hand feel and texture, it inevitably wasn't high-grade goods either.
+Obviously, this *Liangchou* could only count as Xiangyunsha in the broad sense. Judging from its feel and texture, it wasn't high-grade goods.
 
-"Haven't you tried dyeing with *Sha*?"
+"Haven't you tried dyeing *Sha*?"
 
-"*Sha*?" Chen Lin was stunned, then suddenly understood. "Chief means *Luo* (Gauze/Luo silk), right?"
+"*Sha*?" Chen Lin was momentarily confused, then understood. "The Chief means *Luo*—leno gauze?"
 
-"Right, just *Luo*." Li Yao'er's face felt somewhat hot. Because *Sha* wasn't a strict satin category; it was mostly used to refer to light, thin, and transparent textiles. In satin classification, it mostly referred to *Luo*. *Luo*'s texture is light and thin, silk threads are fine, and warp threads are twisted with each other to form pepper-hole shapes. The texture is tight and solid, the gauze holes ventilate and let cool air through, comfortable to wear and cool. Specially suitable for making summer clothing.
+"Right, *Luo*." Li Yao'er felt her face warm slightly. The term *Sha* wasn't a strict fabric category—it mostly referred to light, thin, transparent textiles. In satin classification, it usually meant *Luo*. *Luo* had a light, thin texture with fine silk threads, warp threads twisted together to form peppercorn-shaped holes. The weave was tight and solid, the gauze holes allowing air circulation, making it comfortable and cool to wear—ideal for summer clothing.
 
-"We have done dyeing *Luo* with *Shuliang*, and there are sales, just not too many."
+"We have dyed *Luo* with *Shuliang*, and there is some market, but not much."
 
-"Why not many?"
+"Why not much?"
 
-"*Luo* and Satin are for rich people to wear. Common people can't afford them! How many people can afford to wear them!" Chen Lin said, "Small one heard that in the first-class rich places of Jiangnan like Suzhou and Hangzhou, even peddlers and servants wear silk and satin; don't know if it's true or false. Just speaking of Guangzhou Prefecture alone, there really aren't many sales."
+"*Luo* and satin are for wealthy people. Common folk can't afford them! How many people can?" Chen Lin said. "I've heard that in rich places like Suzhou and Hangzhou in Jiangnan, even peddlers and servants wear silk—I don't know if it's true. Just speaking of Guangzhou Prefecture, sales really aren't large."
 
-"I don't know if peddlers and servants in Suzhou and Hangzhou wear silk and satin, but this Xiangyunsha is a boon for summer. If it can be made in batches, whether domestic or export, there will be a big market."
+"I don't know about peddlers and servants in Suzhou and Hangzhou, but this Xiangyunsha is a blessing in summer. If it can be produced in quantity, whether for domestic or export markets, there'll be huge demand."
 
-"But satin costs a lot..."
+"But satin is expensive..."
 
-"So we have to beat down the cost of raising silkworms. With more silk, satin will be cheaper. And this workshop, weaving is truly too slow... Your uncle said only a few hundred bolts of silk material can be woven here in a whole year—this is too few. Weaving tens of thousands of bolts a year, the price will definitely come down."
+"So we have to drive down sericulture costs. More silk means cheaper satin. And this workshop—your weaving is truly too slow... Your uncle said you produce only a few hundred bolts here annually. That's far too few. Weave tens of thousands of bolts a year, and prices will definitely fall."
 
-Chen Lin was confused: "If the price comes down, wouldn't the profit earned be less..."
+Chen Lin was confused. "If prices fall, won't profits shrink...?"
 
-Li Yao'er said: "You don't know how to calculate! It doesn't matter if the profit earned per item is small. If you earn one tael of silver per bolt of silk and sell one hundred bolts a year, you only earn one hundred taels; if I can sell ten thousand bolts a year and earn one mace (0.1 tael) per bolt, I earn one thousand taels. Only if everyone can come to wear it can Fenshenghe earn big money!"
+Li Yao'er said: "You don't know how to calculate! Lower profit per item doesn't matter. If you earn one tael of silver per bolt and sell a hundred bolts yearly, you only earn a hundred taels. If I can sell ten thousand bolts a year and earn one mace per bolt, that's a thousand taels. Only when everyone can afford to wear it will Fenshenghe earn real money!"
 
-Chen Lin still couldn't turn the corner, but he knew it was better for him to disobey Australian decisions less. He agreed repeatedly.
+Chen Lin still couldn't wrap his mind around it, but he knew disagreeing with Australian decisions was unwise. He nodded repeatedly.
 
-"Let's go look in the factory," Li Yao'er said.
+"Let's tour the factory," Li Yao'er said.
 
 "Yes."
 
-"This Fenshenghe was originally your family's property; presumably, you are familiar with every blade of grass and tree, every brick and tile."
+"This Fenshenghe was originally your family's property. Presumably you know every blade of grass and brick."
 
-"Small one helped Father manage the property in the workshop since ten-plus years old."
+"I've helped Father manage the workshop property since I was over ten."
 
-"But the current Fenshenghe is different from the past," Li Yao'er said. "Given time, it will change even more greatly."
+"But today's Fenshenghe is different from before," Li Yao'er said. "Given time, it will change even more dramatically."
 
-Chen Lin said yes and yes. He thought reeling silk and weaving satin had been the same since ancient times; could it be Australians could weave out of thin air without using silkworm silk? Quite a few Australian goods had appeared on the market these years, but he had never heard of Australian Satin or Australian Cloth.
+Chen Lin murmured agreement, thinking that reeling silk and weaving satin had been done the same way since antiquity. Could the Australians conjure fabric from thin air without silkworm thread? Many Australian goods had appeared on the market over the years, but he had never heard of Australian Satin or Australian Cloth.
 
-"This row of inverted-seat rooms was originally Fenshenghe's accounting room. We also follow Cao's rules (follow established rules) and set up the Management Office here. Although the calling is different, the meaning is the same." Li Yao'er strolled on the walkway. "The front courtyard is mainly for external communication. I intend to set up a warehouse to collect cocoons here after spring begins. These houses are prepared for this."
+"This row of inverted rooms was originally Fenshenghe's accounting office. We're following established practice and setting up the Management Office here—different name, same meaning." Li Yao'er strolled along the walkway. "The front courtyard is mainly for external dealings. I plan to set up a warehouse here to collect cocoons after spring arrives. These buildings are prepared for that."
 
-Chen Lin's dad had also thought about the matter of setting up a warehouse to collect cocoons himself, and even once thought about expanding his own reeling room to use all his own silk and not external silk.
+Chen Lin's father had also considered establishing his own cocoon warehouse, even contemplating expanding the reeling room to use exclusively self-produced silk rather than purchased silk.
 
-Reeling silk oneself without using external silk could firstly guarantee the quality of raw silk. Purchasing raw silk relied entirely on the eyesight and integrity of the silk accountant. Without a capable and trustworthy silk accountant general, the quality of collected raw silk depended entirely on luck; with worse luck, even the weight wouldn't be enough.
+Producing silk internally without outside purchases could first guarantee raw silk quality. Purchasing raw silk relied entirely on the silk accountant's judgment and integrity. Without a capable, trustworthy silk manager, purchased raw silk quality depended entirely on luck—with bad luck, even the weight would be short.
 
-However, things were not that simple. Chen Lin said: "Chief, doing silk oneself naturally has many benefits, but there are also difficulties within."
+However, things weren't that simple. Chen Lin said: "Chief, producing silk ourselves naturally has many advantages, but there are internal difficulties."
 
-"Presumably there are people taking the opportunity to instigate silkworm farmers?"
+"Presumably people seize the opportunity to stir up silkworm farmers?"
 
-"Chief predicts things like a god." Chen Lin nodded. "If we can achieve high prices for high quality, collecting silk is a good thing convenient for both host and guest. It's just that there are many entanglements within, and people fishing for profit from it are also not few. Ignorant commoners are often easily bewitched by people..."
+"The Chief sees through everything." Chen Lin nodded. "If we could achieve high prices for high quality, collecting silk would be mutually beneficial. But many entangled interests exist, and plenty of people try to profit from the situation. Ignorant commoners are easily misled..."
 
-"I know this. But I see there are still reeling rooms in your factory."
+"I understand this. But I see your factory has reeling rooms."
 
-"Yes, my family is a big clan locally. In Nansha locally, with the clan backing, my father could still handle it. But silkworm farmers from outside villages, that couldn't be leveled. So Fenshenghe collects both silk and cocoons."
+"Yes. My family is a major clan locally. Within Nansha itself, with clan backing, my father could manage. But for silkworm farmers from other villages, that wasn't possible. So Fenshenghe purchases both silk and cocoons."
 
-Li Yao'er said: "You don't need to worry about this. An important article in my sericulture improvement is factory reeling, no longer making local silk. I will test the waters first this year. If smooth, next year I will implement it to the whole county..."
+Li Yao'er said: "You needn't worry about this. A key element of my sericulture improvement is factory reeling—no more household silk production. I'll test the waters this year. If successful, I'll implement it county-wide next year..."
 
-Chen Lin clicked his tongue secretly, thinking *worthy of being Australians, the tone is so big!* He didn't know how they intended to persuade silkworm farmers—the most obvious thing was that the selling price of silkworm cocoons was not as good as raw silk. As long as the silkworm farmer's family wasn't short of labor, they would all choose to reel into silk before selling. Could they put a knife on the neck to force silkworm farmers not to make silk and sell cocoons?
+Chen Lin was privately amazed, thinking *truly Australians—such grand ambitions!* He wondered how they intended to persuade silkworm farmers. The obvious issue was that cocoon selling prices were lower than raw silk prices. As long as a silkworm-farming family wasn't short of labor, they would choose to reel silk before selling. Surely they couldn't put knives to necks to force farmers to sell cocoons instead of silk?
 
-"...Besides purchasing dried cocoons, I also prepare to sell silkworm seeds here. The first batch of silkworm seeds will be shipped from Lingao very soon. These storehouses will temporarily serve as silkworm seed warehouses." Li Yao'er said and asked again, "How do the silkworm farmers here get their silkworm seeds?"
+"...Besides purchasing dried cocoons, I'm also preparing to sell silkworm eggs here. The first batch will be shipped from Lingao very soon. These storehouses will temporarily serve as silkworm egg warehouses." Li Yao'er then asked: "How do silkworm farmers here obtain their eggs?"
 
 **(End of Chapter)**

@@ -1,86 +1,88 @@
 # Chapter 2083 - The Naval Battle
 
-Several gunboats, unable to evade in time, were struck squarely by fire-ships and momentarily couldn't separate. Nearby gunboats quickly came to help tow the fire-ships away.
+Several gunboats, unable to evade in time, were struck squarely by fire-ships and momentarily couldn't break free. Nearby vessels quickly moved to assist, towing the blazing hulks clear.
 
-Xiong Wenchan listened intently to the distant cannon fire. Though the gunfire from ten *li* away was somewhat muffled, he listened with complete concentration, straining to judge the battle's progress from the sounds.
+Ten *li* distant, Xiong Wenchan listened intently to the muffled cannon fire. Though distance softened the reports, he strained with complete concentration, attempting to divine the battle's progress from sound alone.
 
-Dispatches arrived continuously: Naval Patrol Lieutenant Cao Bajiao's fire-ships had launched; the pirates were bombarding the fire-ship squadron; the river surface was covered in thick smoke, and the pirate warships could no longer be seen clearly...
+Dispatches arrived in steady succession: Naval Patrol Lieutenant Cao Bajiao's fire-ships had launched; the pirates were bombarding the fire-ship squadron; thick smoke blanketed the river surface, obscuring the pirate warships from view...
 
-Each time these vague dispatches arrived, the legal secretaries in the Governor's headquarters would snatch them eagerly after Xiong Wenchan had read them, huddling together to discuss, as if trying to extract unfavorable news for the pirates from these fragments.
+Each time these fragmentary reports arrived, the legal secretaries crowding the Governor's headquarters would snatch them eagerly after Xiong Wenchan finished reading, clustering together to dissect every phrase, as if they might extract some nugget of unfavorable news for the pirates from these scraps.
 
-A few would pace thoughtfully before the wall map, stroking their beards, as if they still harbored stratagems in their minds.
+A few paced thoughtfully before the wall map, stroking their beards in contemplation, as though they still harbored stratagems within their minds capable of turning the tide.
 
-Only Xiong Wenchan himself knew clearly that these legal secretaries were as helpless as he was. Apart from hoping the fire-ships would achieve a great victory, they had no brilliant schemes whatsoever against the pirates.
+Only Xiong Wenchan himself understood clearly that these legal secretaries were as helpless as he. Beyond hoping the fire-ships would achieve spectacular victory, they possessed no brilliant schemes whatsoever against the pirates.
 
-He recalled how Chang Qingyun had once suggested manufacturing "River Dragons" and similar mines—not only for river blockades but also to drift downstream. Yet the mines that had been trial-produced under Chang Qingyun's supervision, following diagrams from the *Wubei Zhi* (Records of Armaments), had problems: either the fuse timing was wrong—too early or too late—or the waterproofing failed. Poor sealing let in water; too-tight sealing smothered the ignition flame. No matter the inducements of gold or the threats of flogging, the craftsmen simply could not produce satisfactory products. Even when they occasionally made one that worked, two or three *jin* of gunpowder couldn't even breach thick hull planking. Adding more powder meant the mine couldn't float.
+He recalled Chang Qingyun's earlier suggestion to manufacture "River Dragons" and similar mines—not merely for river blockades but also to drift downstream against enemy vessels. Yet the mines trial-produced under Chang Qingyun's supervision, following diagrams from the *Wubei Zhi* (Records of Armaments), had proven catastrophically defective: either the fuse timing failed—detonating too early or too late—or the waterproofing collapsed. Poor sealing admitted water; overly tight sealing smothered the ignition flame. Regardless of inducements in gold or threats of flogging, the craftsmen simply could not produce satisfactory devices. Even when they occasionally fabricated one that functioned, two or three *jin* of gunpowder couldn't even breach thick hull planking. Adding more powder rendered the mine too heavy to float.
 
-Everyone said the Australians were nothing but "ingenious tricks and wicked skills"—but at this moment, how Xiong Wenchan wished those craftsmen had even a little of such skill!
+Everyone dismissed the Australians as mere practitioners of "ingenious tricks and wicked skills"—yet at this moment, how desperately Xiong Wenchan wished those craftsmen possessed even a fraction of such capability!
 
-*Useless wretches! They only know how to draw pay, and when they fail, they grovel and beg for mercy!* At one point, Xiong Wenchan had been tempted to behead a few craftsmen to make an example. In the end, Chang Qingyun had dissuaded him—but each man had received eighty strokes of the military rod, and the Gaoyao county magistrate was ordered to recover their wages.
+*Useless wretches! They know only how to draw pay, and when they fail, they grovel and beg for mercy!* At one point, Xiong Wenchan had been tempted to execute several craftsmen as an example. In the end, Chang Qingyun had dissuaded him—but each man had received eighty strokes of the military rod, and the Gaoyao county magistrate was ordered to recover their wages.
 
-Useless as they were, craftsmen who could manufacture firearms were scarce. He had already ordered that these artisans and their families be loaded onto boats and sent ahead to Wuzhou.
+Worthless as they were, craftsmen capable of manufacturing firearms remained scarce. He had already ordered these artisans and their families loaded onto boats and sent ahead to Wuzhou.
 
-Chang Qingyun also listened silently to the cannon fire. The deep thunder was the Australians' naval guns; the staccato crackle was their rapid-fire guns and rifles. No question—the pirate flotilla was attacking the fire-ships.
+Chang Qingyun also listened in silence to the cannon fire. The deep, rolling thunder—those were Australian naval guns; the staccato crackling—their rapid-fire guns and rifles. No question: the pirate flotilla was engaging the fire-ships.
 
-He had more experience than most legal secretaries and knew fire-ships were useless on open water. But Antelope Gorge's narrow channel and the advantage of the current gave him some hope.
+He possessed more battlefield experience than most legal secretaries and knew fire-ships were useless on open water. But Antelope Gorge's constricted channel and the advantage of the current had given him slim hope.
 
-If they could burn even a few pirate vessels, at least the Ming could show the pirates that they were a force to be reckoned with—future negotiations wouldn't be so one-sided! At this point, Chang Qingyun hadn't even considered the words "defeating the pirates." In his view, that was impossible. Only by making them pay a price for every victory would negotiations become feasible.
+If they could immolate even a few pirate vessels, at least the Ming could demonstrate to the pirates they remained a force warranting respect—future negotiations wouldn't be quite so one-sided! At this juncture, Chang Qingyun hadn't even permitted himself to consider the words "defeating the pirates." In his estimation, that lay beyond possibility. Only by exacting a price for every victory would negotiations become feasible.
 
-"Your Excellency, the gunfire has stopped," a secretary remarked.
+"Your Excellency, the gunfire has ceased," a secretary remarked.
 
-Xiong Wenchan nodded slightly to show he was aware. From Kuixing Tower, he could see black smoke rolling from the direction of Antelope Gorge. Obviously the fire was substantial—could the enemy ships have caught fire? The secretaries all nursed this hope, watching tensely.
+Xiong Wenchan nodded slightly in acknowledgment. From Kuixing Tower, he could observe black smoke roiling from Antelope Gorge's direction. Obviously the conflagration was substantial—could enemy ships have caught fire? The secretaries all nursed this desperate hope, watching with mounting tension.
 
-Another dispatch arrived: *The river surface is covered in black smoke and blazing flames; pirate vessels are completely engulfed in fire...*
+Another dispatch arrived: *The river surface is shrouded in black smoke and blazing flames; pirate vessels are completely engulfed in fire...*
 
-"Excellent!" Xie Shiming was the first to cheer. "Congratulations, Your Excellency! The pirate ships must all be on fire!"
+"Excellent!" Xie Shiming was first to exult. "Congratulations, Your Excellency! The pirate ships must all be burning!"
 
-With that, waves rippled through the room. Secretaries and officers rose and echoed enthusiastically:
+With that, excitement rippled through the chamber. Secretaries and officers rose, echoing enthusiastically:
 
-"Your Excellency's brilliant foresight—laughing, the pirates have been reduced to ashes!"
+"Your Excellency's brilliant foresight—the pirates have been reduced to ashes while you laughed!"
 
 "Zhou Yu and Zhuge Liang reborn could not have done better!"
 
-"That's not quite right! Did Cao Cao's forces have rapid-fire guns and giant warships? Zhou Yu and Zhuge Liang fall far short!"
+"That's not quite apt! Did Cao Cao's forces possess rapid-fire guns and giant warships? Zhou Yu and Zhuge Liang fall far short of this achievement!"
 
-"The pirates have boasted of being undefeated since they first took up arms. Today they finally fall to Your Excellency's hand!"
+"The pirates have boasted of remaining undefeated since first taking up arms. Today they finally fall to Your Excellency's hand!"
 
 ...
 
-The atmosphere in Kuixing Tower shifted from somber to rather relaxed. Only Chang Qingyun remained silent. He knew well: "flames covering the river" didn't necessarily mean Australian ships were burning. Australian warships all carried guns and had substantial gunpowder aboard. Yet the dispatch only mentioned "flames covering the river"—and no detonations of powder magazines had been heard. This meant the pirate vessels had not yet been damaged.
+The atmosphere in Kuixing Tower shifted from somber to markedly relaxed. Only Chang Qingyun remained silent. He understood perfectly: "flames covering the river" didn't necessarily signify Australian ships burning. Australian warships all mounted guns and carried substantial gunpowder aboard. Yet the dispatch mentioned only "flames covering the river"—and no detonations of powder magazines had been heard. This meant the pirate vessels had not yet sustained damage.
 
-Xiong Wenchan's expression also brightened, but as a frontier governor he prided himself on keeping his emotions hidden. He merely stroked his beard silently and ordered more scouts sent to ascertain the truth.
+Xiong Wenchan's expression also brightened, though as a frontier governor he prided himself on maintaining inscrutability. He merely stroked his beard in silence and ordered additional scouts dispatched to ascertain the truth.
 
-"Damn it," Schneider cursed. Smoke from the burning fire-ships stung his eyes nearly shut; visibility had plummeted. Blazing straw swirled upward, scattering sparks everywhere. Had the ammunition boxes not been ordered sealed before combat, the propellant charges might well have been ignited.
+\*\*\*
 
-Sparks had set fire to much of the fabric aboard. Though the canvas sails had been furled before battle, many of the *Zhujiang's* signal flags were now burned through with holes.
+"Damn it," Schneider cursed viciously. Smoke from the burning fire-ships stung his eyes nearly shut; visibility had collapsed. Blazing straw swirled upward on thermal currents, scattering sparks in every direction. Had the ammunition boxes not been ordered sealed before engagement, the propellant charges might well have ignited.
 
-Schneider paced the bridge, struggling to observe his surroundings. The dense smoke worried him—not only did it shorten reaction time for evading fire-ships, but it also left him unable to assess the condition of his vessels.
+Airborne sparks had set fire to much fabric aboard. Though the canvas sails had been furled before battle, many of *Zhujiang's* signal flags now hung riddled with burn holes.
 
-"Fire control!" Ruan Xiaowu issued orders while scanning the river. Burning ships drifted everywhere. Though sailors on the *Zhujiang* pushed fire-ships away from the bow, collisions still occurred. Each impact knocked burning straw from the fire-ships onto the deck—sometimes enough to carpet it with flames.
+Schneider paced the bridge, struggling to observe his surroundings through the choking pall. The dense smoke worried him profoundly—not only did it compress reaction time for evading fire-ships, but it also left him blind to his vessels' conditions.
 
-Fortunately, though straw fires burned fiercely, they lacked staying power. Quick action by the sailors soon reduced them to black ash.
+"Fire control!" Ruan Xiaowu issued orders while scanning what little of the river remained visible. Burning ships drifted everywhere. Though sailors on *Zhujiang* pushed fire-ships away from the bow using poles, collisions still occurred. Each impact knocked burning straw from the fire-ships onto the deck—sometimes enough to carpet entire sections in flames.
 
-Even so, the situation was perilous. Sweat beaded on Ruan Xiaowu's face as he shouted commands continuously.
+Fortunately, though straw fires burned ferociously, they lacked endurance. Swift action by the sailors soon reduced them to black ash.
 
-Through the smoke came the urgent distress whistles of vessels in trouble. Schneider's heart clenched. From the whistles, perhaps two or three gunboats had caught fire—yet he could only approximate their positions by sound, unable to see which boats were in distress or how serious the situation was.
+Even so, the situation teetered on the razor's edge. Sweat streamed down Ruan Xiaowu's face as he bellowed commands continuously.
 
-Suddenly a gust of wind swept through, dispersing the black smoke shrouding the gorge. Now Schneider could see the scene around him: burning, drifting fire-ships everywhere, some already grounded on the banks, others entangled after colliding, forming blazing piles that rotated slowly in the current, floating downstream.
+Through the smoke drifted the urgent distress whistles of vessels in crisis. Schneider's heart clenched. From the whistles' patterns, perhaps two or three gunboats had caught fire—yet he could only approximate their positions by sound, unable to see which craftwere in distress or assess the severity.
 
-Schneider's heart sank. In the leading group, the 67-type large landing craft was surrounded by several fire-ships. Flames had already consumed the forward deck. Sailors stood on the still-unburned bridge and turret, desperately beating at the flames. But the fire was growing fiercer, nearly reaching the central wheelhouse.
+Suddenly a gust swept through the gorge, dispersing the black smoke that had shrouded them. Now Schneider could see the scene unfolding: burning fire-ships drifting everywhere, some already run aground on the banks, others entangled after colliding, forming blazing clusters that rotated slowly in the current while floating downstream.
+
+Schneider's heart sank. In the leading group, the 67-type large landing craft was surrounded by multiple fire-ships. Flames had already consumed the forward deck. Sailors stood on the still-unburned bridge and turret, desperately beating at the advancing fire. But the conflagration was intensifying, nearly reaching the central wheelhouse.
 
 "Signal 67 to abandon ship!"
 
-Though he was reluctant, at this point further rescue efforts would only cost sailors' lives. He cursed inwardly—if only these small boats had radios like the larger warships, he could monitor each vessel's situation in real-time instead of relying on flag and lamp signals alone.
+Though it pained him, at this point further rescue efforts would only waste sailors' lives. He cursed inwardly—if only these small boats carried radios like the larger warships, he could monitor each vessel's situation in real-time instead of relying on primitive flag and lamp signals.
 
-"Bastards!" Schneider swore. He saw that Boat 41 was also ablaze but still attempting damage control. He quickly ordered: "Order 41 to abandon ship! Now!"
+"Bastards!" Schneider swore again. He saw that Boat 41 was likewise ablaze yet still attempting damage control. He quickly ordered: "Order 41 to abandon ship! Immediately!"
 
-Boat 41 had been towed clear of the jumbled fire-ships by nearby gunboats, but it was engulfed in flames from bow to stern. Its captain and sailors were trying to save the craft, desperately beating at the flames from a small section of the aft deck not yet burning. Several nearby gunboats closed in; sailors lowered hand pumps and trained water jets on the blaze.
+Boat 41 had been towed clear of the tangled fire-ships by nearby gunboats, but flames engulfed it from bow to stern. Its captain and sailors were trying to save the craft, desperately beating at the fire from a small section of aft deck not yet burning. Several nearby gunboats closed in; sailors lowered hand pumps and trained water jets on the blaze.
 
-Suddenly, a white flash lit the midsection of Boat 41, followed by a violent explosion that echoed across the river—the ammunition had detonated. The blast tore the hull to shreds. In an instant, everything above the waterline vanished. A fragment of hull plating crashed onto the *Zhujiang's* deck, still smoking faintly.
+Suddenly, a white flash illuminated Boat 41's midsection, followed by a thunderous explosion that rolled across the river—the ammunition had detonated. The blast tore the hull to fragments. In an instant, everything above the waterline simply ceased to exist. A section of hull plating crashed onto *Zhujiang's* deck, still trailing wisps of smoke.
 
-The captain and sailors disappeared instantly in the explosion's flames. An arm dropped past Schneider's eyes into the river.
+The captain and sailors vanished in the explosion's flame. A severed arm arced past Schneider's eyes and splashed into the river.
 
-"Signal the trailing vessels: recover the martyrs' remains!" Schneider gripped the bridge railing tightly and gave the order.
+"Signal the trailing vessels: recover the martyrs' remains!" Schneider gripped the bridge railing until his knuckles whitened and issued the order.
 
 ---
 

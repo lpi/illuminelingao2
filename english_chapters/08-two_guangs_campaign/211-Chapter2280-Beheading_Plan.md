@@ -1,98 +1,100 @@
 # Chapter 2280: Beheading Plan
 
-Liu Youwang said: "He is a *Juren*, you are also a *Juren*; this is just suitable!"
+Liu Youwang said, "He was a *Juren*, you're also a *Juren*—it's a perfect match!"
 
-Chang Qingyun didn't know what Liu Youwang's "just suitable" meant; had to vaguely say: "...Yes..."
+Chang Qingyun had no idea what Liu Youwang meant by "perfect match," so he could only offer a vague, "...Yes..."
 
-Liu Youwang got up stretching waist; a burst of sweat stink mixed with wine stink pounced on face, becoming more dense. Chang Qingyun dared neither cover nose, nor make disdainful appearance.
+Liu Youwang rose and stretched, releasing a wave of stale sweat mingled with wine fumes that assaulted Chang Qingyun's face. The stench grew thicker by the moment, but Chang Qingyun dared neither cover his nose nor let any hint of disgust show.
 
-"Sun Qiaoniang, you recognize?"
+"Sun Qiaoniang—you know her?"
 
-Chang Qingyun secretly cried bad; bracing scalp said: "Just lives next door to me... is Registrar Sun’s daughter."
+Chang Qingyun's heart sank. Steeling himself, he replied, "She lives next door to me... Registrar Sun's daughter."
 
-"I, want to marry Sun Qiaoniang as wife..." Liu Youwang said.
+"I intend to take Sun Qiaoniang as my wife," Liu Youwang announced.
 
-Chang Qingyun heart tightened; dared not take his words.
+Chang Qingyun's chest tightened. He didn't dare respond.
 
-"...Although I am Camp Manager, also can't do matter of forcefully occupying other's woman—moreover she is official family's daughter. More or less leave some face. So plan to marry home bright media uprightly." Probably feeling itchy, Liu Youwang scratched chest, "Just this little girl stubborn very, insisting resolutely not marry without elder making decision. Registrar Sun, happened to hang himself dead again; this place only her a distant cousin and a little mother, neither proper elders; no one can make decision. I see, you just count as Sun Qiaoniang’s adopted father. Her father was a *Juren*, you are also *Juren*, not counting disgracing her."
+"Though I'm a Camp Manager, I can't just seize another man's woman by force—especially not an official's daughter. One must leave some face. So I plan to marry her properly, with formal matchmaking." Liu Youwang scratched at his chest absently. "The problem is this stubborn girl insists she won't marry without an elder's blessing. Registrar Sun went and hanged himself, and all she has left is a distant cousin and a stepmother—no proper elders. Nobody to give consent. So I've decided: you'll be her adoptive father. Her father was a *Juren*, you're a *Juren*—it won't disgrace her."
 
-Chang Qingyun dumbfounded: What routine was this?
+Chang Qingyun was dumbfounded. What kind of absurd scheme was this?
 
-"This... Student and Registrar Sun family never knew each other ah..." Chang Qingyun shook head repeatedly, "No relative no cause, how Student act as her elder? Sun family also can't agree..."
+"But... I never knew Registrar Sun's family at all..." Chang Qingyun shook his head repeatedly. "We have no connection whatsoever. How could I act as her elder? The Sun family would never agree..."
 
-"Fart! You live right next door to his daughter, what never knew each other?" Liu Youwang said, "Whether Sun family willing or not counts a ball! You don't chatter! Just settled like this! Go back tidy up, change a body of clean clothes. Evening I call Qiaoniang to kowtow you as adopted father!"
+"Bullshit! You live right next door to his daughter—what do you mean 'never knew them'?" Liu Youwang snapped. "Whether the Sun family agrees or not doesn't matter one damn bit! Stop your yammering! It's settled! Go back and clean yourself up, put on some decent clothes. Tonight I'll have Qiaoniang come kowtow to you as her adoptive father!"
 
-Chang Qingyun had heart to refuse; however he knew Liu Youwang’s methods; if he said a "No" word, he had plenty of ways to torment self. Had to lower head answering.
+Chang Qingyun wanted to refuse, but he knew Liu Youwang's methods all too well. One word of refusal, and the man had endless ways to make him suffer. He had no choice but to bow his head in submission.
 
-Liu Youwang picked up a stack of token coupons, flinging casually, thrown on ground.
+Liu Youwang grabbed a stack of ration coupons and flung them carelessly to the floor.
 
-"You take these token coupons, get a body of good clothes first! Get some good wine and food again! You count as my adopted father-in-law too, have to be decent!" Saying so laughed loudly.
+"Take these coupons and get yourself some decent clothes. Pick up some good wine and food too. You'll be my father-in-law after all—you need to look the part!" He burst into raucous laughter.
 
-Chang Qingyun flew into rage; had heart to curse loudly "Villain unreasonable!" yet dared not open mouth; containing shame enduring humiliation picked up token coupons retreating out.
+Chang Qingyun burned with rage. He longed to curse aloud—*Villain! Scoundrel!*—but dared not open his mouth. Swallowing his shame and humiliation, he gathered up the scattered coupons and retreated from the room.
 
-Returning to lodging soul lost spirit scattered. Chang Qingyun had no heart to paint anymore; lying down on bed, heart resentful uneven. This Hair thief really trampled scholars ah! He thought in heart, forcing official family own wives and daughters to sell smiles didn't count; now came to force marriage again! He fundamentally didn't believe any "Bright Media Upright Marrying." Liu Youwang this person background humble not to say; this person's character consistently extremely bad. In camp coercing and bribing, occupying women was common matter; all day long drinking and partying, playing tired then discarding. This so-called bright media upright wedding probably was because Sun Qiaoniang resisted firmly not complying; he feared bearing crime of "Rape" so made it. Australians punished subordinates raping extremely strictly; this Liu Youwang probably had some scruples.
+He returned to his quarters utterly dispirited. Chang Qingyun had no heart for painting anymore. He collapsed onto his bed, chest churning with resentment. These Hair thieves truly trampled scholars underfoot! First they forced officials' wives and daughters into degradation, and now this—forced marriage! He didn't believe for a moment any "formal matchmaking" was genuine. Liu Youwang came from humble origins, and his character had always been utterly vile. In the camp, he was notorious for coercion and bribery, for taking women and discarding them when he grew tired of his sport. This so-called proper wedding was surely because Sun Qiaoniang had resisted so fiercely that he feared being charged with rape. The Australians punished such crimes among their subordinates severely—Liu Youwang must have had some apprehension on that score.
 
-Self coming to be this "Adopted Father," wasn't it aiding King Zhou to do evil!
+And now Chang Qingyun was being made an "adoptive father" to legitimize this atrocity—wasn't that aiding a tyrant in his evil?
 
-Sun family and him had no dealings; let alone when Registrar Sun lived, even becoming neighbors in this camp, he and Qiaoniang didn't speak few sentences. However at this moment, Liu Youwang’s "Forced Marrying," made him feel skin-cutting "Pain of Destroyed Nation."
+He had no dealings with the Sun family. Even when Registrar Sun was alive, and even as neighbors in this camp, he and Qiaoniang had exchanged hardly a few words. Yet at this moment, Liu Youwang's forced marriage made him feel the searing agony of a conquered nation.
 
-Rabbit dies fox grieves; to what extent scholars had to be trampled, Hair thieves could be satisfied?!
+*When the rabbit dies, the fox grieves.* To what depths must scholars be trampled before these Hair thieves would be satisfied?
 
-He thought about whether to go find True Hair to sue through Zhao Fengtian. But he was just a captive; Liu Youwang was a senior "Fake Hair." Even suing, even suing down Liu Youwang, Australians wouldn't punish him with heavy crime—he wanted to marry bright media uprightly! Self would form feud with Liu Youwang instead.
+He considered reporting this to the True Hairs through Zhao Fengtian. But he was merely a captive, while Liu Youwang was a senior "Fake Hair." Even if he filed a complaint, even if it succeeded, the Australians wouldn't punish Liu Youwang harshly—after all, the man claimed he wanted to marry her properly! Chang Qingyun would only make an enemy of Liu Youwang for nothing.
 
-Must do them like Yi Haoran! Otherwise, really thinking we scholars were easy to bully?!
+*We must do as Yi Haoran did!* Otherwise, do they really think scholars are so easily bullied?
 
-Originally he quite disapproved of Yi Haoran’s behavior, resentful he dragged self into water hard. This moment long lost hot blood filled his chest again.
+He had once rather disapproved of Yi Haoran's actions, resenting how the man had dragged him into this against his will. But now, that long-dormant fire blazed up in his chest once more.
 
-However thinking again, he cooled down. Self was just a scholar; hard butting Liu Youwang this Devil Star besides being pulled to interaction to strip pants suffering whips publicly or worse—hanged alive, letting Hair thieves laugh at self "Not measuring own strength"—wouldn't have other results. Wanting to do must do Hair thieves painful! Let them see scholars not to be bullied!
+Yet upon further reflection, he cooled down again. He was just a scholar. Confronting Liu Youwang directly would only result in being dragged out and publicly whipped with his trousers stripped off—or worse, hanged—while the Hair thieves laughed at his "overreaching." No other outcome was possible. If he was going to act, he had to strike where it hurt! Let them see that scholars were not to be trifled with!
 
-Thinking here, he desperately wanted to see Yi Haoran.
+Thinking thus, he desperately wanted to see Yi Haoran.
 
-Yi Haoran lobbying in Dragon Mother Temple, provoked Cai Lan six gods no master. On spot he didn't let Cai Lan join gang—right now he still couldn't trust Cai Lan; dared not reveal true intention to her. But he could tell, this little woman's heart already rekindled flame of revenge. And agreed to contact again through Jiang Qiuchan in future.
+---
 
-As long as having this flame, once time arrived, naturally would be useful!
+Yi Haoran's persuasion at Dragon Mother Temple had left Cai Lan thoroughly shaken. He hadn't invited her to join his conspiracy on the spot—he still couldn't trust her completely and dared not reveal his true intentions. But he could tell that a flame of vengeance had been rekindled in this woman's heart. They agreed to communicate through Jiang Qiuchan in the future.
 
-Yi Haoran felt everything smooth, spirit rising even more. Now he already had Jiang Qiuchan—Cai Lan this line leading directly to Hair thief belly heart; also got support of warriors like Jiang Suo, Song Ming. Conditions to do a big job already ready. Next, was how to do a shocking earth shaking great deed!
+As long as that flame burned, it would prove useful when the time came.
 
-Three people discussed on small boat. Song Ming’s opinion was contacting various "Old People" in city—now these scattered officials and generals existed everywhere in city, number not few. Some even became Fake Hair. He proposed one side contacting all these people, one side sending people to Guangxi side to contact; asking Court to send great army over; here inside city after contacting well riot together, cutting pass seizing gate, recovering Wuzhou.
+Yi Haoran felt everything was falling into place, and his spirits soared. He now had Jiang Qiuchan and Cai Lan as his line directly into the Hair thieves' inner sanctum, along with warriors like Jiang Suo and Song Ming to support him. The conditions for a great undertaking were in place. The only question remaining was how to accomplish something truly earth-shattering.
 
-Under current status that Two Guangs officers and soldiers defeated completely, if having magnificent feat like recovering Wuzhou, comparable to Guangdong Victory in past.
+The three men conferred on a small boat. Song Ming's proposal was to contact various "old hands" throughout the city—scattered former officials and officers who were everywhere now, some having even become Fake Hairs themselves. He suggested reaching out to all of them while simultaneously sending messengers to Guangxi to coordinate with the Court. When the imperial army arrived, those inside the city would rise up together, seize the passes and gates, and reclaim Wuzhou.
 
-However Yi Haoran quickly denied his plan. Right now Guangxi side already routed not forming army; expecting them to send surprise troops over mountains and ridges again was almost impossible. Furthermore even if able to seize Wuzhou, light packed partial division definitely couldn't hold. And this plan wanting to succeed must recruit past scattered personnel widely. Plot involving more people, possibility of being sold bigger—especially under current war situation, receiving how many loyal and righteous scholars after all, this had to be weighed carefully.
+Given the complete rout the Two Guangs forces had suffered, recapturing Wuzhou would be a magnificent feat comparable to the great Guangdong Victory of the past.
 
-Yi Haoran’s train of thought was completely different. He believed right now they had few people, but had route able to reach Hair thief belly heart directly; greatly could imitate past event of Hou Dagou springing raid on Wuzhou.
+But Yi Haoran quickly rejected the plan. The Guangxi forces had been so thoroughly routed that expecting them to send a surprise force over mountains and ridges was nearly impossible. Even if they could take Wuzhou, a lightly-equipped detachment certainly couldn't hold it. Moreover, success would require recruiting widely among former personnel—and the more people involved in a conspiracy, the greater the chance of betrayal. Especially given the current state of the war, how many truly loyal scholars could they expect to find? That had to be weighed carefully.
 
-This past event Yi Haoran didn't know in past; learned only when reading former "Pacifying Yao" materials in Xiong Wencan Shogunate. Said in Seventh Year of Tianshun Hou Dagou led seven hundred people besieging Wuzhou Prefecture; attacking many times not overcoming. So pretended to retreat. Commander-in-chief Chen Jing relaxed guard. Then on November 13th this day deep night, Hou Dagou suddenly led elite soldiers climbing city from foot of Tea Mountain (North Mountain); entered city under reception of inside response; randomly raided Wuzhou Prefecture Yamen heavily guarded by heavy troops. Conquered Wuzhou Prefecture in one stroke. After entering city, righteous army looted everywhere, released prisoners; executed Wuzhou Prefecture Instructor Ren Qu, Administration Commissioner Song Qin; captured Chen Jing; took Deputy Commissioner Zhou Shu as hostage; then quickly retreated from Wuzhou city.
+Yi Haoran's thinking ran in an entirely different direction. They were few in number, he acknowledged, but they had a route directly into the enemy's heart. They could emulate Hou Dagou's surprise raid on Wuzhou from years past.
 
-Yi Haoran believed, their current situation was similar to Hou Dagou: only having small amount of elite soldiers, but having inside response. Defense in city lax; imitating Hou Dagou old trick, had seven points certainty.
+Yi Haoran had learned of this historical episode only while studying old "Yao Pacification" records in Xiong Wencan's Shogunate. In the seventh year of Tianshun, Hou Dagou had besieged Wuzhou Prefecture with seven hundred men, attacking repeatedly without success. He feigned retreat. Commander-in-Chief Chen Jing relaxed his guard. Then on the night of November thirteenth, Hou Dagou suddenly led his elite troops to scale the walls at the foot of Tea Mountain. With help from agents inside, they stormed the heavily-defended Wuzhou Prefecture Yamen and conquered the city in a single stroke. The rebel army looted freely, freed prisoners, and executed Prefecture Instructor Ren Qu and Administration Commissioner Song Qin. They captured Chen Jing, took Deputy Commissioner Zhou Shu hostage, and swiftly withdrew from the city.
 
-"Mr. Yi’s meaning is..." Whether Jiang Suo or Song Ming, all dumbfounded by this bold plan.
+Yi Haoran believed their current situation closely resembled Hou Dagou's: a small force of elite fighters with inside contacts, facing a city with lax defenses. Employing the same tactic, they had a seventy percent chance of success.
 
-"We sneak attack entering city, taking down Xie Erren in one stroke!" Yi Haoran killing aura surging said, "If convenient, capture him alive, take to Guangxi to offer captive; if tense, take his head!"
+"What exactly do you mean, Master Yi?" Both Jiang Suo and Song Ming were stunned by this audacious plan.
 
-Current situation, even if unable to recover Wuzhou; beheading or capturing a genuine True Australian, to Court naturally was rare good news; participating personnel needless to say everyone having great merit! Jiang Suo never mind; Song Ming’s eyes lit up immediately—this was much simpler than his "Recovering Wuzhou" plan, also much easier! He also knew gap between Ming army and Australian army; once garrison inside and outside city reacted, mere few thousand partial division might not be opponent of Australian. If unable to take down Wuzhou city, some of them not only no merit, instead had crime.
+"We infiltrate the city in a surprise attack and take down Xie Erren in one stroke!" Yi Haoran declared, his killing intent palpable. "If circumstances permit, we capture him alive and present him to the Court in Guangxi. If time is short, we take his head!"
 
-Comparing down, Advisor Yi’s plan of one hit then retreat was much more brilliant.
+Given the current situation, even if they couldn't recapture Wuzhou, beheading or capturing a genuine True Australian would be rare good news for the Court. Everyone involved would earn tremendous merit. Jiang Suo said nothing, but Song Ming's eyes lit up immediately. This was far simpler than his own "Recapture Wuzhou" plan—and far more achievable! He understood the gap between Ming forces and Australian forces; once the garrisons inside and outside the city reacted, a few thousand men in a partial detachment might not be a match for the Australians. If they failed to take Wuzhou, some of them would face not just absence of merit but actual punishment for failure.
 
-"Just taking down Xie Erren is not easy either..." Jiang Suo said, "National Army now has hundreds of people inside Wuzhou city; although many holding standard spears, training not good either. But Wuzhou still has a company outside city; inside city also has National Army. Even if we raid Three Headquarters successful, even if National Army inside city too late to block, Fubo Army outside city acting up, we also hard to escape..."
+By comparison, Advisor Yi's plan of striking hard and retreating immediately was far more brilliant.
 
-Fubo Army’s combat power, they had witnessed; no one had certainty to retreat with whole body under their pursuit.
+"Still, taking down Xie Erren won't be easy either..." Jiang Suo said. "The National Army now has several hundred men inside Wuzhou city. Though many carry only standard spears and aren't well-trained, there's still a company of Fubo Army stationed outside the city, plus National Army troops inside. Even if we successfully raid the Three Headquarters, even if the troops inside can't intercept us in time, the Fubo Army outside will move. We'd have a hard time escaping..."
 
-"So we have to find some things to do for them at Sanheui."
+They had all witnessed the Fubo Army's combat prowess. No one was confident of retreating intact under their pursuit.
 
-"Advisor’s meaning is?"
+"So we need to create a diversion for them at Sanheui."
 
-"Sanheui now has more than four thousand captives gathering; if able to incite them to riot, Hair thief army outside city will be pinned down."
+"What do you have in mind, Advisor?"
 
-"This is a good method." Jiang Suo nodded, "Just how to make captives riot? Australians manage captives very methodically."
+"There are more than four thousand captives at Sanheui right now. If we can incite them to riot, the Hair thief army outside the city will be pinned down."
 
-"This has to wait for opportunity." Actually this was also the strip Yi Haoran felt most thorny. Several thousand captives in captive camp, Australians neither abused, nor lacking food and clothes. Why riot? He pulled Chang Qingyun on boat now, but asking him to incite riot, neither had this guts, nor had this ability.
+"That's a good approach," Jiang Suo nodded. "But how do we make the captives riot? The Australians manage their prisoners very systematically."
 
-"If unable to incite riot, sending people to set fire directly how about?" Song Ming proposed. Sanheui captive camp was all brick wood grain grass construction, very easy to catch fire; once causing big fire, inevitably inducing chaos; garrison outside city equally could be pinned down.
+"We'll have to wait for the right opportunity." This was actually the aspect Yi Haoran found most troublesome. Several thousand captives in the camp, neither abused nor lacking food and clothing—why would they riot? He had brought Chang Qingyun into the fold, but the scholar had neither the courage nor the ability to incite an uprising.
 
-This method was much easier than inciting riot. But Yi Haoran had been to camp, knew setting fire wasn't that easy either. Australians managed camp extremely methodically; between various longhouses were certain intervals; also prepared water buckets soil bags. If fire points not many not prosperous, very easily would be extinguished.
+"If we can't start a riot, what about simply sending men to set fires?" Song Ming suggested. The Sanheui captive camp was all brick, wood, grain, and thatch—extremely flammable. A major fire would certainly cause chaos and pin down the garrison outside the city just as effectively.
 
-However he unwilling to sweep their interest at this moment, said: "This is also a method. Everyone think again. regardless of what method, as long as able to drag garrison outside city, we have winning chance!" He narrowed eyes slightly, said, "We think again, think again."
+This method was far easier than inciting a riot. But Yi Haoran had visited the camp and knew that setting fires wasn't so simple either. The Australians managed the camp with extreme efficiency; buildings were spaced at regular intervals, with water buckets and sandbags at the ready. If there weren't enough ignition points or the fires weren't fierce enough, they would be quickly extinguished.
+
+Still, he was reluctant to dampen their enthusiasm at this moment. "That's also a possibility. Let's all think it over. Regardless of the method, as long as we can tie down the garrison outside the city, we have a chance of victory!" He narrowed his eyes slightly. "We'll think on it. We'll think on it."
 
 ---
 **Next Update:** Volume 7 - Guangzhou Governance Part 484

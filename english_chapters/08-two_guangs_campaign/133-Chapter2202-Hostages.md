@@ -1,14 +1,14 @@
 # Chapter 2202 - Hostages
 
-Lingao—Peng Shou'an knew the place. It was the Australians' lair. "Sending the boy to Lingao for schooling" sounded fine, but was it not simply taking his son as a hostage? Never mind Lingao—even sending his child to Guangzhou was unacceptable. Once there, who knew if the boy would ever be seen again!
+Lingao—Peng Shou'an knew the place. It was the Australians' lair. "Sending the boy to Lingao for schooling" sounded pleasant enough, but wasn't it simply taking his son as a hostage? Never mind Lingao—even sending his child to Guangzhou was unacceptable. Once there, who knew if the boy would ever be seen again?
 
-He and his wife had been blessed with their precious son only in middle age. They had raised him with endless worry and fear until he turned nine, hoping he would one day care for them in their old age. If the boy went to Lingao, who knew how many years they would be separated—perhaps forever...
+He and his wife had been blessed with their precious son only in middle age. They had raised him with endless worry and care until he turned nine, hoping he would one day look after them in their old age. If the boy went to Lingao, who knew how many years they would be separated—perhaps forever...
 
 Peng Shou'an's voice shook: "This humble official has not been greatly corrupt in recent years, but I have taken a few thousand taels in bribes. I will return every *liang* of it. I will also surrender my meager personal savings—all of it—to the Council of Elders. I beg Your Honor to spare my son."
 
 "The Council of Elders does not expect everyone to emerge unsullied from the mire. Besides, you served Ming—it had nothing to do with Great Song. You have a decent reputation in Yangshan, so I will not pursue these old matters. The silver—keep it. I support that. But as I said, your son is at an age for schooling. Let him go to Lingao for proper study, and in the future he may become a pillar of our Great Song."
 
-Clearly, there was no room for negotiation. Peng Shou'an, abandoning all pretense of scholarly dignity, fell to his knees and kowtowed several times, his head striking the floor. "My son is still so young—please grant us a few more years!"
+Clearly, there was no room for negotiation. Peng Shou'an abandoned all pretense of scholarly dignity, fell to his knees, and kowtowed several times, his forehead striking the floor. "My son is still so young—please grant us a few more years!"
 
 Seeing this elderly man begging on his knees for his son's sake, Huang Chao felt a pang of sympathy. He helped him up:
 
@@ -40,11 +40,11 @@ This time, Huang Chao resolved to give Peng Shou'an and his fellow surrendered o
 
 Departure was set for three days hence. Huang Chao gave them time to pack. Returning to his lodgings, Peng Shou'an noticed someone missing from the courtyard. Looking carefully, he realized his personal secretary was gone.
 
-The secretary could have left at any time—he was free to go—but fearing unsafe roads, he had stayed with Peng Shou'an.
+The secretary could have left at any time—he was free to go—but fearing the unsafe roads, he had stayed with Peng Shou'an.
 
 Upon inquiry, Peng Shou'an learned that the secretary had been arrested for severe corruption and was now locked in the county jail.
 
-Secretaries earning gray income was routine in official circles; Peng Shou'an was not surprised. But the sudden arrest startled him. "Could this be a warning?"
+Secretaries earning gray income was routine in official circles; Peng Shou'an was not surprised. But the sudden arrest startled him. *Could this be a warning?*
 
 "How much did he embezzle?" Peng Shou'an asked his old steward.
 

@@ -1,97 +1,99 @@
 # Chapter 2170 - Assembling the Troops
 
-"Bring them along for work detail; get the paperwork done."
+"Bring them along for work detail—get the paperwork completed."
 
-After giving instructions, the logistics officer pushed his cap back on his head and hurried toward the dock, shouting all the way, "...Don't push! Rushing off to be reincarnated or what? This is the army! Attention! No talking!..."
+After issuing instructions, the logistics officer pushed his cap backward and hurried toward the dock, shouting continuously, "Don't push! Rushing off to be reincarnated or what? This is the army! Attention! No talking!..."
 
-"If they give us forty greenhorns, that'll be something to see..." Luo Mao said quietly.
+"If they give us forty greenhorns, that'll prove interesting..." Luo Mao muttered quietly.
 
-"At least we'll have guns," Li Dong said. "We need to ramp up training soon—I have a feeling this time we're going to fight a big battle."
+"At minimum we'll possess guns," Li Dong replied. "We need ramping up training soon. I sense this time we're fighting a major battle."
 
-"Don't worry, I'll make sure to drill them within an inch of their lives. Night drills tonight to loosen their bones."
+"Don't worry—I'll drill them within an inch of their lives. Night drills tonight to loosen their bones."
 
 "Mm," Li Dong nodded.
 
-Li Dong was new here and had a pile of paperwork to deal with. He told Luo Mao to stay at the camp and handle billeting while he took twenty soldiers for "work detail."
+Li Dong was new here, confronting accumulated paperwork. He instructed Luo Mao remaining at camp handling billeting while he took twenty soldiers for "work detail."
 
-The temporary camp was set up outside Zhaoqing city, but the logistics station office was inside the city. Li Dong led twenty soldiers into the city.
+The temporary camp stood outside Zhaoqing city, but the logistics station office resided inside. Li Dong led twenty soldiers into the city.
 
-As the seat of the Forward Command, Zhaoqing had become a great garrison. Troops and supplies arriving from Sanshui, wounded being evacuated from the front, and prisoners all stopped here temporarily. The wasteland along the river outside the city had all been requisitioned and covered with dense camps and cargo depots. Newly built dirt roads were bustling with vehicles and pedestrians.
+As Forward Command seat, Zhaoqing had transformed into a great garrison. Troops and supplies arriving from Sanshui, wounded evacuating from the front, and prisoners all stopped here temporarily. Wasteland along the river outside the city had undergone requisition, now covered with dense camps and cargo depots. Newly constructed dirt roads bustled with vehicles and pedestrians.
 
-Inside Zhaoqing city, pedestrians were sparse. Only National Army patrols walked the streets. Shops were open but mostly only half their facades, giving a desolate appearance.
+Inside Zhaoqing city, pedestrians proved sparse. Only National Army patrols walked the streets. Shops operated but mostly opened only half their facades, projecting desolate appearances.
 
-At every street corner and alley, there were fortified checkpoints constantly checking identification. Li Dong had already learned from other passing soldiers that the area around Zhaoqing was also unstable. Scattered troops and bandits had once been quite troublesome, and villagers from surrounding areas had flooded into the city to seek refuge. Order in the city had been chaotic for a time. Only after the National Army fully reinforced did the situation around them stabilize. The gentry and commoners hiding in the city gradually returned to their homes, and order in the city gradually improved.
+At every street corner and alley, fortified checkpoints constantly checked identification. Li Dong had already learned from other passing soldiers that areas around Zhaoqing also remained unstable. Scattered troops and bandits had once proven quite troublesome; villagers from surrounding areas had flooded cityward seeking refuge. City order had descended into chaos temporarily. Only after National Army full reinforcement did surrounding situations stabilize. Gentry and commoners hiding in the city gradually returned home; city order gradually improved.
 
-Li Dong arrived at the logistics station, submitted his forms and requisition orders, and quickly received the supplies allocated to them. Besides weapons and ammunition to equip everyone, they also received a small number of hand grenades.
+Li Dong arrived at the logistics station, submitted forms and requisition orders, rapidly receiving allocated supplies. Besides weapons and ammunition equipping everyone, they also received minimal hand grenades.
 
-The allocation also included a pair of new military shoes for each man, puttees, and three days' worth of "field rations." This completely confirmed his guess about "a big battle coming."
+Allocations additionally included one pair of new military shoes per man, puttees, plus three days' "field rations." This confirmed completely his "major battle approaching" conjecture.
 
-Back at the camp, the replacement soldiers had already arrived: forty men total, in two ranks. Li Dong looked over the roster; ages ranged from seventeen to forty. While they were a mix of young and old, the roster notes indicated they had all received eight weeks of basic infantry training.
+Returning to camp, replacement soldiers had already arrived: forty men total, in two ranks. Li Dong reviewed the roster; ages ranged seventeen to forty. Though constituting youth-and-age mixtures, roster notes indicated all had received eight weeks' basic infantry training.
 
-Li Dong examined their faces and physiques one by one. Though they were somewhat thin and weak overall, they seemed fairly sturdy and capable.
+Li Dong examined their faces and physiques sequentially. Though somewhat thin and weak overall, they seemed reasonably sturdy and capable.
 
 "What's your name, Private?"
 
-"Yes! Report, sir, my name is Ma Lai!" The soldier who was called out puffed out his chest and shouted his reply.
+"Yes! Report, sir—my name is Ma Lai!" The summoned soldier puffed out his chest, shouting his reply.
 
 "At ease," Li Dong asked. "Have you fired a gun?"
 
-"Report! One week of Nanyang rifle training, forty dry-fire exercises, five live-fire exercises!"
+"Report! One week Nanyang rifle training, forty dry-fire exercises, five live-fire exercises!"
 
 "How old are you?"
 
-"Report, nineteen!"
+"Report—nineteen!"
 
-"Very good!" Li Dong nodded and walked to the front of the formation:
+"Excellent!" Li Dong nodded and walked formation-forward:
 
-"Starting today, you are officially inducted into the Wuzhou National Army Battalion Composite Company!" Li Dong scanned the soldiers before him with his eyes. "Our unit was newly formed, but it has already been tested in battle! We have an honorable record! I don't care what you did before—whether you were soldiers or civilians. Since you're joining this unit today, forget all the old army and civilian ways and habits immediately! Become proper soldiers under the Senate's command!"
+"Starting today, you are officially inducted into the Wuzhou National Army Battalion Composite Company!" Li Dong scanned the soldiers before him. "Our unit was newly formed, but it has already received battle baptism! We possess an honorable record! I don't care what you did previously—whether soldiers or civilians. Since you're joining this unit today, forget all old-army and civilian methods and habits immediately! Become proper soldiers under Senate command!"
 
-After the speech, Li Dong had Luo Mao take the new soldiers to the riverside for drill. He himself returned to the tent to handle the paperwork for equipment replenishment. Just then, a messenger arrived from outside.
+After the speech, Li Dong had Luo Mao take new soldiers riverside for drill. He himself returned tentward handling equipment replenishment paperwork. Just then, a messenger arrived from outside.
 
-"Report to the West Guangdong Forward Command for a meeting immediately."
+"Report to West Guangdong Forward Command for a meeting immediately."
 
-The West Guangdong Forward Command, which also served as the First Brigade Headquarters, was set up in the Guan Di Temple at the Water Force Camp outside the East Gate. When Li Dong arrived at the Guan Di Temple, he found many officers had come, including National Army officers as well as Fubo Army officers. Under the covered walkway stood several Senators.
+West Guangdong Forward Command, also serving as First Brigade Headquarters, occupied the Guan Di Temple at the Water Force Camp outside East Gate. When Li Dong arrived at Guan Di Temple, he discovered numerous officers had come—including National Army officers and Fubo Army officers. Under the covered walkway stood several Senators.
 
-The Brigade staff officer announced that Chief Zhu was studying the map and asked everyone to wait a moment. Gathering so many officers together couldn't just be for a speech; there had to be an important military operation to be deployed, Li Dong thought.
+The Brigade staff officer announced Chief Zhu was studying the map and requested everyone wait momentarily. Gathering so many officers together couldn't merely be for speeches; an important military operation required deployment, Li Dong reflected.
 
-At this moment, a huge map of West Guangdong hung on the wall of the Brigade headquarters. On the table lay several old-timeline satellite photos that were specially allocated as controlled materials. The glass plate covering the map was covered with colorful markers that had been drawn and wiped so many times they were getting smudged. Zhu Mingxia, dressed impeccably in his major general uniform, was pacing around the table.
+At this moment, a huge West Guangdong map hung on Brigade headquarters walls. On the table lay several old-timeline satellite photos specially allocated as controlled materials. The glass plate covering the map was covered with colorful markers drawn and wiped so many times they were getting smudged. Zhu Mingxia, dressed impeccably in his major general uniform, paced around the table.
 
-After the Eight Row Yao uprising in April, Yao people throughout West Guangdong had risen in response. Although Zhu Mingxia had accepted the surrender of garrison troops abandoned by Xiong Wencan at various locations as soon as he occupied Zhaoqing—granting them nominal status and managing to supplement some pay and provisions—the complete withdrawal of Xiong Wencan's Ming army field forces had caused the entire "Yao suppression" system along the West River to collapse. Distress messages from the various Ming forces they had absorbed came flying to Zhaoqing like snowflakes. Some county seats that had already surrendered were captured by Yao militias. The Yao uprising had erupted on a scale far exceeding historical records.
+Following the Eight Rank Yao uprising in April, Yao people throughout West Guangdong had risen in response. Though Zhu Mingxia had accepted surrenders from garrison troops abandoned by Xiong Wencan at various locations immediately upon occupying Zhaoqing—granting them nominal status, managing to supplement some pay and provisions—the complete withdrawal of Xiong Wencan's Ming army field forces had caused the entire "Yao suppression" system along the West River to collapse. Distress messages from various absorbed Ming forces flew toward Zhaoqing like snowflakes. Some county seats having already surrendered were captured by Yao militias. The Yao uprising had erupted at scales far exceeding historical records.
 
-As if Zhu Mingxia's pressure wasn't enough, due to the Senate's advance and the Eight Row Yao uprising, large numbers of Ming soldiers had scattered into the countryside, quickly merging with rural bandits and ruffians to form countless bandit gangs that pillaged everywhere. If the Eight Row Yao uprising was limited to the Sanlian region between Hezhou and Shaoguan in northwestern Guangdong, the subsequent bandit disturbances affected every county along the entire West River basin. Traces of major bandit groups had even reached Sanshui.
+As though Zhu Mingxia's pressure wasn't adequate, due to Senate advances and the Eight Rank Yao uprising, large numbers of Ming soldiers had scattered countryside ward, rapidly merging with rural bandits and ruffians forming countless bandit gangs pillaging everywhere. If the Eight Rank Yao uprising remained limited to the Sanlian region between Hezhou and Shaoguan in northwestern Guangdong, subsequent bandit disturbances affected every county along the entire West River basin. Major bandit groups' traces had even reached Sanshui.
 
-Facing this situation of chaos erupting on all sides and smoke rising in every direction, Zhu Mingxia had to abandon the planned next offensive after taking Wuzhou. They hadn't even taken Tengxian. He hurriedly led the main force back to Zhaoqing to arrange defenses and respond to the uprising.
+Facing this situation of chaos erupting on all sides with smoke rising in every direction, Zhu Mingxia had to abandon the planned next offensive following Wuzhou's capture. They hadn't even taken Tengxian. He hurriedly led main forces back to Zhaoqing arranging defenses and responding to the uprising.
 
-Now, besides the county seats along the West River between Zhaoqing and Wuzhou being controlled by the National Army, the mountainous inland counties and garrisons north of the West River were mostly still defended by temporarily incorporated former Ming troops, with local surrendered officials and gentry commissioned to "maintain local order." Many naturalized county magistrates and National Army squadrons had been forced to stay in Zhaoqing due to "blocked roads," making the situation even more chaotic.
+Presently, besides county seats along the West River between Zhaoqing and Wuzhou being controlled by the National Army, mountainous inland counties and garrisons north of the West River were predominantly still defended by temporarily incorporated former Ming troops, with local surrendered officials and gentry commissioned "maintaining local order." Numerous naturalized county magistrates and National Army squadrons had been forced remaining in Zhaoqing due to "blocked roads," rendering situations even more chaotic.
 
-Zhu Mingxia knew that most of these surrendered officials and soldiers who were "maintaining local order" held an observant attitude. If not for the imminent threat of Yao militias, their speed of "returning to the light" wouldn't be slower than their initial speed of "suffering the indignity of surrendering to the Aussies." Even now, in this precarious situation, some were secretly communicating with Xiong Wencan, and some were even acting as protectors for those "official bandits."
+Zhu Mingxia recognized most of these surrendered officials and soldiers "maintaining local order" held observant attitudes. Absent imminent Yao militia threats, their "returning to the light" speed wouldn't prove slower than their initial "suffering the indignity of surrendering to the Ausländers" speed. Even now, given this precarious situation, some communicated secretly with Xiong Wencan; some even acted as protectors for those "official bandits."
 
-But for now, he couldn't deal with these people. Their existence could at least hold back the expansion of Yao militias and maintain basic social order.
+But presently, he couldn't address these individuals. Their existence could at minimum restrain Yao militia expansion and maintain basic social order.
 
-The situation was still far from optimistic, but it was gradually becoming clearer. Based on gathered intelligence, the Eight Row Yao were mainly distributed in the Lianshan, Lianzhou, and Liannan areas between Hezhou and Shaoguan, separated from the Zhaoqing-Wuzhou line to the south by Cangwu, Huaiji, Guangning, and other counties. After the uprising, the Yao people first captured Lianshan County seat, then pushed east to occupy Lianzhou, Ruyuan, and Yangshan. Their momentum was formidable, until they ran into the Central Route Army at Yingde and Shaoguan and got their noses bloodied, finally showing some restraint and withdrawing from Ruyuan to look for targets in the south. After a month of observation, it could now be confirmed that they had a tendency to approach the West River basin and link up with Guangxi Yao people to further expand the situation.
+The situation remained far from optimistic, but it was gradually becoming clearer. Based on gathered intelligence, the Eight Rank Yao were mainly distributed in the Lianshan, Lianzhou, and Liannan areas between Hezhou and Shaoguan, separated from the Zhaoqing-Wuzhou line southward by Cangwu, Huaiji, Guangning, and other counties. After uprising, the Yao people first captured Lianshan County seat, then pushed eastward occupying Lianzhou, Ruyuan, and Yangshan. Their momentum proved formidable, until they encountered the Central Route Army at Yingde and Shaoguan and got their noses bloodied, finally showing some restraint and withdrawing from Ruyuan to seek southern targets. After one month's observation, it could now be confirmed they demonstrated tendencies approaching the West River basin and linking with Guangxi Yao people to further expand the situation.
 
-Not only that, but the chaos caused by the Eight Row Yao uprising had given Xiong Wencan, hiding in Guangxi, a ray of hope. He constantly sent confidants back to Guangdong to incite bandits and scattered soldiers with promises of official positions and rewards, striving to expand the scale and scope of the disturbances. On one hand, this tied down the Fubo Army's westward advance; on the other, it exhausted the Senate, hoping for a future opportunity to "counterattack." The intelligence Xu Ke had gathered along the West River fully demonstrated this.
+Not only that, but the chaos caused by the Eight Rank Yao uprising had granted Xiong Wencan, hiding in Guangxi, a ray of hope. He constantly sent confidants back to Guangdong inciting bandits and scattered soldiers with promises of official positions and rewards, striving to expand disturbances' scope and scale. On one hand, this tied down the Fubo Army's westward advance; on the other, it exhausted the Senate, hoping for future opportunities to "counterattack." The intelligence Xu Ke had gathered along the West River fully demonstrated this.
 
-However, these "official bandits" were quite different from ordinary "bandits." To obtain more spoils and gain greater "fame," they tended to constantly expand their gangs to enhance their ability to attack strongholds. The result was that the bandit groups grew ever larger, actually providing favorable conditions for the Fubo Army to locate, capture, and annihilate them.
+However, these "official bandits" proved quite different from ordinary "bandits." To obtain more spoils and gain greater "fame," they tended constantly expanding their gangs to enhance their stronghold assault capabilities. The result was bandit groups growing ever larger, actually providing favorable conditions for the Fubo Army to locate, capture, and annihilate them.
 
-Recently, Bei Wei had commanded troops to clear out several bandit groups in Gaoyao, and the area south of Zhaoqing had quieted down considerably. Though bandits were more dangerous when gathered into large groups, they were actually much easier to eliminate than scattered small bands. Furthermore, the various outlaws committing evil deeds were pushing the local gentry and populace toward the Senate's side. That Bei Wei's "security rectification" campaign could proceed was not unrelated to this.
+Recently, Bei Wei had commanded troops clearing out several bandit groups in Gaoyao, and the area south of Zhaoqing had quieted down considerably. Though bandits proved more dangerous when gathered into large groups, they actually proved much easier eliminating than scattered small bands. Furthermore, various outlaws committing evil deeds were pushing local gentry and populace toward the Senate's side. That Bei Wei's "security rectification" campaign could proceed was not unrelated to this.
 
-Zhu Mingxia studied the map covered with red dots carefully. Had the time come to turn around this passive situation?
+Zhu Mingxia studied the red-dot-covered map carefully. Had the time come turning around this passive situation?
 
 The staff officer entered and reported: "Chief, as per your orders, all unit commanders at company level and above in Zhaoqing are assembled."
 
 "Let everyone in."
 
-About thirty-some people entered the hall at once, making it quite crowded. All officers silently and naturally formed ranks, orderly amidst the chaos.
+Approximately thirty-some people entered the hall simultaneously, rendering it quite crowded. All officers silently and naturally formed ranks, orderly amidst chaos.
 
 "There are quite a few officers I'm meeting for the first time. Please introduce yourselves."
 
-The newly arrived National Army squadron commanders stepped forward to report one by one. Zhu Mingxia had actually already read the training/combat reports and commanding officer profiles for these units.
+The newly arrived National Army squadron commanders stepped forward reporting sequentially. Zhu Mingxia had actually already reviewed training/combat reports and commanding officer profiles for these units.
 
-Though these units were uneven in quality, most shared one common characteristic: they had all been tested by fire.
+Though these units proved uneven in quality, most shared one common characteristic: they had all received battle baptism.
 
-A newly formed squadron that could hold its own in battle without its men scattering could be considered qualified. Even if they couldn't serve as a spearhead, they could at least make do as a shield.
+A newly formed squadron capable of holding its own in battle without men scattering could be considered qualified. Even if they couldn't serve as spearheads, they could at minimum make do as shields.
 
-As for the completely inexperienced rookie squadrons that had just rushed over from Guangzhou, they could only serve as garrison troops.
+As for the completely inexperienced rookie squadrons having just rushed over from Guangzhou, they could only serve as garrison troops.
 
-"Gentlemen, the time has come to demonstrate the results of your daily training. As you all know, Wuzhou has Yao people to the north and Ming forces to the west, while its own forces are weak. Therefore, I am determined to launch a forward offensive to change our current passive situation. Today's gathering is to inform you that the higher command has approved our plan. Staff officer, brief everyone on the operation plan."
+"Gentlemen, the time has come demonstrating your daily training results. As you all know, Wuzhou has Yao people northward and Ming forces westward, while its own forces are weak. Therefore, I am determined launching a forward offensive changing our current passive situation. Today's gathering is informing you that higher command has approved our plan. Staff officer, brief everyone on the operation plan."
+
+(Chapter End)

@@ -2,7 +2,7 @@
 
 Today he wore a set of government-issue brigandine armor, holding a Japanese sword in hand, surrounded by a group of "little brothers." They were all brothers, nephews, and in-law relatives of the Yang clan, numbering a full dozen or so.
 
-These people all relied on Master Yang's care on ordinary days, running merchant caravans locally, doing business with Li people, lending at high interest, working as butchers, milling rice, selling fertilizer... all profitable businesses. For any trade or industry, as long as his family was doing it, people of other surnames couldn't interfere. Otherwise, they would be beaten until "they opened a dye shop" (bruised all colors). Although they didn't make huge fortunes, every family was well-off.
+These people all relied on Master Yang's care on ordinary days, running merchant caravans locally, doing business with Li people, lending at high interest, working as butchers, milling rice, selling fertilizer... all profitable businesses. For any trade or industry, as long as his family was doing it, people of other surnames couldn't interfere. Otherwise, they would be beaten until "they opened a dye shop" (bruised all colors). Though they didn't make huge fortunes, every family was well-off.
 
 These people were Master Yang's "base," so he rarely disciplined their tyrannical behavior on ordinary days. If they were occasionally arrested by the government, a single calling card would get them bailed out.
 
@@ -12,7 +12,7 @@ Among them, one Luo Shisan ran the fastest, but not paying attention to the ston
 
 "F*ck..." Before Luo Shisan could finish speaking, the militia behind trampled over him. In an instant, this unlucky egg was stomped until he stopped breathing.
 
-Many of the militia in the rear echelon were farmers who had never fought before, incomparable to the first batch of militia who rushed out for bayonet combat. However, seeing the main general leading the charge, even though reluctant, most followed along to charge at the oncoming Fubo Army.
+Many of the militia in the rear echelon were farmers who'd never fought before, incomparable to the first batch of militia who rushed out for bayonet combat. However, seeing the main general leading the charge, even though reluctant, most followed along to charge at the oncoming Fubo Army.
 
 Yang Erhu called over a former Ming army musketeer named Ma Huliang and ordered him to take a small squad of bird-gunners to outflank the side, waiting for a chance to catch the Hair Rebels off guard from the flank.
 
@@ -74,4 +74,4 @@ The two were standing parallel on the slope at this moment. With a thought, Li G
 
 Yang Xiaodong fell for it. At this moment, the bayonet was only a fist away from him. He hurriedly moved the spear shaft across to block. However, this thrust was just a feint. Li Gangsheng's bayonet turned midway, making Yang Xiaodong's long spear hit empty air. Then, the bayonet was sent downward fiercely. Yang Xiaodong's calf was instantly pierced by the bayonet. Li Gangsheng calmly twisted the bayonet left and right.
 
-"Ah!!!!!" Severe pain made him let out an inhuman scream. Yang Xiaodong could no longer hold on, releasing the long spear in his hand and sitting on the ground. The sound of a rifle butt breaking through the air came to his ears. With a bang, he fell to the ground immediately, life or death unknown.
+"Ah!!!!!!" Severe pain made him let out an inhuman scream. Yang Xiaodong could no longer hold on, releasing the long spear in his hand and sitting on the ground. The sound of a rifle butt breaking through the air came to his ears. With a bang, he fell to the ground immediately, life or death unknown.

@@ -1,79 +1,79 @@
 # Chapter 2393: Zhongyi Trading Company
 
-Chu He, harboring these worries, looked at the surroundings and asked: "Which building is the walnut pastry shop in?"
+Harboring these worries, Chu He surveyed his surroundings and asked, "Which building is the walnut pastry shop in?"
 
-"It's in East Building One." Park Jihyun said.
+"East Building One," Park Jihyun said.
 
-Chu He crossed the plaza, walking along the edge of East Building One. Whether it was East Building One or the other buildings within his line of sight, most of the storefronts had their boards up. From the signboards on the doors, roughly less than half of the rented storefronts were open for business. Most of those were commercial enterprises under the Senate's name. The clerks in the open stores were few and not very enthusiastic—even their soliciting of business seemed listless.
+Chu He crossed the plaza, walking along the edge of East Building One. Whether in this building or the others within his line of sight, most storefronts had their boards up. From the signboards on the doors, roughly less than half of the rented storefronts were actually open for business. Most of those were commercial enterprises under the Senate's name. The clerks in the open stores were few in number and not particularly enthusiastic—even their soliciting of customers seemed listless.
 
-And about one-third of the first-floor storefronts in the entire Great World hadn't been rented out.
+About one-third of the first-floor storefronts across the entire Great World hadn't been rented out at all.
 
-It seemed the Great World's business really wasn't doing well. The plague's impact was truly too great.
+Business at the Great World was clearly struggling. The plague's impact had been devastating.
 
-Walking past a few shops, suddenly his eyes lit up. This shop was extraordinary—the signboard wasn't just a door header but extended all the way to the second floor. From the appearance, color scheme, to the format, the entire door signboard was exactly like a small-to-medium supermarket in an eighteenth-tier city in the old spacetime.
+Walking past a few shops, his eyes suddenly lit up. This shop was extraordinary—the signboard wasn't merely a door header but extended all the way to the second floor. From appearance and color scheme to format, the entire facade looked exactly like a small-to-medium supermarket in an eighteenth-tier city back in the old spacetime.
 
-Looking at this appearance, it didn't seem like a shop opened by local natives. Chu He knew local merchants didn't have the habit of making such flashy door headers. Most had a simple signboard plus shop curtains. Signboards were generally made very plain; the competition was nothing more than the fame of the person who wrote the inscription.
+Judging by appearances, this wasn't a shop opened by local natives. Chu He knew local merchants didn't favor such flashy door headers. Most settled for a simple signboard plus shop curtains, with signboards generally made quite plainly; the only competition was over whose calligrapher had written the inscription.
 
 This kind of flashy door header was obviously a Senate commercial enterprise at first glance.
 
-He had been away from Lingao and the finance sector for many years and knew very little about the Senate's commercial system. This shop before him immediately sparked his interest. He walked over to look and saw the signboard read "Zhongyi Trading Company Guangzhou Branch."
+Having been away from Lingao and the finance sector for many years, Chu He knew very little about the Senate's commercial system. The shop before him immediately sparked his curiosity. He walked over and saw the signboard read "Zhongyi Trading Company Guangzhou Branch."
 
-"Zhongyi Trading Company?" This name Chu He was quite familiar with, because Zhongyi Trading Company had a strong presence on Jeju Island. Not only did it open shops and food processing factories, but it also did a lot of agricultural promotion on Jeju Island. You could say its fame on Jeju Island was far greater than in other Senate-controlled areas. When he was the dean of the National School on Jeju Island, he had dealt with this company plenty—students' work-study programs, three-meal catering, scholarships, and so on.
+"Zhongyi Trading Company?" The name was quite familiar to Chu He, because Zhongyi Trading Company had a strong presence on Jeju Island. Not only had it opened shops and food processing factories, but it had also done considerable agricultural promotion on the island. Its fame on Jeju far exceeded its presence in other Senate-controlled areas. When he was dean of the National School on Jeju, he'd dealt extensively with this company—students' work-study programs, three-meal catering, scholarships, and more.
 
-What was most remarkable about this enterprise was that it wasn't run by the agriculture department, nor by commercial or light industry systems. Its supervising department was actually the Science and Technology Department. Moreover, it was established under the "personal care" of Science and Technology Department head Zhong Lishi. The Jeju Island "Zhongyi Trading Company" was established during that business trip when Doctor Zhong went to survey Mount Halla and selected the 126°30' astronomical observatory site.
+What was most remarkable about this enterprise was that it wasn't run by the agriculture department, nor by the commercial or light industry systems. Its supervising department was actually the Science and Technology Department. Moreover, it had been established under the "personal care" of Science and Technology Department head Zhong Lishi. The Jeju Island branch of "Zhongyi Trading Company" was established during Doctor Zhong's business trip to survey Mount Halla and select the site for the 126°30' astronomical observatory.
 
-Although the Senate didn't like various departments running "tertiary industries," real needs always exceeded regulations. Zhongyi Trading Company was the result of rules compromising with reality.
+Although the Senate frowned upon various departments running "tertiary industries," real needs always exceeded regulations. Zhongyi Trading Company was the result of rules compromising with reality.
 
-Ever since Doctor Zhong created a proper large clock, thoroughly washing away the shame of "Senate Building Hole Maker," he was determined to establish a completely new "concept of time" on every piece of land under Senate governance. To spread the Tiger Head Astronomical Observatory's timekeeping to all ruled areas—and if possible, to places not yet ruled.
+Ever since Doctor Zhong created a proper large clock—thoroughly washing away the shame of "Senate Building Hole Maker"—he had been determined to establish a completely new "concept of time" on every piece of land under Senate governance. He wanted to spread the Tiger Head Astronomical Observatory's timekeeping to all ruled areas—and if possible, to places not yet ruled.
 
-So whenever a region became Senate-controlled territory, after the situation completely stabilized, a clock tower would be built. This clock tower would either stand atop a military fortress, or on a commercial building, or above the local administrative institution—in short, on whatever building best demonstrated the Senate's presence locally, there would be such a clock tower. A clock tower meant permanent occupation of an area.
+So whenever a region became Senate-controlled territory, after the situation completely stabilized, a clock tower would be built. This clock tower would either stand atop a military fortress, or on a commercial building, or above the local administrative institution—in short, on whatever building best demonstrated the Senate's presence locally. A clock tower meant permanent occupation.
 
-On the wall of the Tiger Head Astronomical Observatory's central hall hung a huge world time zone map and regional maps, densely marked with all clock tower locations. As time passed, there were more and more clock towers on the map. Of course, by Doctor Zhong's standards, there were still too few.
+On the wall of the Tiger Head Astronomical Observatory's central hall hung a huge world time zone map and regional maps, densely marked with all clock tower locations. As time passed, more and more clock towers appeared on the map. Of course, by Doctor Zhong's standards, there were still too few.
 
-As the core of the empire, Senators in the early period were responsible for their respective departments' specific work. But as the ruled territories expanded and institutions multiplied, the Senators' roles gradually transformed from specific affairs. A frequently discussed topic during Senator internal gatherings was: Why did you transmigrate? What places do you like?
+As the empire's core, Senators in the early period handled their respective departments' specific work. But as ruled territories expanded and institutions multiplied, the Senators' roles gradually transformed from specific affairs to oversight. A frequently discussed topic at internal Senator gatherings was: *Why did you transmigrate? What places do you favor?*
 
-"Why did you transmigrate?" Different Senators had different answers to this question. Some liked leading troops in battle, some liked high-grade maids, some liked the pomp of being above others... You could say every Senator had their own unique ambition. If not for these, who would be willing to abandon their life in the original plane and come here to take risks?
+"Why did you transmigrate?" Different Senators had different answers. Some relished leading troops in battle, some enjoyed high-grade maids, some savored the pomp of being above others... Every Senator had their own unique ambitions. Without such motivations, who would willingly abandon their life in the original plane and take such risks?
 
-Zhong Lishi's idea was simple: to "do research" without any qualms, no longer limited by those damned "professional fields," doing whatever he wanted to do. At the same time, he could also pursue his favorite "technology rebirth research," inquiring how much time and how many tech points were actually needed to rebuild technology—this was actually what interested him most.
+Zhong Lishi's idea was simple: to "do research" without constraints, no longer limited by those damned "professional fields," doing whatever he wanted. At the same time, he could pursue his favorite "technology rebirth research," inquiring how much time and how many tech points were actually needed to rebuild technology—this was what truly interested him most.
 
-He usually kept a low profile and rarely appeared in the Senate. He generally stayed at home researching things, and after the Tiger Head Astronomical Observatory was built, he rarely came to Lingao. However, he also had his own ideas: the Senate was very generous with research funding, but writing project proposals to apply for funding was far less satisfying than finding ways to make money himself. So Doctor Zhong embarked on the no-return path of running tertiary industries to make money.
+He usually kept a low profile and rarely appeared in the Senate. He generally stayed home researching things, and after the Tiger Head Astronomical Observatory was built, he seldom came to Lingao at all. However, he also had his own philosophy: the Senate was generous with research funding, but writing project proposals to apply for funding was far less satisfying than finding ways to make money himself. So Doctor Zhong embarked on the no-return path of running tertiary industries for income.
 
-Most of the Science and Technology Department's technology and products had confidentiality issues, so relying on these to earn pocket money wouldn't work. Before precision instruments could sell well, claiming land to develop planting was a good choice. Not only could it solve subordinates' food supply issues, but surplus production could be sold for money. So Zhong Lishi, using "developing sidelines to improve employee welfare" as the reason, got approval from the Executive Committee for several hundred mu of land in Chengmai. Besides growing food crops and raising chickens, they also planted large amounts of chili peppers. There was no condiment more popular than chili peppers. Soon, the Tiger Head Astronomical Observatory Farm became a "chili pepper planting base."
+Most of the Science and Technology Department's technology and products had confidentiality issues, making them unsuitable for earning pocket money. Before precision instruments could sell well, claiming land to develop agriculture was a good choice. It could solve subordinates' food supply issues, and surplus production could be sold. So Zhong Lishi, using "developing sidelines to improve employee welfare" as justification, obtained approval from the Executive Committee for several hundred mu of land in Chengmai. Besides growing food crops and raising chickens, they also planted large amounts of chili peppers. No condiment was more popular than chilies. Soon, the Tiger Head Astronomical Observatory Farm became a "chili pepper planting base."
 
-At first, harvested chili peppers were sold to the agriculture department after Science Department staff ate their fill. Of course, Doctor Zhong wasn't content to just be a grower, so he established "Zhongyi Trading Company." "Zhongyi Trading Company" was nominally for "solving family members' employment" and "enlivening commerce," but it actually quickly opened a food factory called "Zhongyi Subsidiary Foods Factory," registered trademark "Zhongyi"—meaning "quality always consistent."
+At first, harvested chilies were sold to the agriculture department after Science Department staff ate their fill. But of course, Doctor Zhong wasn't content to be merely a grower. He established "Zhongyi Trading Company"—nominally for "solving family members' employment" and "enlivening commerce"—but it quickly opened a food factory called "Zhongyi Subsidiary Foods Factory," registered trademark "Zhongyi," meaning "quality always consistent."
 
-Using experience from doing biological purification in the old spacetime, Zhong Lishi had some research on brewery and food factory construction. Under his guidance, "Zhongyi Subsidiary Foods" produced some very popular products. These products mainly included: Australian Red Sweet Chili Sauce, Australian Red Spicy Chili Sauce, Australian Red Scallion Oil Seafood Chili Sauce, Australian Mellow Chili Sauce, and other products.
+Using his experience with biological purification in the old spacetime, Zhong Lishi had some expertise in brewery and food factory construction. Under his guidance, "Zhongyi Subsidiary Foods" produced several wildly popular products. These included: Australian Red Sweet Chili Sauce, Australian Red Spicy Chili Sauce, Australian Red Scallion Oil Seafood Chili Sauce, Australian Mellow Chili Sauce, and others.
 
-Australian Red Sweet Chili Sauce was made from deseeded red chili peppers, dried and ground into extremely fine chili paste, naturally fermented and then mixed with syrup, fish sauce, and concentrated fruit juice to make a bright red paste-like chili sauce. This sweet chili sauce tasted seemingly salty yet sweet, with a delicious fermented sour taste and fruit aroma. In the original plane, it was used for flavored cold dishes.
+Australian Red Sweet Chili Sauce was made from deseeded red chilies, dried and ground into extremely fine paste, naturally fermented and then mixed with syrup, fish sauce, and concentrated fruit juice to create a bright red paste. This sweet chili sauce tasted simultaneously salty and sweet, with a delicious fermented sourness and fruit aroma. In the original plane, it had been used for flavored cold dishes.
 
-Australian Red Spicy Chili Sauce was made by mixing chili paste with sesame, peanuts, and other nut pastes. Spicy with a fragrance, it could make some overly bland ingredients full of spicy flavor. And this sauce had no oil added, tasting fragrant without being greasy.
+Australian Red Spicy Chili Sauce was made by mixing chili paste with sesame, peanut, and other nut pastes. Spicy and fragrant, it could make overly bland ingredients burst with flavor. Since no oil was added, it tasted rich without being greasy.
 
-Australian Red Scallion Oil Seafood Chili Sauce was made from dried shrimp, dried fish, and dried scallops, combined with extremely fine chili sauce simmered in scallion oil to form a paste-like seafood-flavored oil chili sauce. This sauce had some characteristics of the original plane's satay sauce, Korean chili sauce, and oil chili sauce, and was very popular.
+Australian Red Scallion Oil Seafood Chili Sauce was made from dried shrimp, dried fish, and dried scallops, combined with extremely fine chili sauce simmered in scallion oil to form a paste-like seafood-flavored oil chili sauce. This sauce shared characteristics with the original plane's satay sauce, Korean chili sauce, and oil chili sauce, and was immensely popular.
 
-Australian Mellow Chili Sauce was a black, relatively thin chili sauce. This sauce tasted like garlic chili sauce, sour-spicy and delicious. The ingredients were ground very fine, and it could be evenly brushed on various foods like paint.
+Australian Mellow Chili Sauce was a black, relatively thin chili sauce. It tasted like garlic chili sauce—sour-spicy and delicious. The ingredients were ground so fine that it could be brushed evenly on various foods like paint.
 
-"Zhongyi Subsidiary Foods Factory's" chili sauces were particularly popular, always in short supply. Besides these chili sauces, "Zhongyi Subsidiary Foods Factory" also provided pickled vegetables for northern Senators. With these industries supporting it, the Science Department's days were quite comfortable.
+"Zhongyi Subsidiary Foods Factory's" chili sauces were particularly popular, always in short supply. Besides these, the factory also provided pickled vegetables for northern Senators. With these industries supporting it, the Science Department lived quite comfortably.
 
-For these products, Mo Xiaoan had sued him quite a few times, because in the Light Industry Department's view, Doctor Zhong's behavior was typical "boundary crossing." The lawsuit went to the Senate, and the final muddled resolution was that Doctor Zhong had to provide the formulas and processes for his developed food products to the Light Industry Department. After fulfilling this obligation, "Zhongyi Trading Company" could independently produce and sell these products.
+Mo Xiaoan had sued Doctor Zhong quite a few times over these products, since in the Light Industry Department's view, his behavior was typical "boundary crossing." The lawsuit went to the Senate, and the final muddled resolution required Doctor Zhong to provide formulas and processes for his developed food products to the Light Industry Department. After fulfilling this obligation, "Zhongyi Trading Company" could independently produce and sell these products.
 
-Back when Chu He was on Jeju Island, he had frequented this company. Conditions on Jeju Island were far inferior to Lingao. Although as a Senator he lacked neither meat nor vegetables, his cook's skills were truly mediocre, and his secretaries' cooking skills were honestly unremarkable either. It was the rich variety of condiments and pickled products from the trading company that saved his appetite.
+Back when Chu He was on Jeju Island, he had frequented this company. Conditions on Jeju were far inferior to Lingao. Although as a Senator he lacked neither meat nor vegetables, his cook's skills were mediocre, and his secretaries' cooking was honestly unremarkable either. The trading company's rich variety of condiments and pickled products had saved his appetite.
 
-Didn't expect Doctor Zhong also opened a shop in Guangzhou, Chu He thought.
+He hadn't expected Doctor Zhong to have opened a shop in Guangzhou too.
 
-He originally planned to just walk past, but Park Jihyun couldn't walk anymore upon seeing this trading company. For the people of Jeju Island, Zhongyi Trading Company wasn't just a store or restaurant—it represented many firsts in their lives. Seeing this familiar signboard now, homesickness involuntarily welled up.
+He originally planned to just walk past, but Park Jihyun couldn't move upon seeing the trading company. For the people of Jeju Island, Zhongyi Trading Company wasn't just a store or restaurant—it represented many firsts in their lives. Seeing this familiar signboard now, homesickness welled up involuntarily.
 
-"Chief... should we go in and look, see what side dishes we can buy..."
+"Chief... should we go in and look? See what side dishes we can buy..."
 
-Looking at his guard's eager little eyes, Chu He had no choice but to nod: "Fine, let's go in and browse."
+Looking at his guard's eager eyes, Chu He had no choice but to nod. "Fine, let's go in and browse."
 
-The two strolled in. This Zhongyi Trading Company's layout was basically the same. The first floor was the sales department, selling various foods produced by Zhong-style subsidiary foods. The second floor was the dining department, selling various snacks and fast food "invented" by Doctor Zhong.
+The two strolled in. This Zhongyi Trading Company's layout was basically identical to others. The first floor was the sales department, selling various foods produced by Zhong-style subsidiary foods. The second floor was the dining department, offering various snacks and fast food "invented" by Doctor Zhong.
 
-As soon as they walked in, a clerk came forward to greet them. Chu He said: "Just browsing, no need to specially attend to us."
+As soon as they entered, a clerk came forward to greet them. Chu He said, "Just browsing, no need for special attention."
 
-Although he was dressed ordinarily, once he opened his mouth with pure "New Speech," the clerk immediately understood—this was a Senator.
+Though dressed ordinarily, the moment he opened his mouth with pure "New Speech," the clerk immediately understood—this was a Senator.
 
-"Yes, Chief, take your time looking. Call me if you need anything." The clerk immediately responded.
+"Yes, Chief, take your time looking. Call me if you need anything," the clerk responded immediately.
 
-Zhongyi Trading Company used a quite fashionable open-shelf sales style, though inside it was less like a supermarket and more like a food wholesale department in a small commodities market from the old spacetime.
+Zhongyi Trading Company used a fashionable open-shelf sales style, though inside it resembled less a supermarket and more a food wholesale department in a small commodities market from the old spacetime.
 
 **(End of Chapter)**

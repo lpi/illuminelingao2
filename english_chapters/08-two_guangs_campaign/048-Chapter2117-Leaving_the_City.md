@@ -1,87 +1,91 @@
 # Chapter 2117 - Leaving the City
 
-He summoned Zhu Quanxing, the commander of the Third Battalion assigned to lead the main assault, and asked:
+He summoned Zhu Quanxing, commander of the Third Battalion designated to spearhead the main assault, and posed the critical question:
 
-"How long to take Wuzhou?"
+"How long to capture Wuzhou?"
 
-"That depends on when dawn comes," Zhu Quanxing replied.
+"That depends upon when dawn arrives," Zhu Quanxing replied pragmatically.
 
-"And after dawn?"
+"And after dawn breaks?"
 
-"Including the artillery preparation, one hour to occupy the whole city." Zhu Quanxing glanced at his watch. "The troops are already fully deployed. They're resting in rotation now."
+"Including preliminary artillery preparation, one hour to secure complete occupation." Zhu Quanxing consulted his timepiece. "The troops are fully deployed currently. They're maintaining rotation rest schedules now."
 
-"Good. Wait for my order. Depending on the situation, we may have to attack tonight."
+"Excellent. Await my order. Depending upon developing circumstances, we may be compelled to assault tonight."
 
-"Night operations make coordination difficult. Moving the whole force could be risky."
+"Night operations present severe coordination difficulties. Mobilizing the entire force carries substantial risk."
 
-"I'm afraid we can't afford to take our time." Zhu Mingxia handed him the intelligence summary compiled from prisoner interrogations. "Xiong Wencan may very well try to burn everything down with him—if he succeeds, we'll have no choice but to withdraw."
+"I fear we cannot afford the luxury of deliberate pacing." Zhu Mingxia handed him the intelligence summary compiled from prisoner interrogations. "Xiong Wencan may very well attempt to incinerate everything in a final act of destruction—should he succeed, we'll have no alternative except complete withdrawal."
 
-"Very well, I'll go back and prepare," Zhu Quanxing said. "But a night assault carries great risk. And these past few days have seen only a crescent moon—nighttime visibility is extremely low. Observation and fire will both be difficult. It would be safer to begin the attack at dawn."
+"Very well. I'll return and prepare contingencies," Zhu Quanxing acknowledged. "But a nocturnal assault carries extraordinary peril. These past several nights have shown merely a crescent moon—nighttime visibility is catastrophically poor. Both observation and fire control will prove exceptionally difficult. Initiating the assault at dawn would be significantly safer."
 
-Organizing large-scale troop movements for night combat was indeed highly risky. Even for the Fubo Army, the foremost "elite force" of this timeline, every nighttime combat exercise produced unforeseen complications. Getting lost was the most common occurrence.
+Organizing large-scale troop movements for night combat operations was indeed extraordinarily hazardous. Even for the Fubo Army—this timeline's foremost "elite force"—every nighttime combat exercise invariably produced unforeseen complications. Becoming lost represented the most frequent occurrence.
 
-Zhu Mingxia weighed the options again and again but couldn't make up his mind. Taking Wuzhou by night truly carried great risk: entering the city would be easy, but once inside, problems would multiply. The streets were pitch black, with no signposts; the troops lacked lighting equipment, and entering with torches would greatly increase the chance of starting fires. They had only the maps provided by the Intelligence Bureau for reference. Friend-foe identification at night would be difficult, and the city was full of routed soldiers...
+Zhu Mingxia weighed competing considerations repeatedly but couldn't settle on a definitive decision. Capturing Wuzhou under darkness carried profound risks: penetrating the city itself would be straightforward, but once troops deployed within the walls, complications would multiply exponentially. The streets were shrouded in pitch darkness without signposts; the troops lacked adequate lighting equipment, while entering with torches would dramatically elevate the probability of accidentally igniting fires. They possessed only maps provided by the Intelligence Bureau for reference. Friend-from-foe identification at night would prove exceptionally difficult, and the city teemed with routed, desperate soldiers...
 
-If Xiong Wencan seized the opportunity to set fires, they'd have no time to escape.
+Should Xiong Wencan seize the opportunity to implement arson, they would possess no time to evacuate.
 
-Just as Zhu Mingxia was hesitating, a runner suddenly came with a report: scouts had discovered that the enemy in Wuzhou had opened the east and west gates.
+Precisely as Zhu Mingxia wrestled with this dilemma, a runner arrived bearing urgent intelligence: scouts had discovered that enemy forces in Wuzhou had opened the eastern and western gates.
 
-"What? Are they planning a breakout?"
+"What?! Are they attempting a breakout?"
 
-Although the scheme to invite the city's notables to a banquet and catch them all had failed, the operation to expel the women, children, and elderly had begun. The garrison started going door to door, driving out the populace. According to prior orders from the higher-ups, able-bodied men were to be herded aside, while the women, children, and elderly were driven toward the eastern and western gates.
+---
 
-At first, they still separated out the able-bodied men; but soon the soldiers tasked with the expulsion, intent on looting along the way, lost track of such "minor details" and simply drove everyone—men, women, and children alike—toward the two gates. The men, fearing for the safety of their wives, children, and parents, didn't dare cling to their possessions and joined the crowd streaming out.
+Although the scheme to ensnare the city's notables at a fatal banquet had collapsed, the operation to expel women, children, and elderly commenced nonetheless. Garrison troops began systematic house-to-house sweeps, forcibly driving out the population. According to prior directives from command authority, able-bodied men were to be segregated aside, while women, children, and elderly were driven toward the eastern and western gates.
 
-Driving out the common people was merely a pretext for the guest troops to plunder; thus order quickly broke down. Some raped women; others murdered for valuables. Many civilians carrying their modest savings were stopped and searched by rampaging soldiers. Some soldiers, finding the process too tedious, simply planted their swords in the street and demanded that passing civilians "offer tribute." Those who refused to hand over their valuables were cut down on the spot; young women were dragged off to be raped in broad daylight. The streets echoed with wailing; any who heard it were moved to sorrow.
+Initially, they maintained this segregation protocol; but rapidly the soldiers assigned to expulsion duties, intent upon looting opportunities along their routes, abandoned such "trivial details" and simply herded everyone—men, women, and children alike—toward both gates. The men, fearing for the safety of wives, children, and parents, dared not cling to possessions and joined the exodus streaming outward.
 
-The Governor-General's yamen was by now already empty; once the staff officers learned that Governor Xiong had long since left the city, they scattered like birds and beasts. The servants and clerks left behind in the yamen ransacked whatever valuables remained. Through the open gate, rampaging soldiers and urban vermin openly came and went, plundering the few remaining goods.
+Expelling the common populace served merely as pretext for guest troops to plunder systematically; thus civil order disintegrated with frightening rapidity. Some soldiers raped women openly; others committed casual murder for valuables. Many civilians carrying their modest life savings were stopped and subjected to violent searches by rampaging troops. Certain soldiers, finding methodical searching too tedious, simply planted their swords in the street and demanded passing civilians "offer tribute." Those refusing to surrender valuables were cut down where they stood; young women were dragged into alleyways for public rape. The streets reverberated with wailing; anyone hearing it was moved to profound sorrow.
 
-Only a few areas of the city still maintained order. Street barricades had been closed, guarded by militia. They refused passage to anyone—whether official, civilian, or soldier—and anyone who approached would be met with a volley of arrows. Bloody heads were haphazardly impaled on the barricade, warning all strangers who dared approach.
+The Governor-General's yamen stood already abandoned. Once the staff advisers learned that Governor Xiong had long since fled the city, they scattered like frightened birds. The servants and clerks left behind in the yamen ransacked whatever meager valuables remained. Through the wide-open gates, rampaging soldiers and urban criminal elements openly circulated, plundering the few residual goods.
 
-Around several public granaries and yamen, the local constables, the Wuzhou Naval Camp, and garrison troops had formed security cordons, driving off rioters and looters.
+Only scattered districts within the city still maintained precarious order. Street barricades had been sealed shut, guarded by grimly
 
-Most of the Wuzhou Naval Camp soldiers were Wuzhou natives, many with homes right in the city. When the women, children, and elderly were expelled, not a few of the naval soldiers' own families were among them. Ever since the war began, Chang Qingyun, knowing the Wuzhou naval forces stood no chance, had recommended sinking all the naval camp's warships—loaded with sand and stones—at the mouth of the Gui River, leaving only a few vessels to transport provisions from Guilin Prefecture. Thus the Wuzhou Naval Camp was now a navy in name only, deployed instead as infantry.
+ determined militia. They refused passage to anyone—official, civilian, or soldier alike—and anyone who approached faced volleys of arrows. Bloody severed heads were impaled haphazardly atop barricades, warning all strangers who dared approach.
 
-Within Wuzhou, Xiong Wencan relied on guest troops brought from Guangxi—especially the notoriously ill-disciplined Wolf Soldiers, whom he favored most. The local garrison was dismissed as "useless," paid poorly and constantly assigned to hard labor. As a result, tensions between local troops and guest troops had always been fierce; armed clashes between host and guest forces were frequent, the two sides practically at each other's throats. This latest expulsion, which directly harmed their families, instantly ignited the already explosive tensions. Clashes erupted throughout the city.
+Around several public granaries and government compounds, local constables, the Wuzhou Naval Camp garrison, and remaining loyal troops had established security cordons, driving off rioters and looters with ruthless efficiency.
 
-This hostility from the local garrison was fully exploited by the local magnates; these local forces became the backbone of the "restoration" the magnates had been planning. Thanks to them, order held in some parts of the city, and many civilians escaped expulsion. Places that Luo Yangming had "reminded" them the Australians would certainly want—prefectural and county yamen, public granaries, and other public buildings—were also protected and spared from looting.
+Most Wuzhou Naval Camp soldiers were native to Wuzhou, many maintaining homes directly within the city. When women, children, and elderly were forcibly expelled, substantial numbers of naval soldiers' own families were swept into the exodus. Ever since hostilities commenced, Chang Qingyun—recognizing the Wuzhou naval forces stood no realistic combat chance—had recommended scuttling all the naval camp's warships, loaded with sand and stones and sunk at the Gui River mouth, retaining only minimal vessels for provisions transport from Guilin Prefecture. Thus the Wuzhou Naval Camp existed as navy in designation only, redeployed instead as improvised infantry.
 
-Yi Haoran walked the streets with a dozen retainers and guards, swords drawn, guns loaded. No one dared make trouble as he passed. Seeing the chaos around him, his heart ached. Yet at this moment he was powerless. The officialdom within the city had collapsed; no one was left to direct the defense. Word had it that the Cangwu County Magistrate had hanged himself in despair on his dais; the Wuzhou Prefect was nowhere to be found. Many mansions, temples, and monasteries had been ransacked by rampaging soldiers and mobs. Yi Haoran was only a staff adviser—apart from Jiang Suo and the dozen men around him, he had not a single soldier he could command.
+Within Wuzhou, Xiong Wencan had relied exclusively upon guest troops imported from Guangxi—especially the notoriously ill-disciplined Wolf Soldiers, whom he favored disproportionately. The local garrison he dismissed contemptuously as "useless," compensating them poorly and assigning them constantly to arduous labor. Consequently, tensions between local and guest forces had always simmered at explosive levels; armed confrontations between host and guest armies erupted with increasing frequency, the factions practically at each other's throats. This latest expulsion operation, which directly endangered their own families, instantly ignited the already volatile tensions. Violent clashes erupted throughout the city.
 
-At present, there was nothing to do but leave the city as quickly as possible. Chang Qingyun had already gone ahead; he himself could only flee with all haste.
+This festering hostility from local garrison forces was systematically exploited by the merchant magnates. These local military units became the operational backbone of the "restoration" the magnates had been planning. Thanks to their allegiance, civil order held in strategic districts, and substantial numbers of civilians escaped expulsion. Locations that Luo Yangming had quietly "reminded" them the Australians would certainly value—prefectural and county administrative compounds, public granaries, and critical government buildings—were also defended zealously and preserved from systematic looting.
 
-The expelled civilians stretched in a dark mass from the Xijiang Gate along the street all the way to the Wanshou Temple in the city center. Yi Haoran knew from experience that mishandling such a crowd could easily cause a stampede; back in Liaodong, he had witnessed panicked refugees trampling many to death or injury. But at this moment, he had no capacity to maintain order. He could only tell his men to walk close to the walls, to avoid being swept away by the crowd.
+---
 
-Along the street, rampaging soldiers, eyes bloodshot, watched the column, looking for any remaining loot to grab. Though Yi Haoran was shabbily dressed, the retainers and guards around him drew attention. Threatening the rioters with swords and firearms, they managed to avoid being pulled out and forced to "offer tribute."
+Yi Haoran navigated the chaotic streets with a dozen retainers and guards, swords drawn, firearms primed. No one dared create trouble as he passed. Witnessing the surrounding devastation, his heart ached profoundly. Yet at this critical juncture he remained utterly powerless. The entire administrative hierarchy within Wuzhou had collapsed catastrophically; no authority remained to direct any coherent defense. Rumors circulated that the Cangwu County Magistrate had hanged himself in despair upon his dais; the Wuzhou Prefect had vanished entirely. Numerous mansions, temples, and monasteries had been systematically ransacked by rampaging soldiers and criminal mobs. Yi Haoran held merely staff adviser status—apart from Jiang Suo and the dozen men immediately surrounding him, he commanded not a single soldier.
 
-The crowd moved slowly, inching forward, passing through the gate that had only been half-opened. Nearly twenty thousand civilians took about an hour and a half to file out of the gate. As soon as they were all outside, the garrison soldiers immediately closed the gate.
+At present, the sole viable option was fleeing the city with maximum speed. Chang Qingyun had already departed ahead; Yi Haoran himself could only flee with all possible haste.
 
-Some of the expelled civilians had relatives in the surrounding countryside and dispersed to seek refuge. But many had nowhere to go—especially the women and children, many of whom had never left the city; some had never even stepped outside their homes at night. Now, in the dead of night, they were driven out of the city, surrounded by pitch darkness, unable to tell north from south. They had also heard there were many "Hair-Bandits" outside the walls. Some had been separated from husbands, fathers, or brothers. Terrified and at a loss, they could only huddle outside the barbican. When the night wind blew, infants began to cry, and soon wailing rose to the sky beneath the walls.
+The expelled civilians stretched in a dark, undulating mass from the Xijiang Gate along the main thoroughfare all the way to Wanshou Temple at the city center. Yi Haoran understood from bitter experience that mishandling such massive crowds could easily trigger catastrophic stampedes. Back in Liaodong, he had personally witnessed panicked refugees trampling scores to death or critical injury. But at this moment, he possessed zero capacity to maintain crowd control. He could only instruct his men to walk close against the walls, avoiding being swept away by the human tide.
 
-The garrison soldiers on the walls saw that many people were lingering outside the Xijiang Gate—perhaps several thousand, refusing to leave. A company commander began to shout down at them:
+Along the street, rampaging soldiers with bloodshot eyes watched the column, hunting for any remaining plunder opportunities. Though Yi Haoran wore shabby garments, the retainers and guards surrounding him inevitably drew predatory attention. By threatening rioters with drawn swords and loaded firearms, they managed to avoid being dragged aside and forced to "offer tribute."
 
-"You below! Leave the gate at once, or we'll shoot!"
+The crowd inched forward with agonizing slowness, eventually squeezing through the gate that had been opened only partially. Nearly twenty thousand civilians required approximately ninety minutes to file completely outside. The moment everyone had cleared the threshold, garrison soldiers immediately sealed the gate shut.
 
-After shouting several times with no response, a dozen archers loosed a volley at the crowd below. Several civilians were killed or wounded, and amid a cacophony of wailing and screaming, the crowd slowly began to disperse.
+Some expelled civilians had relatives in surrounding rural villages and dispersed to seek refuge. But substantial numbers possessed nowhere to go—especially the women and children, many of whom had never departed the city; some had never even ventured outside their homes after dark. Now, in the dead of night, they had been forcibly driven beyond the walls, surrounded by pitch darkness, utterly unable to distinguish north from south. They had also heard terrifying accounts of numerous "Hair-Bandits" lurking outside. Some had been separated from husbands, fathers, or brothers. Terrified and completely disoriented, they could only huddle miserably outside the barbican. When night winds gusted, infants began wailing, and soon lamentation rose to the heavens beneath the walls.
 
-The observation post atop Bangshan watched through night-vision binoculars, witnessing the scene. They spotted over ten thousand civilians pouring out of the Xijiang Gate. These old and frail women and children were now homeless refugees, strung out for a kilometer along the Gui River beneath Wuzhou's western wall. The pontoon bridge leading to the far bank had long been destroyed by Fubo Army artillery fire; the plank bridges over the moat south of the city had also been dismantled before the war. With no way to cross the river, the refugees could only head north.
+The garrison soldiers manning the walls observed that substantial numbers of people lingered outside the Xij iang Gate—perhaps several thousand individuals, stubbornly refusing to disperse. A company commander began shouting downward:
 
-"Sir, movement!" A soldier posted outside the Dayun Gate, facing off with Ming forces, noticed something unusual across the way and immediately ran to report to Zhu Quanxing.
+"You below! Depart the gate environs immediately, or we'll open fire!"
 
-Through his binoculars, Zhu Quanxing at first tensed at the sight of the dark mass of people—it startled him. Could the Ming soldiers have lost their minds and decided to attack? But upon closer inspection, he realized these were unarmed civilians, all of them elderly, women, and children. Counting more carefully, he found the numbers quite substantial; though he couldn't get an exact figure, he roughly estimated at least ten thousand.
+After bellowing these threats multiple times without eliciting response, a dozen archers released a volley at the crowd immediately below. Several civilians were instantly killed or wounded, and amid a cacophony of wailing and screaming, the crowd finally began gradually dispersing.
 
-Though Zhu Quanxing hadn't yet decided how to handle them, the forces deployed near the Dayun Gate were insufficient to deal with this many refugees. He also had to consider whether Ming soldiers might be hiding among them, ready to launch a surprise attack.
+The observation post atop Bangshan monitored events through night-vision binoculars, witnessing the entire scene. They spotted over ten thousand civilians pouring from the Xijiang Gate. These elderly, frail women, and children were now homeless refugees, strung out for over a kilometer along the Gui River beneath Wuzhou's western walls. The pontoon bridge spanning to the opposite bank had long been destroyed by Fubo Army artillery bombardment; the plank bridges crossing the moat south of the city had also been systematically dismantled before hostilities commenced. With no river crossing available, the refugees could only drift northward.
 
-"Signal immediately—call up the battalion reserve!" Zhu Quanxing ordered. "And report to Forward HQ!"
+"Sir, significant movement!" A soldier stationed at Dayun Gate, maintaining standoff positions with Ming forces, noticed unusual activity beyond their lines and immediately ran to report to Zhu Quanxing.
 
-When would Dr. Zhong finally unlock the radio technology? He desperately needed a radio right now.
+Through his binoculars, Zhu Quanxing initially tensed at the dark mass of people—the sight startled him profoundly. Could the Ming soldiers have lost their collective sanity and decided to launch an attack? But upon closer examination, he realized these were unarmed civilians, predominantly elderly, women, and children. Attempting a more precise count, he roughly estimated at minimum ten thousand individuals.
 
-Compared to Zhu Quanxing at the northern perimeter, who was momentarily at a loss, Zhu Mingxia—though he hadn't seen the dark tide of refugees—soon learned of the mass exodus.
+Though Zhu Quanxing hadn't yet formulated how to process them, the forces deployed near Dayun Gate proved woefully insufficient to manage this many refugees. He also had to consider whether Ming soldiers might be concealed among them, prepared to launch surprise attacks.
 
-He received the forward sentries' report so quickly thanks to the efficiency of the signal corps.
+"Signal immediately—summon the battalion reserve forward!" Zhu Quanxing ordered crisply. "And transmit report to Forward Headquarters!"
 
-At the Wuzhou battlefield, the Fubo Army was experimenting with many new tactics and techniques. Battlefield communications was one of the key projects.
+When would Dr. Zhong finally unlock functional radio technology? He desperately needed communications equipment right now.
 
-The Council of Elders could certainly boast of possessing communications technology from another timeline, but in practical application, these items from another world were too precious and too difficult to replicate. So apart from the Navy—which was somewhat more lavish, with radios on capital ships—Army communications had long relied mostly on running and shouting.
+Compared to Zhu Quanxing at the northern perimeter, momentarily at a loss, Zhu Mingxia—though he hadn't personally witnessed the dark refugee tide—received intelligence of the mass exodus with remarkable speed, thanks to the efficiency of the signal corps.
+
+At the Wuzhou battlefield, the Fubo Army was systematically testing numerous innovative tactics and technical procedures. Battlefield communications represented one of the critical experimental projects.
+
+The Council of Elders certainly possessed communications technology from another timeline, but practical application demonstrated these otherworldly items were too precious and extraordinarily difficult to replicate. Apart from the Navy—which displayed somewhat greater lavishness, equipping capital ships with radio sets—Army communications had long relied predominantly upon physical runners and shouted commands.
 
 *(End of Chapter)*

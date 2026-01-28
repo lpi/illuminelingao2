@@ -1,110 +1,114 @@
 # Chapter 2296: Arrested
 
-Inside this team were some Ming Army Night Sentinels recruited to surrender; intelligence collected usually also counted accurate. Besides currently also had no ability to question if Detective Team’s intelligence accurate or not; only could reluctantly approve this result.
+The team included some Ming Army night sentinels who had been recruited after surrendering. The intelligence they gathered was generally accurate. Besides, there was currently no way to verify whether the Detective Team's reports were reliable; he could only grudgingly accept the results.
 
-"Although having intelligence, we can't be careless either." Qian Duo thought in heart; he actually wasn't too worried about night: just as Zhu Si said, at night city gates closed tight, small group enemies grasping to city wall foot also useless. Instead was tomorrow daytime. Although nearby no large group enemies, but small group enemy troops also could take opportunity of tomorrow grain arriving port to conduct harassment.
+"Even with this intelligence, we can't be careless." Qian Duo thought to himself. Actually, nighttime didn't worry him much—as Zhu Si had said, with the city gates locked tight at night, a small enemy force reaching the walls would be useless. Tomorrow's daytime was the concern. Though there were no large enemy forces nearby, small bands could take advantage of the grain fleet's arrival to cause harassment.
 
-Harassment although wouldn't go as far as destroying grain boat fleet, but at least could create panic atmosphere, also could delay boat fleet unloading. Although no threat, yet was a trouble. Especially Chief Xie right now regarded "Market Stability" very heavy, didn't hope happening things shocking common people.
+Such harassment wouldn't actually damage the fleet, but it would create an atmosphere of panic and delay unloading. It wasn't a real threat, but it was a nuisance. Chief Xie currently placed great importance on "market stability" and didn't want anything happening that might alarm the populace.
 
-If military force abundant some, he would dispatch a platoon to surroundings conducting a suppression work; not seeking wiping out how many enemies, at least could drive small group bandits active in Wuzhou suburbs out, making them unable to influence cargo transport. But now he truly couldn't draw out people.
+If he had more manpower, Qian Duo would dispatch a platoon to sweep the surrounding area—not seeking to annihilate enemies, just to drive the small bandit groups active in the suburbs far enough away that they couldn't interfere with the cargo transport. But he simply couldn't spare the men.
 
-"Just make do like this first." Qian Duo searched intestine scraped belly for half day, also couldn't think out where still could change out soldiers again.
+"We'll just have to make do as things are." Qian Duo racked his brains for half a day but couldn't figure out where to scrape together more soldiers.
 
-Daytime although didn't announce martial law, but common people still could guess from certain spider silk horse tracks that big matter want to happen. Cautious ones, people having slightly thin property at home then simply didn't go out door.
+Though no martial law was announced during the day, the common people could still sense from certain telltale signs that something significant was about to happen. The more cautious ones—those with even modest property at home—simply didn't venture out.
 
-Luo Yangming however as usual running outside, busy until feet not touching ground. Waiting until matters all arranged properly was already after four o'clock afternoon.
+Luo Yangming, however, was busy as usual, running around until his feet barely touched the ground. By the time he had everything arranged, it was already past four in the afternoon.
 
-Although things should do all already arranged properly, other matters all had to wait after grain arrived then could spread fist feet. According to reason this moment could go back rest well. But he still didn't forget Yi Haoran’s external check problem; before going home went to Zhao Fengtian place one time again; received answer still was "No Reply."
+Though all the necessary tasks had been completed and other matters would have to wait until after the grain arrived, he still hadn't forgotten the problem of Yi Haoran's external verification. Before heading home, he stopped by Zhao Fengtian's office once more. The answer was still "No reply."
 
-"Even can't find, at least also should have a reply right." Luo Yangming felt strange. This obviously didn't comply with work flowma!
+"Even if they can't locate him, shouldn't there at least be some response?" Luo Yangming found this strange. This clearly violated proper procedure!
 
-"You don't worry." Zhao Fengtian said, "These two days busy, wait grain entering warehouse I check for you from source. See exactly which link happened problem. I still that sentence, really not reassured just arrest him up, wait checking clear then release."
+"Don't worry," Zhao Fengtian said. "We've been busy these past few days. After the grain is warehoused, I'll trace it from the source for you and see exactly which step went wrong. Let me say again: if you're really not reassured, just have him arrested. We can release him once everything is cleared up."
 
-Luo Yangming hesitated for a bit; truth to tell although self had intuition Hao Ran was a suspicious character, but he always didn't have stuff could serve as "Crime Evidence" falling in his hand. Besides he usually often going out counted one.
+Luo Yangming hesitated. Truth be told, though his intuition told him Hao Ran was a suspicious character, he had never laid hands on anything that could serve as "criminal evidence." Besides, Hao Ran did frequently go out, which was consistent with his story.
 
-Usually people Hao Ran most frequently contacted only had a Jiang Qiuchan; she was Wuzhou local person, having root having foot; husband also killed by Ming Army; no matter looking from which angle all had no possibility of acting as Great Ming spy.
+The person Hao Ran most often contacted was Jiang Qiuchan—a local Wuzhou woman with deep roots in the community. Her husband had been killed by Ming troops. From any angle, there was no possibility she could be acting as a spy for the Great Ming.
 
-Moreover no matter looking from which angle, Hao Ran all was a dignified upright square gentleman; wasn't some evil traitor disciple. Everyone in shop and home all had good feelings to him; even Wen Iron Head said "Mr. Hao is a good person."
+And from every perspective, Hao Ran appeared to be an upright, honorable gentleman—not some treacherous villain. Everyone in the shop and household had a favorable impression of him. Even Wen Iron Head said "Mister Hao is a good person."
 
-Moment, he made up determination: at this juncture, rather wrongly arrest, cannot wrongly release. He lowered voice said:
+Finally, he made up his mind: at this critical juncture, better to wrongly arrest than to wrongly release. He lowered his voice:
 
-"Old Zhao! Truth to tell I am still not quite reassured about him. Better according to your saying. Detain up first. Wait passing a few days having conclusion then release."
+"Old Zhao! Truth be told, I'm still uneasy about him. Better to do as you suggest—detain him first. We can release him in a few days once we've drawn some conclusions."
 
-"Just like this then!" Zhao Fengtian seeing him so caring about Hao Ran this person, also couldn't help valuing up, "I notify Zheng Ergen immediately, telling him to arrest person."
+"Done!" Zhao Fengtian, seeing how much attention Luo Yangming was paying to this Hao Ran person, couldn't help taking the matter more seriously himself. "I'll notify Zheng Ergen immediately and have him make the arrest."
 
-Sent away Luo Yangming, Zhao Fengtian also felt somewhat not reassured; these days he always busy around grain transport work, indeed ignored External Check Letter problem. Even if Teng County’s objective condition couldn't do external check, Teng County County Office also would issue a reply letter over. Absolutely wouldn't be news completely none.
+After sending off Luo Yangming, Zhao Fengtian also felt somewhat uneasy. He had been so consumed with grain transport work these past days that he'd truly neglected the external verification letter problem. Even if objective conditions in Teng County made verification impossible, the Teng County office would still issue a reply letter. There was no way for news to simply vanish completely.
 
-Could it be this letter lost at which link? Zhao Fengtian originally wanted to wait after grain transport work ended then go check; now thinking carefully however felt extremely suspicious; he thought: matter not suitable late, still go find a bit immediately relatively peace heart.
+Could the letter have been lost somewhere in the process? Zhao Fengtian had originally planned to investigate after the grain transport work was finished, but thinking more carefully now, the situation seemed extremely suspicious. He decided: this matter couldn't wait—better to look into it immediately for peace of mind.
 
-Thinking here, he immediately called people bringing official document receiving sending registry etc basic books over; also called confidential clerk managing receiving sending to check together.
+With this thought, he immediately summoned his staff, had them bring over the official document receiving and sending registry and other basic records, and called in the confidential clerk managing the correspondence to check together.
 
-According to flow, this External Check Letter after drafted in County Office becoming text, signed approved by Xie Erren, then loaded into special use official document bag sending to destination. Other party after receiving entered handling flow, then replied back. Every link had handover. One check then knew where problem happened.
+According to procedure, this external verification letter had been drafted in the County Office, signed and approved by Xie Erren, then placed in a special document bag and sent to its destination. The receiving party would then process it and send back a reply. Every step had a handover. A single check would reveal where the problem occurred.
 
-According to Zhao Fengtian here file number, confidential clerk very quickly found out document was sent to Xie Erren’s office waiting for signing on that day. But, inside documents returned from Xie Erren office on second day didn't have this document!
+Using the file number from Zhao Fengtian's records, the confidential clerk quickly determined that the document had been sent to Xie Erren's office for signature that day. But—among the documents returned from Xie Erren's office the next day, this document was not included!
 
-Now Zhao Fengtian somewhat flustered spirit. Chief Xie although had quite a few problems, but on work aspect wasn't slack. Isides some relatively important things he would keep for a few days to consider, routine official documents like this "Waiting Because Received This" inevitably would be signed on second day.
+Now Zhao Fengtian began to panic. Chief Xie might have his share of shortcomings, but he wasn't slack when it came to work. Aside from certain important matters he might hold for a few days to consider, routine documents like this "verification upon receipt" type were invariably signed the following day.
 
-"Check all registrations of following days! Until today!" Zhao Fengtian ordered.
+"Check all the registrations for the days after that! All the way to today!" Zhao Fengtian ordered.
 
-Result still gained nothing. Zhao Fengtian not dying heart, checked all incoming document registrations from Teng County one time again; didn't have this document’s number either.
+Still nothing. Refusing to give up, Zhao Fengtian checked all incoming document registrations from Teng County once more. The document's number wasn't there either.
 
-Now Zhao Fengtian completely stunned. Now only left one possibility: Chief Xie kept this document at his place, didn't sign and issue—this strictly speaking was not complying procedure; official document once generated number then must have whereabouts. He disagreeing this matter also had to return according to procedure; absolutely no practice of detaining document.
+Now Zhao Fengtian was completely stunned. Only one possibility remained: Chief Xie had kept this document in his possession and never signed or released it. Strictly speaking, this violated procedure—once a document was numbered, it had to have a documented whereabouts. Even if he disagreed with the matter, it had to be returned according to procedure. There was no practice of simply holding onto a document indefinitely.
 
-Hao Ran’s external check document surprisingly just disappeared like this? This also too strange!
+Hao Ran's external verification document had just... vanished? This was too strange!
 
-He was old naturalized citizen cadre; knew this matter afraid very complex; couldn't help becoming nervous. Immediately ordered people finding Zheng Ergen coming.
+He was an experienced naturalized citizen cadre. He knew this matter was likely complicated and couldn't help growing nervous. He immediately ordered someone to fetch Zheng Ergen.
 
-"Old Zheng, you immediately send people, go to Luo Yangming’s Rice Shop, arrest a master inside called Hao Ran."
+"Old Zheng, send your men to Luo Yangming's rice shop right now and arrest a clerk there named Hao Ran."
 
-"Yes!" Zheng Ergen agreed, "After arresting, have interrogation direction?"
+"Yes!" Zheng Ergen acknowledged. "After the arrest, is there a direction for interrogation?"
 
-"Lock up first. This is preventive arrest."
+"Lock him up first. This is a preventive arrest."
 
-"Understood. I send people go now."
+"Understood. I'll send someone now."
 
-After Zheng Ergen left, Zhao Fengtian drank several cups of tea in office, didn't sort out a clue either. This document exactly was what matter?! Now looking, problem only could happen at Chief Xie’s office side...
+After Zheng Ergen left, Zhao Fengtian drank several cups of tea in his office but still couldn't sort out a coherent thread. What on earth was going on with this document?! Looking at it now, the problem could only have occurred on Chief Xie's office side...
 
-Recently this period, Chief Xie always handling work back and forth between Prefecture Yamen and Three Headquarters; document box also would carry with body. Also not good to judge exactly where happened problem.
+Recently, Chief Xie had been working alternately between the Prefecture Yamen and the Three Headquarters, carrying his document box with him. It was difficult to judge exactly where the problem had occurred.
 
-"Only go to office to investigate and ask." Zhao Fengtian thought in heart, this document vanishing without cause must have reason; must check water falling stone out (get to bottom) no possible.
+"I'll just have to investigate at the office." Zhao Fengtian thought to himself. This document's inexplicable disappearance had to have a reason. He had to get to the bottom of it.
 
-Yi Haoran this time was correcting tracing red (calligraphy practice) Qi Liheng wrote when coming to class in morning in room. He hit red circle on written good characters; also hit ink bar on few written bad ones; properly wrote model characters.
+---
 
-This homework also corrected about there; Yi Haoran thought in heart, this was also last time correcting window lesson for this child. Tonight was exactly moment of action; after a mixed battle regardless dead alive, he all impossible to come here teaching career solving confusion again.
+Yi Haoran was at that moment correcting the red-tracing calligraphy practice that Qi Liheng had submitted during his morning lesson. He circled the well-written characters in red and struck through the poor ones with ink bars, then wrote model characters properly.
 
-Ah Heng was a clever child, quite had natural gift; could imagine his father should be a boundless future young scholar. Pity, age young then died in chaotic army hand.
+He was nearly finished with this homework. Yi Haoran thought to himself: this would likely be the last time he corrected this child's work. Tonight was the moment of action. After the chaos of battle, whether he lived or died, he would not return here to continue teaching and resolving doubts.
 
-If could give him time, teaching carefully, this child’s future on Civil Service Examination in future also couldn't be looked down. However right now national affairs day wrong, where still could contain a desk of scholar. Hair thief once stealing occupying Huaxia, Name Teaching (Confucianism) inevitably suffer disaster of extinguishing top; at that time probably even Sage Books no one would read again, let alone Civil Service Examination!
+Ah Heng was a clever child with considerable natural talent. One could imagine his father must have been a promising young scholar. A pity he had died so young in the chaos of war.
 
-This child probably also would be delayed right; without father’s blessing protection, future life probably would be very arduous too. Amidst chaotic world, human nothing more than a floating duckweed leaf, following waves drifting flow only...
+Given time and careful instruction, this child's future in the Civil Service Examinations would not be insignificant. But now, with the nation declining by the day, where could one find peace for a scholar's desk? Once the Australians had stolen and occupied Huaxia, the Teaching of Names would surely face extinction. At that point, perhaps no one would read the Sage's books anymore—let alone take civil examinations!
 
-"Mr. Hao." Ah Chun appeared at door, expression somewhat nervous, "Outside have a few catching runners looking for you."
+This child would probably be ruined too. Without a father's protection and blessing, his future life would likely be very hard. In chaotic times, a person was nothing more than a floating duckweed leaf, drifting wherever the waves carried it...
 
-"Oh," Yi Haoran's brush paused a bit, said, "You wait a moment slightly, I come out now."
+"Mister Hao." Ah Chun appeared at the door, her expression somewhat nervous. "There are some constables outside looking for you."
 
-Finished saying, he wrote last few model characters well; put away brush ink; only then walked slow steps coming to shop hall; several Fake Hair police were waiting for him.
+"Oh." Yi Haoran's brush paused briefly. "Wait just a moment. I'll be right out."
 
-"You are Hao Ran?" Leading one asked.
+He finished writing the last few model characters, put away his brush and ink, then walked with measured steps to the shop's main hall. Several Australian police were waiting for him.
 
-"Student is." Yi Haoran mood calm, no waves.
+"You are Hao Ran?" the lead officer asked.
 
-"This is arrest document." Police took out a paper document.
+"This student is he." Yi Haoran's mood was calm, untroubled.
 
-Li Wensheng walked out from accounting room hurriedly, expression nervous and excited, asked: "This is what matter?! Why want to arrest Mr. Hao? What matter did he commit?"
+"This is an arrest warrant." The policeman produced a paper document.
 
-Police said: "We handle errand by order. Exactly committed what matter, go to station then say."
+Li Wensheng hurried out from the accounting room, his expression both nervous and excited. "What is this about?! Why are you arresting Mister Hao? What has he done?"
 
-"Reasonless without cause, how to take people? Mr. Hao is serving errand for our East Owner Master Luo; Master Luo is this Prefecture Aftermath Bureau’s Bureau Director; you don't act recklessly."
+The policeman said, "We're acting on orders. Whatever he's done, he can explain at the station."
 
-"Old Sir, you don't excited," Leading police pleasant face pleasant color, "This is arrest document; we are also public affair. Don't let everyone embarrassed."
+"You can't just take someone for no reason! Mister Hao works for our owner, Master Luo. Master Luo is the Bureau Director of this prefecture's Aftermath Bureau! Don't act recklessly!"
 
-Yi Haoran said: "Not important. Student didn't do loss heart matters; thinking come also no important things. Go then go. Not hinder matter." Finished saying he cupped hands saying to Li Wensheng: "Trouble you report to East Owner one sound; accounts are all at old place; last month account already inventoried clear. Also trouble inform Sister of Jiang family one sound; these few days can't teach Liheng. His window lesson notebooks I all corrected well, just on desk."
+"Sir, please don't get excited," the lead policeman said amiably. "This is an arrest warrant. We're here on official business. Let's not make this awkward for everyone."
 
-Li Wensheng seeing him attitude calm, words peaceful; faintly had meaning of "Farewell"; right now Two Guangs war affairs not settled; Wuzhou practiced "Military Law"; killing people like home common meal. Advisor Hao once arrested, fear not good tomorrow would head hanging high at city gate. He came these days, bringing out better in each other with people in shop, residence; each other all had affection. Li Wensheng even didn't want his chess friend dying of unnatural life bafflingly. Hurriedly said: "Sir don't gray heart; wait Master comes back I go report him, asking him think method rescue." Finished saying said to police again: "Several Errand Masters, my family Master is Aftermath Bureau Bureau Director; often running before Master Xie. Several Errand Masters please look after this Mr. Hao more; definitely have heavy thanks." Finished saying, called Ah Chun go to counter taking four silver dollars over.
+Yi Haoran said, "It's nothing. I haven't done anything to trouble my conscience. I imagine it's nothing serious. I'll go along. It won't interfere with anything." He cupped his hands to Li Wensheng: "Please report this to the owner. The accounts are all in the usual place; last month's ledger has already been balanced. And please let Sister Jiang know that I won't be able to teach Liheng for the next few days. I've already corrected his practice notebooks—they're on my desk."
 
-"This four dollars money, giving several Errand Masters buying pair straw sandals to wear."
+Li Wensheng, seeing his calm demeanor and measured words, sensed a faint air of "farewell" about him. Right now, with the Two Guangs campaign unsettled and Wuzhou under military law, killing was as casual as a routine meal. Once Advisor Hao was arrested, tomorrow his head might be hanging at the city gate. They had worked together these days, becoming close; he didn't want his chess companion to die suddenly and inexplicably. He said hurriedly, "Sir, don't lose heart. When the Master returns, I'll report to him and ask him to find a way to rescue you."
 
-Several police all showed joy color on face; however leading one didn't fake color (kept stern face), said: "Money you keep up; we don't want. Who you find to appeal is your freedom. Person we naturally will treat well. Take away!"
+Then he said to the policemen: "Officers, my master is the Bureau Director of the Aftermath Bureau. He frequently appears before Master Xie. Please look after this Mister Hao—there will definitely be generous thanks." He called Ah Chun to fetch four silver dollars from the counter.
+
+"These four dollars are for the officers to buy a pair of straw sandals."
+
+The policemen's faces lit up with pleasure, but the lead officer kept a stern expression. "Keep your money. We don't want it. Whoever you find to appeal is your business. We'll naturally treat him well. Take him away!"
 
 ---
 **Next Update:** Volume 7 - Guangzhou Governance Part 500

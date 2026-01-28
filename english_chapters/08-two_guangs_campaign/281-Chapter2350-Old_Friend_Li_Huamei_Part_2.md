@@ -1,96 +1,95 @@
 # Chapter 2350: Old Friend Li Huamei (Part 2)
 
-But now, Li Huamei had the protective talisman of Qi Feng. Without clear evidence of "acts harming the Senate," it was difficult to make a move against her.
+But now Li Huamei possessed the protective talisman of Qi Feng's patronage. Without clear evidence of "acts harming the Senate," moving against her would be difficult.
 
-In this predicament, Zhou Botao could only further strengthen surveillance. All persons in contact with her were listed on the monitoring list and checked one by one. Since Li Siya's lair was roughly identified, he also specially configured a group of people in Macao to monitor her whereabouts and letters.
+Trapped in this predicament, Zhou Botao could only intensify surveillance. Everyone who came into contact with her was added to the monitoring list and investigated individually. Once Li Siya's base of operations was roughly identified in Macao, he assigned a dedicated team to track her movements and intercept her correspondence.
 
-Perhaps Li Siya had realized that Macao was no longer her safe zone. Not only did she live in seclusion in Macao, but many times she simply didn't stay in Macao but hid everywhere. For a while, they still couldn't grasp her specific whereabouts.
+Perhaps Li Siya had realized that Macao was no longer safe ground. She not only kept a low profile when in the city but often avoided it altogether, hiding in various locations. For some time, they couldn't pin down her specific whereabouts.
 
-However, the monitoring in Macao brought them another harvest. Zhou Botao was surprised to find that Li Mo, the Chief of General Affairs at the Lingao General Hospital, actually had correspondence with Li Siya!
+Nevertheless, the surveillance in Macao yielded an unexpected discovery. Zhou Botao was startled to find that Li Mo, the Chief of General Affairs at Lingao General Hospital, had been corresponding with Li Siya.
 
-As everyone knew, the Lingao General Hospital was the most important hospital in the Senate's health system. It mainly served Senators and core naturalized employees, so the staff inside were all identified as the most reliable personnel.
+Everyone knew that Lingao General Hospital was the most important medical institution in the Senate's health system, serving primarily Senators and core naturalized employees. Its staff had all undergone rigorous vetting and were considered the most reliable personnel available.
 
-The Chief of General Affairs in such a hospital actually had contact with Li Siya, the "Enemy of the Senate"! This not only piqued Zhou Botao's interest but also made him break out in a cold sweat.
+That the Chief of General Affairs at such a hospital maintained contact with Li Siya, the "Enemy of the Senate," not only piqued Zhou Botao's interest but sent a chill down his spine.
 
-He suddenly remembered that in 1632 he had handled a whistleblower report involving Li Mo. The content reported her abnormal behavior during a trip to Guangzhou. It didn't attract his attention at the time, but out of prudence, he asked Ke Yun to investigate.
+He suddenly recalled handling a whistleblower report involving Li Mo back in 1632. The report had flagged her suspicious behavior during a trip to Guangzhou. It hadn't drawn much attention at the time, but out of prudence, he'd assigned Ke Yun to investigate.
 
-Ke Yun investigated for several months, and the conclusion was "suspicious points, no evidence." The Political Security Bureau had few resources and couldn't invest strength in such a case with no obvious problems for a long time, so the case was closed at the end of that year. However, Li Mo was put on the "Level 3 Surveillance List" since then.
+Ke Yun spent several months on the case and concluded there were "suspicious points but no evidence." With the Political Security Bureau's limited resources, they couldn't justify sustained investigation of a case with no obvious problems, so it was closed at year's end. However, Li Mo had been placed on the "Level 3 Surveillance List" ever since.
 
-He instructed his secretary to immediately retrieve all the files of this case.
+He instructed his secretary to retrieve all files related to the case immediately.
 
-In the file, the weekly monitoring reports on Li Mo had piled up into a thick stack. Zhou Botao read through it carefully and didn't find anything juicy—if there were really any problems, Ke Yun would have restarted the case long ago. He read Ke Yun's original investigation report again; to be honest, there wasn't anything juicy either. The only thing that could be certain was that Li Mo likely connected with Li Siya during that trip to Guangzhou.
+The weekly monitoring reports on Li Mo had accumulated into a thick stack. Zhou Botao read through them carefully and found nothing incriminating—if there had been anything substantive, Ke Yun would have reopened the case long ago. He reviewed Ke Yun's original investigation report again; honestly, it contained nothing damning either. The only certainty was that Li Mo had likely connected with Li Siya during that trip to Guangzhou.
 
-The file contained a copy of Li Mo's personal file. According to her own account, she was a "native of Gongchang Division, Xiangshan County, Guangzhou Prefecture." In the Ming Dynasty's administrative division, the location of Macao belonged exactly to Gongchang Division!
+The file included a copy of Li Mo's personal records. According to her own account, she was a "native of Gongchang Division, Xiangshan County, Guangzhou Prefecture." Under Ming Dynasty administrative divisions, Macao fell precisely within Gongchang Division.
 
-And according to her account, her former husband was also a pirate on the Guangdong seas—according to the intelligence they collected, Li Siya's Portuguese father was a "merchant" who did gray business with pirates...
+Furthermore, she claimed her former husband had been a pirate in Guangdong waters—and according to their intelligence, Li Siya's Portuguese father was a "merchant" who conducted gray business with pirates.
 
-From this perspective, Li Mo's relationship with Macao was not shallow, and it was not surprising that she had a special relationship with Li Siya.
+From this perspective, Li Mo's connections to Macao ran deep, and a special relationship with Li Siya was hardly surprising.
 
-Not digging up the root of this matter while the iron was hot back then was hidden danger after all. Zhou Botao thought, the key was that Li Mo was quite popular among the agricultural Senators. She also believed in Elder Wu's religion and was very close to this small Protestant church. So they were somewhat hesitant at the time and didn't take decisive action immediately.
+Not digging to the root of this matter while the trail was hot had left a hidden danger after all, Zhou Botao reflected. The problem was that Li Mo enjoyed considerable popularity among the agricultural Senators. She also followed Elder Wu's religion and was close to that small Protestant church. These considerations had made them hesitant at the time, and they hadn't taken decisive action.
 
-He immediately sorted out the relevant situation and went to report to Zhao Manxiong.
+He immediately compiled the relevant information and went to report to Zhao Manxiong.
 
-Zhao Manxiong listened to his report with interest and carefully studied the materials he brought. He asked:
-"How long have they been in contact?"
+Zhao Manxiong listened with interest and studied the materials carefully before asking, "How long have they been in contact?"
 
-"Maybe two or three years. The specific start time is unknown. But judging from the context, I'm afraid they had already established contact before Li Huamei came to naturalize."
+"Perhaps two or three years. The exact start date is unknown, but judging from the context, I believe they had already established contact before Li Huamei came to naturalize."
 
-"But analyzing from the existing materials, Li Huamei and Li Mo have not had any lateral contact—this girl even understands single-line contact; she's really an interesting character," Zhao Manxiong said. "From the letters, what is the relationship between them? What is the main content of the letters?"
+"Yet analyzing the existing materials, Li Huamei and Li Mo haven't had any lateral contact—this woman even understands single-line communication. She's quite an interesting character," Zhao Manxiong observed. "Based on the letters, what is the relationship between them? What do they mainly discuss?"
 
-"The letters are not written in code," Zhou Botao said. "At first, I was very surprised, thinking there was secret writing or some code, but after handing them to the relevant department, they concluded there was no secretly transmitted information; they were just ordinary letters."
+"The letters aren't written in code," Zhou Botao said. "At first, I was surprised, assuming there must be secret writing or ciphers. But after handing them to the relevant department, they concluded there was no hidden information—just ordinary correspondence."
 
-Zhao Manxiong nodded: "Is there anything in the letters we are interested in?"
+Zhao Manxiong nodded. "Is there anything in the letters that interests us?"
 
-"To be honest, no." Zhou Botao smiled bitterly. "Most of it is about domestic trivia. The frequency of correspondence between Li Siya and Li Mo is very low, far less than Li Huamei's; there is only one letter about every six months. The content is very long, but mostly domestic trivia."
+"Honestly, no." Zhou Botao smiled ruefully. "Most of it is domestic trivia. The correspondence between Li Siya and Li Mo is infrequent—far less than Li Huamei's—only one letter every six months or so. The letters are lengthy but consist mostly of household matters."
 
-Besides the usual greetings, the letters also contained various requests: Li Mo asked Li Siya to buy certain things in Macao and Guangzhou, and sometimes the other way around. The letters also mentioned gifts attached... Anyone reading them would see the common content between relatives and friends.
+Besides the usual pleasantries, the letters contained various requests: Li Mo asked Li Siya to purchase certain items in Macao and Guangzhou, and sometimes the reverse. The letters also mentioned attached gifts—anyone reading them would see only the common exchanges between relatives and friends.
 
 "However, there is one rather unusual detail."
 
-"What?" Zhao Manxiong became interested.
+"What?" Zhao Manxiong leaned forward with interest.
 
-"The forms of address between them: Li Siya calls Li Mo 'Sister,' while Li Mo calls Li Siya 'Miss.' The writing is respectful, obviously the attitude towards a superior."
+"The forms of address between them: Li Siya calls Li Mo 'Sister,' while Li Mo calls Li Siya 'Miss.' The writing is respectful—clearly the attitude toward a superior."
 
-Li Siya called Li Mo sister, but Li Mo dared not call Li Siya sister, using "Miss" instead. This clearly meant she was half a head shorter than the other party.
+Li Siya called Li Mo sister, but Li Mo dared not reciprocate, using "Miss" instead. This clearly indicated she stood half a head lower than the other party.
 
-This form of address, with obvious class difference yet carrying a kinship surpassing the master-servant relationship, was confusing for a moment.
+This form of address, with its obvious class distinction yet carrying a kinship that transcended the master-servant relationship, was momentarily puzzling.
 
-"The relationship between them might be special," Zhao Manxiong said. "When Yu Eshui gave us a lecture, he specifically said that ordinary people in the Ming Dynasty could not keep slaves. Some kept slaves in the name of 'adopted sons' and 'adopted daughters,' who were actually bondservants. Li Mo probably has this kind of semi-bondservant status."
+"Their relationship might be special," Zhao Manxiong mused. "When Yu Eshui gave us that lecture, he specifically mentioned that ordinary people in the Ming Dynasty couldn't legally keep slaves. Some kept slaves under the guise of 'adopted sons' and 'adopted daughters'—who were actually bondservants. Li Mo probably has this kind of semi-bondservant status."
 
-"That's possible. In the letters, they also frequently mentioned a person named 'Sister Chun,' whom Li Mo calls 'Little Chun.' From the context, she is Li Huamei—that is, Li Chun. And we already know that Li Chun is not Li Siya's biological sister. The only possibility is that Li Mo and Li Chun are biological sisters. Because Li Mo mentioned her in every letter, very concerned about her whereabouts and safety."
+"That's possible. In the letters, they also frequently mentioned someone named 'Sister Chun,' whom Li Mo calls 'Little Chun.' From the context, this is Li Huamei—that is, Li Chun. We already know Li Chun isn't Li Siya's biological sister. The only possibility is that Li Mo and Li Chun are biological sisters. Li Mo mentions her in every letter, clearly concerned about her whereabouts and safety."
 
-"How did Li Siya answer her?"
+"How does Li Siya respond?"
 
-"Most of the time, Li Siya made excuses saying she hadn't seen her for a long time or wasn't clear, only saying she was out sailing for business, and guaranteed Li Mo it wasn't some shady, dangerous business. She never mentioned who 'Sister Chun' was doing business with. However, sometimes she would pass on some of 'Sister Chun's' gifts to Li Mo, and also passed on letters—unfortunately, we didn't intercept the letters."
+"Most of the time, Li Siya makes excuses—claims she hasn't seen her in ages, isn't certain, only says she's out sailing on business. She assures Li Mo it isn't dangerous or illicit work but never mentions who 'Sister Chun' is doing business with. Occasionally she forwards some of 'Sister Chun's' gifts to Li Mo, and sometimes letters as well—unfortunately, we haven't intercepted those."
 
-"So, Li Siya doesn't want the Li sisters to meet." Zhao Manxiong thought, obviously, only by keeping them unaware of each other's whereabouts could she threaten and control them. Although the Li sisters were both in Lingao, they had all changed their names. Li Mo worked in general affairs at the Lingao General Hospital for a long time, living a secluded life in both work and daily living; while Li Huamei actually spent very little time in Lingao, sailing outside for at least half a year. Moreover, her activity trajectory in Lingao was basically in the coastal areas around Bopu.
+"So Li Siya deliberately keeps the Li sisters apart." Zhao Manxiong considered this. Obviously, only by keeping them ignorant of each other's whereabouts could she threaten and control them. Although both sisters were in Lingao, they had both changed their names. Li Mo had worked in general affairs at Lingao General Hospital for years, living a secluded life both professionally and personally. Li Huamei, meanwhile, actually spent little time in Lingao—she was at sea for at least half the year. Moreover, her activities in Lingao were concentrated around the coastal areas of Bopu.
 
-This woman Li Siya was really quite meticulous in her thinking. No wonder she could survive at sea until now and still maneuver. It had been so many years!
+This woman Li Siya was remarkably meticulous in her scheming. No wonder she had survived at sea for so long and still managed to maneuver. All these years!
 
-"Yes. Now Li Siya probably relies on Li Huamei for a large part of her income. This is also the reason why she wants to firmly control 'Sister Chun'."
+"Yes. Li Siya likely depends on Li Huamei for a substantial portion of her income now. That's precisely why she wants to maintain firm control over 'Sister Chun.'"
 
-Zhou Botao secretly investigated Li Huamei's trade operations. He also managed to get the operation status of Li Siya's ships through connections in Macao. The conclusion was that among the goods currently sold by the two Lis, the proportion of Australian goods exceeded 50%. And the source of Australian goods was mostly purchased through Li Huamei's channel, which had much more advantages in price and variety compared to other indigenous wholesale channels.
+Zhou Botao had secretly investigated Li Huamei's trade operations. Through his connections in Macao, he had also obtained information about the operations of Li Siya's ships. The conclusion: among the goods currently sold by the two Lis, Australian goods exceeded fifty percent. The source of these Australian goods was primarily Li Huamei's channel, which offered far better prices and variety than other indigenous wholesale channels.
 
-In other words, the Senate was continuously creating profits for Li Siya. Zhou Botao consulted the materials of the Southeast Asia Company and found that since Li Huamei joined the Southeast Asia Company, her annual sales calculated by tonnage were always in the top ten.
+In other words, the Senate was continuously generating profits for Li Siya. Zhou Botao consulted the Southeast Asia Company's records and found that since Li Huamei joined the company, her annual sales by tonnage had consistently ranked in the top ten.
 
-"It seems our practice of mercantilism is very thorough." Zhao Manxiong commented, "What is Li Siya doing now?"
+"It seems our practice of mercantilism is very thorough," Zhao Manxiong remarked dryly. "What is Li Siya doing now?"
 
-"According to Lando's report, she often went to the Philippines before we crushed the Zheng Zhilong group. The Spanish are her traditional customers. She is also a secret messenger between Macao and the Spanish. She also has contact with the Dutch and the British—I estimate she acts as a mixture of broker, mercenary, or intelligence peddler. Of course, there is also her main profession of trade and piracy."
+"According to Lando's report, she frequently traveled to the Philippines before we crushed the Zheng Zhilong group. The Spanish are her traditional customers. She also serves as a secret messenger between Macao and the Spanish, and maintains contact with the Dutch and British. I estimate she functions as some combination of broker, mercenary, and intelligence peddler—in addition, of course, to her main professions of trade and piracy."
 
-Zhao Manxiong pondered for a moment and asked, "What is the current living state between her and Qi Feng? I remember the report said they were already cohabiting."
+Zhao Manxiong pondered for a moment. "What is the current living arrangement between her and Qi Feng? The report mentioned they're cohabiting."
 
-"Their cohabitation location is in the 'Commercial District,' which is..."
+"Their residence is in the 'Commercial District,' which is—"
 
-"I know this place."
+"I know the place."
 
-"The house was built with Li Huamei's money, and the property rights are also hers. It is said that Qi Feng did the design. As long as Qi Feng is not on a business trip or in a meeting, he will live there—he also brought his maid over, as well as many personal belongings. I think this basically counts as moving." Speaking of this, he suddenly remembered something, "By the way, our informant also reported that Li Huamei built a secret cellar in this house. It is likely prepared to hide some valuable items."
+"The house was built with Li Huamei's money, and the property rights are in her name. Apparently Qi Feng did the design himself. Whenever he's not on business trips or in meetings, he stays there—he's brought his maid over, along with many personal belongings. I'd say this basically counts as having moved in." He suddenly remembered something. "By the way, our informant also reported that Li Huamei built a secret cellar in this house—likely prepared for hiding valuables."
 
-"Do you think Li Huamei is good-looking?" Zhao Manxiong suddenly asked.
+"Do you find Li Huamei attractive?" Zhao Manxiong asked suddenly.
 
-"This... if talking about looks, her contours are quite good," Zhou Botao didn't expect the Director to ask such a question and answered somewhat hastily.
+"Well... in terms of looks, her features are quite fine," Zhou Botao answered, caught off guard by the unexpected question.
 
-"If according to the maid selection rating standard issued by the General Office, she is at the C-level standard. But you have to admit, such a woman has a different kind of charm, and this charm is rarely seen in this spacetime. So Comrade Qi Feng has true love for her... this makes it quite tricky."
+"According to the maid selection rating standards issued by the General Office, she'd be C-level. But you have to admit, a woman like her possesses a different kind of charm—one rarely seen in this spacetime. So Comrade Qi Feng has genuine feelings for her... which makes things rather tricky."
 
-Zhou Botao understood Zhao Manxiong's meaning. Since it was true love, and Qi Feng was from an art background and had romantic sentiments, it was very possible to create a melodrama plot like "No matter who she is, even if the whole world is against us! I will love her to the end!"
+Zhou Botao understood Zhao Manxiong's meaning. Since it was true love, and Qi Feng came from an artistic background with romantic inclinations, there was a very real possibility of melodrama—something along the lines of "No matter who she is, even if the whole world stands against us, I will love her to the end!"
 
 **(End of Chapter)**

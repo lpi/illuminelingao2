@@ -1,114 +1,114 @@
 # Chapter 2271: Rough Plan Formed
 
-Luo Yangming, as a member of the Aftermath Bureau, knew the current situation of Wuzhou best. The shortage of grain was secondary; the key problem was the interruption of trade—before taking Guangxi, this was a deadlock.
+As a member of the Aftermath Bureau, Luo Yangming understood the current situation in Wuzhou better than anyone. The grain shortage was secondary; the real problem was the interruption of trade—and until Guangxi was taken, this deadlock would persist.
 
-Wuzhou's rise and foundation relied entirely on trade. Without trade, many city residents fell into a state of unemployment. To stabilize the situation, Xie Erren did not allow shops to close, nor allowed reducing staff, and even forced shops and workshops to open for business every day, saying it was to "maintain the market surface."
+Wuzhou's prosperity had always depended entirely on trade. Without it, many city residents had fallen into unemployment. To stabilize the situation, Xie Erren had forbidden shops from closing or laying off workers, even forcing them to open for business daily under the guise of "maintaining market appearances."
 
-Luo Yangming naturally understood Senator Xie's difficulties—this was to maintain stability. But this stability was very reluctant, relying entirely on the constant blood transfusion from the Senate and the Aftermath Bureau.
+Luo Yangming understood the Senator's predicament—this was about maintaining stability. But it was a fragile stability, sustained only by constant transfusions from the Senate and the Aftermath Bureau.
 
-Merchants inside the city had been tormented once by Xiong Wencan. After Xie Erren entered the city, a series of aftermath measures also spent a lot of money and grain. Plus the soaring prices of all goods, inside and outside Wuzhou city, except for the homeless relying on relief to live, common people in the marketplace all had complaints. Luo Yangming saw it in his eyes and was anxious in his heart.
+The merchants had already been tormented once by Xiong Wencan. After Xie Erren entered the city, the aftermath measures had consumed substantial money and grain. Combined with soaring prices, both inside and outside Wuzhou's walls, the common people—apart from the homeless surviving on relief—were all nursing grievances. Luo Yangming saw it clearly and it filled him with anxiety.
 
-However, the Senate in Wuzhou, even with thousands of skills and ten thousand clever plans, couldn't solve this fundamental problem. Right now, besides maintaining as much as possible and waiting for the situation to improve, there was no other way.
+Yet the Senate in Wuzhou, for all its skills and clever strategies, could not solve this fundamental problem. For now, all they could do was hold things together and wait for the situation to improve.
 
-The two talked about some details again. Zhu Fuyuan then took his leave.
+The two men discussed the remaining details before Zhu Fuyuan took his leave.
 
-"...Is it returning to Sanshui right now, or..."
+"...Will you be returning to Sanshui right away, or..."
 
-"I still have to stay in Wuzhou for a few days." Zhu Fuyuan said, "Staying at Maoyuan Inn in the west of the city."
+"I'll need to stay in Wuzhou for a few more days," Zhu Fuyuan said. "I'm lodging at Maoyuan Inn in the west of the city."
 
-Luo Yangming knew Zhu Fuyuan nine out of ten had other missions. It was inconvenient to ask more, so he saw him out.
+Luo Yangming understood that Zhu Fuyuan almost certainly had other assignments. It would be inappropriate to ask further, so he simply saw the man out.
 
-Yi Haoran was reckoning accounts in the account room, but calculating in his heart what the guest from Dachang Rice Shop came here for. Leaving aside the Hair thief background of this rice shop, since it was a rice shop, what it did was naturally grain business. This Boss Zhu coming locally was probably also for grain.
+In the account room, Yi Haoran was going through the ledgers, but his mind was occupied with the visitor from Dachang Rice Shop. Setting aside the Hair thief connections of the rice shop, since it was a rice shop, its business was naturally grain. This Boss Zhu's visit was probably related to that.
 
-Speaking of grain, Yi Haoran knew that right now grain was short in Wuzhou, and people's hearts in the marketplace were unstable. This Zhu Fuyuan's arrival was mostly related to this.
+Speaking of grain—Yi Haoran knew that Wuzhou was currently short on supplies, and public sentiment in the markets was volatile. Zhu Fuyuan's arrival was most likely connected to this crisis.
 
-Could it be that Hair thieves on the Guangxi side had major progress? Yi Haoran’s heart suddenly lifted. Xiong Wencan had reached a desperate situation right now. Even if he could immediately recover Wuzhou, the Imperial Court probably would hardly forgive him for the fault of losing territory. Could it be that Viceroy Xiong surrendered under this desperate posture?!
+Could it be that the Hair thieves had made major progress on the Guangxi front? Yi Haoran's heart suddenly lurched. Xiong Wencan was in desperate straits. Even if he could immediately recover Wuzhou, the Imperial Court would probably never forgive him for losing the territory. Could it be that Viceroy Xiong had surrendered in desperation?!
 
-Thinking carefully, it was not impossible. Yi Haoran read Military Geography Records familiarly, knowing deeply that Wuzhou was not only the gateway to Guangdong but also one of the vital points of Guangxi. Communication between Xijiang basin and the interior mainly relied on this water transport line of Wuzhou-Lijiang-Lingqu-Hunan. After the Fubo Army occupied Wuzhou, they effectively cut the main artery of communication between interior Ming troops and Guangxi Ming troops directly. Although there were still a few roads from inland to Guangxi, in terms of convenience and cheapness, they were far inferior to this water transport line. If Guangxi Ming troops couldn't recover Wuzhou, even with an army of a hundred thousand, they could only be trapped in Guangxi, unable to move.
+Upon reflection, it was not impossible. Yi Haoran had studied the *Records of Military Geography* thoroughly and knew well that Wuzhou was not only the gateway to Guangdong but also one of Guangxi's vital strategic points. Communication between the Xijiang basin and the interior depended primarily on the water transport route through Wuzhou, Lijiang, Lingqu Canal, and on to Hunan. After the Fubo Army occupied Wuzhou, they had effectively severed the main artery connecting interior Ming forces with Guangxi Ming forces. Although a few alternative routes from the interior to Guangxi existed, none could match this water route for convenience and economy. If the Guangxi Ming forces could not recover Wuzhou, even an army of a hundred thousand would be trapped in Guangxi, unable to move.
 
-In the desperate situation where both personal and Guangxi futures were hopeless, if Xiong Wencan was unwilling to commit suicide to martyr for the country, indeed there was only the road of surrender to walk.
+With both his personal future and Guangxi's prospects looking hopeless, if Xiong Wencan was unwilling to take his own life in martyrdom, surrender was the only path left.
 
-Yi Haoran’s heart tightened at once. If so, Two Guangs would be beyond redemption!
+Yi Haoran's heart clenched. If that were true, the Two Guangs would be beyond salvation!
 
-However, he was powerless regarding Xiong Wencan’s movements and the overall situation of Two Guangs. Yi Haoran felt a strong sense of frustration in his heart at this moment. Even if he had divine plans and clever calculations, being able to kill one True Australian, what help would it be to the overall situation?
+Yet he was powerless to affect Xiong Wencan's movements or the overall situation. A wave of intense frustration washed over him. Even if he possessed divine strategies and brilliant calculations, even if he could kill one True Australian—what help would that be to the larger cause?
 
-Thinking of this, he unconsciously felt somewhat irritable. Suddenly a thought arose in him. He had long heard Chang Qingyun say that the status of True Australians was incomparably noble, even more prominent than Qinwang of Daming—after all, Qinwang could not interfere in politics, while Australian True Senators could solidly manage and discuss politics. If he could capture a True Australian alive in Wuzhou and take him to Guangxi, Hair thieves would inevitably hold back like shying at shooting a rat for fear of breaking the vase. Whether the Imperial Court fought or made peace, there would be a bargaining chip in hand.
+At this thought, irritation rose unbidden within him. Then a sudden idea struck. He had long heard Chang Qingyun say that the status of True Australians was incomparably noble, even more exalted than the Qinwang princes of Daming—after all, the princes could not interfere in politics, while Australian True Senators wielded real administrative and deliberative power. If he could capture a True Australian alive in Wuzhou and take him to Guangxi, the Hair thieves would surely hesitate, like a marksman afraid to shoot a rat sitting on a precious vase. Whether the Imperial Court chose to fight or negotiate, they would at least have a bargaining chip in hand.
 
-Wanting to capture a True Australian alive, if it were a second person, they would probably think he was indulging in wild fantasy. Although Xie Erren did not live in deep seclusion, his guards were strict. Because Cai Lan assassinated him back then, he also knew he was not so loved by people. Not only did the number of outings reduce drastically, but every time he went out, he was also equipped with multiple guards.
+Capturing a True Australian alive—anyone else would think this pure fantasy. Though Xie Erren did not live in complete seclusion, his guards were tight. Ever since Cai Lan's assassination attempt, he knew he was not universally beloved. Not only had he drastically reduced his outings, but each excursion was now accompanied by multiple guards.
 
-Yi Haoran felt there was a chance. Because he had already grasped the line of Cai Lan through Jiang Qiuchan.
+Yet Yi Haoran felt there was an opportunity. He had already established a connection to Cai Lan through Jiang Qiuchan.
 
-Although Jiang Qiuchan knew nothing of his intention, nor was he clear about Cai Lan's real thoughts right now. But with this line present, he virtually had eyes and ears that could reach directly to Xie Erren’s side.
+Although Jiang Qiuchan knew nothing of his intentions, and he himself was uncertain of Cai Lan's current mindset, this connection gave him eyes and ears that could reach directly to Xie Erren's side.
 
-Just doing so, he must let Qiuchan "join the gang." He himself couldn't get to Cai Lan's side, nor infer her thoughts.
+To proceed, however, he would need to bring Qiuchan into the scheme. He could not approach Cai Lan himself, nor could he divine her thoughts from a distance.
 
-Thinking of this, he unconsciously felt some hesitation. After all, this was a matter of extreme risk. Regardless of success or failure, Australians would inevitably investigate afterwards. He and Jiang Suo and others could just leave, but Qiuchan couldn't run away; nine out of ten she would lose her life.
+At this realization, he felt a moment's hesitation. After all, this was an extremely dangerous endeavor. Regardless of success or failure, the Australians would inevitably investigate afterward. He, Jiang Suo, and the others could simply flee, but Qiuchan could not escape—she would almost certainly lose her life.
 
-Pondering again and again, Yi Haoran raised his head.
+He pondered the matter repeatedly before finally raising his head.
 
-Never mind! Although Qiuchan was pitiable, her husband was dead, and she already extended heirs for the husband's family. She was originally a person who lost chastity; now having a chance to be loyal to the Imperial Court, in the future she wouldn't lack the glory of commendation... This honor after death was enough to compensate.
+*Never mind!* Though Qiuchan's situation was pitiable, her husband was dead and she had already provided heirs for his family. She was a woman who had lost her chastity; now, given the chance to demonstrate loyalty to the Imperial Court, she would not lack for posthumous honors and commendation... This glory after death would be sufficient compensation.
 
-Thinking of this, Yi Haoran felt relaxed at once. Jiang Qiuchan was a very suitable person: she had studied, was a woman who understood reason and knew shame; whether being almost insulted or her husband being killed, both were caused by Hair thieves besieging the city; finally, expecting retreating soldiers back then showed she was calm and composed, not a timid and fearful person. Not to mention he had saved her back then—right, Chang Qingyun also saved her.
+With this thought, Yi Haoran felt immediately at ease. Jiang Qiuchan was, in fact, an ideal candidate. She was educated, a woman who understood reason and knew shame. Whether it was her near-violation or her husband's death, both tragedies stemmed from the Hair thieves' siege of the city. And her composure in expecting the retreating soldiers back then showed she was calm and collected, not timid or easily frightened. Not to mention he had saved her life—and yes, Chang Qingyun had saved her as well.
 
-As long as explaining with great righteousness, for avenging national hatred and family grudge, she could be persuaded.
+If he could appeal to her with great righteousness, to avenge both national hatred and family grudge, she could surely be persuaded.
 
-"Old friend, today have to trouble you." Yi Haoran was dressed as an accountant going to the countryside to collect accounts as usual.
+"Old friend, I'll have to trouble you today." Yi Haoran was dressed as an accountant making rounds to collect debts in the countryside, as usual.
 
-Chang Qingyun smiled bitterly: "Still old friend, I'm almost becoming an old ghost." Seeing Yi Haoran’s grizzled beard and "awe-inspiring" righteousness, he couldn't help cursing secretly in his heart, how did he provoke such a madman! Seeking death himself wasn't enough, insisting on pulling someone as a cushion!
+Chang Qingyun smiled bitterly. "Still 'old friend'? I'm practically becoming an old ghost." Seeing Yi Haoran's grizzled beard and self-righteous air, he couldn't help cursing inwardly—how had he gotten mixed up with such a madman! Not content to seek death himself, the man insisted on dragging someone else along for the ride!
 
-"Old friend, saying this you are forgetting your roots." Yi Haoran didn't mind, "Back then in the city if I didn't save you from death, you would have died in the hands of Wolf Troops long ago. Where could you still be a peaceful clerk here?"
+"Old friend, that's an ungrateful way to speak." Yi Haoran was unfazed. "Back in the city, if I hadn't pulled you from death's door, you would have died at the hands of the Wolf Troops long ago. How could you still be here, living peacefully as a clerk?"
 
-"Okay okay, all my fault." Chang Qingyun smiled bitterly, "Sanheui was a parade ground in the past, now it's Australian captive camp. Inside besides people are houses, what is there to see?"
+"Fine, fine, it's all my fault." Chang Qingyun smiled bitterly again. "The Sanheui was a parade ground in the past. Now it's an Australian captive camp. Besides people and houses, what's there to see?"
 
-"Sanheui is the key lock outside Wuzhou city; naturally I want to take a good look." Yi Haoran said, "You just lead the way."
+"Sanheui is the key lock outside Wuzhou city. Naturally, I want to take a good look." Yi Haoran said, "You just lead the way."
 
-After Yi Haoran controlled Chang Qingyun, the first thing was to ask him to lead the way to Sanheui parade ground. In Yi Haoran’s view, the Sanheui captive camp was the biggest hidden danger for Australians. Such a place gathering several thousand people, only a few *li* away from Wuzhou; once a riot broke out, it could immediately affect Wuzhou and threaten Xijiang waterway.
+After Yi Haoran had brought Chang Qingyun under his control, his first demand was to be guided to the Sanheui parade ground. In Yi Haoran's view, the Sanheui captive camp was the Australians' greatest vulnerability. A place where several thousand people were gathered, only a few *li* from Wuzhou—if a riot broke out, it could immediately threaten Wuzhou and endanger the Xijiang waterway.
 
-Australians presumably knew this themselves too, so the first thing after entering the city was repairing the floating bridge. In case of emergency, they could quickly send troops to pacify.
+The Australians presumably recognized this themselves, which was why their first priority after entering the city had been repairing the floating bridge. In case of emergency, they could quickly dispatch troops to restore order.
 
-"It is okay for me to take you in, only you have to listen to my instructions, don't speak or move indiscriminately. To avoid attracting suspicion." Chang Qingyun said helplessly, "On the Sanheui side, Australians have a company of National Army guarding—this doesn't matter much, they only manage perimeter guarding, ignoring matters inside entirely. But inside this camp there is also a Detective Team. This gang is mostly old scoundrels from the yamen in the past, sharp-eyed and black-hearted. If they spot a flaw, they will sell you upon turning around!"
+"I can take you in, but you must follow my instructions. Don't speak out of turn or act rashly—it would arouse suspicion." Chang Qingyun said helplessly. "On the Sanheui side, the Australians have a National Army company on guard duty. That's not much concern—they only manage the perimeter and ignore internal matters entirely. But inside the camp, there's also a Detective Team. That lot are mostly veteran scoundrels from the old yamen, with sharp eyes and black hearts. If they catch a whiff of something wrong, they'll sell you out in a heartbeat!"
 
-"I understand." Yi Haoran nodded.
+"I understand," Yi Haoran nodded.
 
-"Only this identity of yours is awkward..."
+"It's just that your identity is awkward..."
 
-"No hindrance, I'll just go in using the identity of a rice shop accountant. There are many who know me in Wuzhou city; if making up an identity, it would be easy to cause suspicion instead."
+"No matter. I'll go in using my real identity as a rice shop accountant. Many people in Wuzhou city know me; making up an identity would be more likely to arouse suspicion."
 
-"Using what reason to enter?"
+"What reason will you give for entering?"
 
-"How about reminiscing about old times with you?"
+"How about visiting to reminisce about old times with you?"
 
-"Cannot do! Cannot do!" Chang Qingyun waved hands wildly. His eyeballs rolled, saying: "Old Yi, did your employer handle military rice for government troops in Wuzhou back then?"
+"Absolutely not! That won't work!" Chang Qingyun waved his hands frantically. His eyes rolled as a thought struck him. "Old Yi, didn't your employer supply military provisions for the government troops in Wuzhou back then?"
 
-"As long as local grain merchants, which one didn't handle." Yi Haoran heard Li Wensheng and Madam talk about this many times, knowing not only the Luo family, grain merchants in the city all suffered big losses, hating Xiong Wencan and the government to the bone.
+"Every local grain merchant did," Yi Haoran said. He had heard Li Wensheng and the Madam discuss this many times. The Luo family and other grain merchants in the city had all suffered heavy losses and bore deep hatred for Xiong Wencan and his government.
 
-"Then you should know who specifically handled it at that time, right?"
+"Then you should know who specifically handled those transactions, right?"
 
-Yi Haoran naturally knew; the name of the specific handler had long been cursed "to die a bad death" thousands of times by Ding A-tao.
+Yi Haoran naturally knew. Ding A-tao had cursed that man's name, wishing him "a bad death," thousands of times.
 
-"Know is knowing, but although he is life or death unknown, being Governor Xiong's trusted aide, probably ran away long ago..."
+"I know who it was. But although his fate is unknown, as one of Governor Xiong's trusted aides, he probably fled long ago..."
 
-"That is it. Since you are an accountant, just say you heard this person was captured by Australians, specially coming to find him to collect debt."
+"That's just it. Since you're an accountant, just say you heard this person was captured by the Australians and you've come specifically to collect a debt he owes."
 
-Yi Haoran paused, clapping hands and laughing: "Old friend! You indeed have some devilish cleverness!"
+Yi Haoran paused, then clapped his hands and laughed. "Old friend! You do have a certain devilish cleverness!"
 
-"Where, where," Chang Qingyun sneered, "Almost becoming a ghost, still have to be somewhat clever?" He instructed, "Taking you in is easy, just have to adapt to circumstances inside, absolutely don't ruin matters!" He asked again: "Do you have prepared human affairs on you?"
+"Please, please," Chang Qingyun sneered. "When you're nearly a ghost, you have to be somewhat clever." He added, "Getting you in is easy enough. Just adapt to circumstances once inside, and absolutely don't ruin things!" He asked again, "Do you have gifts prepared for greasing palms?"
 
-"Human affairs? Heard Australians don't practice this..."
+"Gifts? I heard the Australians don't practice that sort of thing..."
 
-"Australians don't practice, but the stewards and little ghosts holding power inside are all local yamen scoundrels. I take you in originally as something that can't see light; without bribing a bit, they inevitably will make trouble."
+"The Australians don't, but the stewards and petty officials holding power inside are all local yamen scoundrels. I'm taking you in on the sly—if we don't offer some bribes, they'll definitely make trouble."
 
-"Old friend thinks thoughtfully, I did bring some silver money."
+"Old friend thinks of everything. I did bring some silver."
 
-"If needing use, I naturally will remind you; just follow old rules."
+"I'll let you know when it's needed; just follow the usual customs."
 
-The two spoke clearly, then walked across the floating bridge, coming towards Sanheui parade ground.
+Having settled the details, the two crossed the floating bridge and headed toward the Sanheui parade ground.
 
-Sanheui was originally a sandbar washed out on the Gui River. After Wuzhou established the Viceroy of Two Guangs, to "pacify Yao," a large number of troops were stationed all year round. So a parade ground was set up at Sanheui, not only convenient for reviewing and training garrison troops but also a main camp for local garrison troops. Thousands of troops were stationed all year round.
+Sanheui was originally a sandbar deposited by the Gui River. After Wuzhou became the seat of the Viceroy of Two Guangs, the need to "pacify the Yao" required a large standing garrison. A parade ground was established at Sanheui, convenient for reviewing and training the troops and serving as the main camp for the local garrison. Thousands of soldiers were stationed there year-round.
 
-So here there were not only martial arts hall, grand review platform, and parade ground, but also many barracks and living facilities. After occupying Wuzhou, this place became the main captive camp of the Guangxi frontline; captives transported from various places gathered here for detention and transit.
+The site thus contained not only a martial arts hall, a grand review platform, and a parade ground, but also numerous barracks and living facilities. After the Australians occupied Wuzhou, this location became the primary captive camp for the Guangxi front. Prisoners transported from various locations were gathered here for detention and transit.
 
-Given the resources in Xie Erren’s hands, he naturally couldn't conduct very thoughtful and detailed management of the captive camp. Could only use surrendered personnel to "self-manage," including maintaining order, distributing rations, organizing personnel labor, etc., all responsible by old clerks experienced in prefecture and county yamens in the past. Internal guard personnel were undertaken by retained personnel mainly consisting of Fast Class and Strong Class yamen runners.
+Given the limited resources at Xie Erren's disposal, he naturally could not manage the captive camp with any thoroughness or attention to detail. He could only rely on surrendered personnel to "self-manage"—maintaining order, distributing rations, organizing labor, and so forth—all under the supervision of former clerks experienced in prefectural and county administration. Internal security was handled by retained personnel, primarily former Fast Class and Strong Class yamen runners.
 
 ---
 **Next Update:** Volume 7 - Guangzhou Governance Part 475

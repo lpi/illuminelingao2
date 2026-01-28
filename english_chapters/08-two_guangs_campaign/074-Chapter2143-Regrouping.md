@@ -1,81 +1,81 @@
 # Chapter 2143 - Regrouping
 
-In the past, he wouldn't even dare to think about this: the difference between him and Xiong Wencan was like clouds and mud. Let alone seeing him in person, he didn't even know how much silver it would cost just to see his staff or stewards. But right now, Xiong Wencan had lost Guangdong completely. Now, besides "sitting and waiting for death," he could only "turn to any doctor in a desperate illness." He would inevitably be more courteous to the worthy and condescending to the scholarly.
+In former times, even contemplating such an approach would have been inconceivable—the gulf separating him from Xiong Wencan yawned as vast as that between clouds and earth. Securing an audience with the Viceroy himself? Impossible. He couldn't even estimate the silver required merely to access Xiong's staff or household stewards. Yet circumstances had transformed dramatically. Xiong Wencan had lost Guangdong entirely. Now his options had narrowed to "awaiting death passively" or "seeking any physician in desperate illness." Inevitably, he would extend greater courtesy to worthy men and condescend to scholars.
 
-But this person was not easy to find. Gou Xunli was originally just a "local gentry" in a remote small county. At best, he could call brothers with the "Five Giants of the County Town"; once out of the county, he wasn't so "worthy" anymore. When the Gou family was at its peak, the advisor of the Qiongzhou Prefect was considered the most powerful political figure they had associated with.
+The challenge lay in identifying the right intermediary. Gou Xunli had been merely "local gentry" in a remote backwater county. At his apex, he'd claimed brotherhood with the "Five Giants of the County Town"—beyond those boundaries, his "worthiness" carried negligible weight. During the Gou family's zenith, the most powerful political connection they'd cultivated extended only to an advisor serving the Qiongzhou Prefect.
 
-When they fled to Guangzhou and looked for ways to file complaints everywhere, Gou Xunli profoundly realized his own insignificance. On the ground of Guangdong, except for Li Siya who actively came to recruit him later, he had no connections worth mentioning at all.
+When they'd fled to Guangzhou seeking redress through every available channel, Gou Xunli had confronted his own insignificance with brutal clarity. Throughout Guangdong, aside from Li Siya who'd actively recruited him later, he possessed no connections worth mentioning.
 
-Fortunately, the opportunity came quickly. For safety and ease of robbery, the mountain stronghold had planted quite a few spies inside and outside Wuzhou city. These people secretly colluded with the bandits, constantly passing various news to the stronghold. After the Bald Thieves broke the city, Gou and Hu had worries in their hearts, so they sent even more people into the city and the four countrysides to contact the "sitting spies." First, to see if the Bald Thieves had any movement to suppress bandits; second, to try to find if they could secretly contact scattered government personnel to serve as their guides.
+Fortune, however, arrived swiftly. For security and profitable robbery, the mountain stronghold had planted numerous spies throughout Wuzhou and its environs. These operatives maintained clandestine collaboration with the bandits, continuously relaying intelligence to the stronghold. After the Bald Thieves breached the city, Gou and Hu's anxieties intensified, prompting them to dispatch additional agents into urban and rural areas to contact their "embedded spies." Their objectives were twofold: ascertain whether the Bald Thieves planned bandit suppression operations, and attempt covert contact with scattered government personnel who might serve as guides.
 
-One of the sitting spies used to be a "White Body" (unofficial) bailiff serving in the county yamen. After the Australians entered the city, he heard the rumors and hid at home—anyway, white bailiffs were not on the roster; as long as they didn't go to the yamen to handle official business, they were considered to have severed ties.
+One embedded spy had formerly served as an unofficial "White Body" bailiff in the county yamen. Following the Australians' occupation, he'd caught wind of various rumors and retreated to his home—white bailiffs lacking official roster status could sever ties simply by ceasing yamen attendance.
 
-Because of his service in the yamen, this person had been assigned to stand guard outside the Viceroy's Yamen, so he had seen Yi Haoran a few times and knew his background. The day before, he went to the street to do business and saw Yi Haoran, who was serving as a "receptionist," in front of a house holding a funeral.
+His yamen service had included guard duty outside the Viceroy's offices, affording him several glimpses of Yi Haoran and knowledge of his background. The previous day, while conducting street business, he'd spotted Yi Haoran serving as "receptionist" before a household conducting funeral rites.
 
-This bailiff originally just wanted to take the opportunity to extort some money from Yi Haoran. Encountering the bandit coming down from the mountain looking for a "guide," he told the visitor this news.
+The bailiff's initial intent had been merely extracting some extortion money from Yi Haoran. When a bandit descended from the mountain seeking a "guide," however, he'd shared this intelligence.
 
-Gou Xunli obtained the news like a treasure. Because according to the sitting spy: Yi Haoran had once commanded Xiong Wencan's house guards—from this, it could be seen that he must be a trusted advisor in Xiong Wencan's private staff. Since he was hiding among the people, he surely wouldn't have defected to the Bald Thieves. Even if he couldn't persuade him, he wouldn't be reported by him. So he risked changing his appearance and personally came to Wuzhou to make contact.
+Gou Xunli received the news as precious treasure. According to the embedded spy, Yi Haoran had once commanded Xiong Wencan's household guards—clear evidence of trusted advisor status within Xiong's private staff. Since he remained concealed among the populace, he surely hadn't defected to the Bald Thieves. Even if persuasion failed, betrayal seemed unlikely. Thus Gou risked altering his appearance and personally entering Wuzhou to establish contact.
 
-His self-description about being a "Lingao gentry," "defecting to the Liangguang Viceroy," "being in Commander He's staff," and so on, were all to raise his own status and also to eliminate Advisor Yi's wariness.
+His self-presentation as "Lingao gentry," "refugee to the Liangguang Viceroy," "member of Commander He's staff," and similar credentials served dual purposes: elevating his own status while dispelling Advisor Yi's wariness.
 
-Sure enough, after he said these few sentences, the wariness in Yi Haoran's eyes decreased a lot. He whispered, "In that case, what did the strong man come here for?"
+The strategy succeeded. After these few statements, the caution in Yi Haoran's eyes visibly diminished. He whispered, "What purpose brings you here, then?"
 
-Gou Xunli also whispered: "Does Sir forget that this is the land of the Great Ming and want to live peacefully as a citizen of the Great Song forever?"
+Gou Xunli leaned closer still. "Does the gentleman truly forget this remains Great Ming territory? Do you intend to live peacefully as a Great Song subject forever?"
 
-Yi Haoran looked at him deeply: "I dare not forget!" He perfunctorily said a few words to the people around him and asked again, "Where are you staying?"
+Yi Haoran regarded him with penetrating intensity. "I dare not forget." He offered perfunctory remarks to nearby mourners before inquiring, "Where are you lodging?"
 
-"It's inconvenient for me to stay long in the city—the Bald Thieves want to inspect household registration," Gou Xunli quickly looked around and whispered, "I will go to the Dragon Mother Temple in the north of the city to offer incense at noon tomorrow. Sir can go there to wait for me."
+"Extended stays in the city pose difficulties—the Bald Thieves conduct household registration inspections." Gou Xunli scanned their surroundings swiftly before whispering, "Tomorrow at noon, I'll offer incense at the Dragon Mother Temple north of the city. You can await me there."
 
-Gou Xunli didn't dare to fully trust this Advisor Yi. Meeting outside the city, he could send people to the scene in advance to check for ambushes, lest this advisor suddenly wanted to use his head as a meeting gift.
+Gou Xunli dared not extend complete trust to this Advisor Yi. An extramural meeting allowed advance reconnaissance for ambushes, preventing this advisor from potentially using his head as a tribute offering.
 
-That night, Yi Haoran thought again and again and decided to connect with Gou Xunli's line. Now that the funeral of Jiang Qiuchan's family was basically finished, he had no reason to continue living here. And he had nowhere to go in Wuzhou—not only that, if he said he would go to Teng County now, the roads were not peaceful. Even if the Bald Thieves didn't block the roads, it was hard to guarantee his life if he encountered robbing bandits.
+That evening, Yi Haoran deliberated extensively before deciding to pursue Gou Xunli's connection. With Jiang Qiuchan's household funeral essentially concluded, his pretext for continued residence had evaporated. Moreover, he possessed nowhere else in Wuzhou to retreat—beyond that, attempting passage to Teng County now meant confronting dangerous roads. Even if the Bald Thieves maintained no roadblocks, encountering plundering bandits could prove fatal.
 
-Gou Xunli's background was certainly suspicious, but he was a down-and-out advisor, a semi-old man, neither a handsome man nor a beautiful woman, nor did he have family wealth. Gou Xunli wouldn't go so far as to design a trap to deceive him. If it were a trap by the Bald Thieves, he wasn't some important figure; moreover, he was right in the city. Killing or arresting him was just a matter of a sentence for the Bald Thieves; why go to such great trouble?
+Gou Xunli's background certainly invited suspicion, yet Yi himself was merely a destitute advisor, aging and unremarkable, possessing neither striking looks nor family wealth. Gou Xunli wouldn't expend such elaborate deception on him. If the Bald Thieves had set a trap, his insignificance rendered him unworthy of such machinations—they could eliminate or arrest him with a simple command. Why pursue such convoluted measures?
 
-No matter what this "Warrior Gou" plotted, it wouldn't do him any harm. The worst was losing his life. Conversely, in case this Gou Xunli really had some brilliant plan and could turn the tide, it might not be a bad thing—anyway, the situation of Xiong Wencan and the Guangdong Ming army had deteriorated to the extreme. Fighting to the death, perhaps misfortune turned to blessing, could still reverse the universe.
+Whatever plots this "Warrior Gou" harbored, they posed minimal threat to him personally. The worst outcome was death. Conversely, should Gou Xunli genuinely possess a brilliant stratagem capable of reversing fortunes, potential benefits beckoned—regardless, Xiong Wencan and the Guangdong Ming forces had deteriorated catastrophically. Desperate struggle might yet transform calamity into blessing, reversing the cosmic order itself.
 
-Thinking to this point, he quietly went to see Qiuchan.
+Reaching this conclusion, he quietly sought out Qiuchan.
 
-"Your niece-in-law's major event is finished. It is inconvenient for me to stay here any longer—it hinders your reputation." Yi Haoran weighed his words, "Tomorrow I will go outside to look for a house and move out immediately."
+"Your niece-in-law's mourning ceremony has concluded. My continued presence grows inappropriate—it compromises your reputation." Yi Haoran chose his words carefully. "Tomorrow I'll seek lodgings elsewhere and remove myself immediately."
 
-"Uncle has no relatives or friends in Wuzhou, and it's a time of chaos and war; where can you easily rent a house to settle down?" Qiuchan had relied entirely on Yi Haoran running around outside and supporting the scene these days to manage this funeral peacefully. She was very grateful to this "Advisor Yi": one must know that for a widow and orphan like her, without relatives supporting the scene outside, she would be an object of bullying and extortion in society. Often after a funeral, before the bones were cold, the family would be bankrupt.
+"Uncle possesses neither relatives nor friends in Wuzhou, and these times remain chaotic with warfare. How can you easily secure rental housing for settlement?" Qiuchan had relied entirely upon Yi Haoran's external advocacy and presence management these past days to conduct the funeral peacefully. Her gratitude toward this "Advisor Yi" ran deep. For a widow with orphan like herself, lacking relatives to provide external support rendered one vulnerable to societal exploitation and extortion. Often following funerals, before bones cooled, families faced bankruptcy.
 
-Although she knew that "Hao Ran's" departure was good for herself and this remaining broken family, the fear of orphans and widows being helpless and the good impression of his gentlemanly character and decisiveness in times of crisis during their day-and-night association these past few days made her unwilling to let him leave just like that.
+Though she recognized "Hao Ran's" departure benefited both herself and her shattered household, fear of widow-and-orphan helplessness combined with favorable impressions formed through their continuous association—his gentlemanly character and crisis decisiveness—made her reluctant to see him depart so abruptly.
 
-However, his staying like this was indeed unjustifiable. Qiuchan thought for a while and said, "Cousin-uncle, don't worry. It's a time of chaos and war now, and you are a stranger; no one will be willing to rent a house for a while—it's better to find a job here to settle down—either teaching a private school or being an accountant. Once you have a job, you will also have a place to live."
+Yet his continued residence truly lacked justification. Qiuchan contemplated briefly before suggesting, "Cousin-uncle, please don't worry. In these chaotic times, as a stranger, you'll find none willing to rent housing readily. Better to secure employment establishing your circumstances—whether teaching private academy or serving as accountant. Once employed, lodging naturally follows."
 
-Yi Haoran said: "That sounds good, but where to find a job in such a hurry."
+Yi Haoran nodded. "Sound advice, yet where might such employment materialize with such urgency?"
 
-"Cousin-uncle, don't worry. My natal family does business locally and has quite some connections. Tomorrow I will ask my natal relatives to inquire for you."
+"Cousin-uncle, rest assured. My natal family conducts local commerce and maintains considerable connections. Tomorrow I'll have natal relatives make inquiries on your behalf."
 
-Yi Haoran naturally respectfully accepted. The next day, he went out of the city as agreed.
+Yi Haoran accepted with respectful gratitude. The following day, he departed the city as arranged.
 
-This was his first time out of the city after the war. Seeing the withering and desolation outside the city after the flames of war, he sighed endlessly. However, order outside the city had largely recovered. Bald Thief soldiers leading a group of "militiamen" equipped with long spears and broadswords were patrolling and standing guard, giving a feeling of stability. The ruins on the streets were being cleared by teams of laborers. On the riverbank south of the Dragon Mother Temple, various collected materials were piled up like mountains, and many ships were moored. Presumably, they were going to repair the pontoon bridge on the Gui River. The shops had opened their doors; although business was sparse, there was finally a bit of vitality of surviving a disaster.
+This marked his first extramural venture since the warfare. Witnessing the devastation wrought by flames of war, he sighed endlessly. Yet order beyond the walls had substantially recovered. Bald Thief soldiers leading "militia" groups equipped with spears and broadswords conducted patrols and maintained guard posts, projecting stability. Labor teams cleared street ruins systematically. Along the riverbank south of the Dragon Mother Temple, collected materials towered like mountains, numerous vessels moored nearby—presumably preparations for Gui River pontoon bridge repairs. Shops had opened their doors; though commerce remained sparse, faint vitality of disaster survival emerged.
 
-Suddenly, a whistle came from afar. Looking up, thick smoke rolled over the West River, and another fleet of ships, connected head to tail, slowly sailed towards here—this must be the Bald Thieves' warships coming. Yi Haoran suddenly felt that he was really a fool. Xiong Wencan sat on tens of thousands of troops but was beaten to pieces in Wuzhou, ending up fleeing in panic. He, a mere scholar, wanted to "discuss state affairs" with a greenwood hero. Could his hundred or so greenwood heroes reverse the universe?
+Abruptly, a distant whistle pierced the air. Glancing upward, thick smoke billowed across the West River as another fleet, vessels linked bow-to-stern, sailed slowly forward—certainly more Bald Thief warships approaching. Yi Haoran suddenly perceived his own foolishness with crystalline clarity. Xiong Wencan had commanded tens of thousands yet suffered catastrophic defeat at Wuzhou, fleeing in panic. He, a mere scholar, presumed to "discuss statecraft" with a bandit chieftain. Could this hundred-odd greenwood warriors reverse the cosmic order?
 
-Thinking of this, he couldn't help but feel secretly sad. He just felt the future was dim and lightless; he was merely carrying snow to fill a river or cooking sand to make rice.
+Despair settled over him. The future appeared utterly lightless—he was attempting to fill a river with snow, to cook sand into rice.
 
-While he was feeling sad, he suddenly heard a voice speaking: "In your team, there were a total of seventy-six work shifts this morning. Where did ninety work shifts come from? Look, the tallies are clearly recorded here..."
+While depression claimed him, a familiar voice penetrated his melancholy: "Your workforce logged seventy-six labor shifts this morning. Where do ninety shifts originate? Look—the tallies clearly document this..."
 
-This voice was very familiar. Yi Haoran looked in the direction of the voice and saw a person who looked like a scholar talking to several foremen in a straw shed by the roadside. looking closely, who else could it be but Chang Qingyun!
+The voice struck recognition immediately. Yi Haoran's gaze found its source: a scholar-like figure conversing with several foremen beneath a roadside straw shelter. Closer inspection confirmed the impossible—Chang Qingyun!
 
-While shocked, this Chang Qingyun suddenly raised his head. Judging from his instantly frozen expression, he must have recognized him!
+Shock paralyzed both men momentarily. Chang Qingyun's expression froze upon recognition.
 
-Chang Qingyun was stunned, then immediately said: "...If you don't believe me, I'll calculate it for you right now..." After saying that, he gave Yi Haoran a "go quickly" glance.
+Recovery came swiftly. "...If you doubt me, I'll recalculate right now..." Chang Qingyun declared, simultaneously flashing Yi Haoran an urgent "depart quickly" glance.
 
-Yi Haoran nodded slightly, daring not to stay any longer, and hurried his steps towards the Dragon Mother Temple.
+Yi Haoran inclined his head fractionally, daring no further delay, and hastened toward the Dragon Mother Temple.
 
-On the way, he hesitated once whether to go meet Xun Li at the Dragon Mother Temple. But on second thought, although Chang Qingyun had been captured by the Bald Thieves, it seemed he was treated reasonably well and hadn't been driven to carry loads to repair the city walls. He recognized him but didn't report him on the spot, instead signaling him to leave quickly; it seemed a thread of conscience remained in his heart.
+En route, he briefly questioned whether to proceed with meeting Xun Li. Reflection clarified matters—though the Bald Thieves had captured Chang Qingyun, his treatment appeared reasonably humane. He hadn't been degraded to hauling construction materials. Recognizing Yi yet declining immediate betrayal, instead signaling urgent departure, suggested some remnant conscience endured.
 
-Influenced by seeing Chang Qingyun again and his "unyielding captivity," Yi Haoran's mood improved somewhat. He walked briskly, thinking:
+Witnessing Chang Qingyun again and his "unyielding captivity" somewhat ameliorated Yi Haoran's mood. His stride quickened, thoughts crystallizing:
 
-"As for this Warrior Xun, regardless of how much ability he actually has, at least he can serve the country with a red heart. Whether turning the tide or being a mantis trying to stop a chariot, I must try again!"
+*Regarding this Warrior Xun, regardless of actual capability, at minimum his heart serves the nation loyally. Whether reversing destiny's tide or acting as mantis confronting chariot, I must attempt this course!*
 
-Just as Yi Haoran was secretly meeting Gou Xunli at the Dragon Mother Temple, the fleet coming from the West River docked at the North Gui Grand Dock outside the Dayun Gate. As soon as the gangplank was set up, teams of soldiers wearing brand-new gray uniforms walked down from the ships in formation.
+While Yi Haoran conducted clandestine meetings at the Dragon Mother Temple, the West River fleet docked at North Gui Grand Dock beyond Dayun Gate. Gangplanks descended, disgorging formation after formation of soldiers clad in pristine gray uniforms.
 
-probably because they had been on the boat for too long, the formation was sparse and not neat, and the soldiers also appeared listless. Qian Duo was on the dock, shaking his head as he looked at this troop—he had received a notification that the National Army Wuzhou Battalion would arrive today. He had been waiting for this battalion for a long time; after all, relying only on his one hundred men and a few hundred militiamen, Wuzhou's defense was really too weak.
+Extended riverine transport had evidently taken its toll—formations appeared sparse and untidy, soldiers listless. Qian Duo observed dockside, shaking his head at this assemblage. He'd received advance notification: the National Army Wuzhou Battalion would arrive today. He'd awaited this battalion extensively—relying solely upon his hundred men and several hundred militia, Wuzhou's defense remained perilously vulnerable.
 
-However, looking at the troops in front of him: new clothes, new guns, obviously the people were also new. Judging from their military appearance, it wasn't guaranteed that most of them hadn't expanded locally in Guangdong—many still held standard spears.
+Yet surveying the troops before him—new uniforms, new firearms, obviously newly recruited personnel as well. Judging from military bearing, most had clearly undergone local Guangdong expansion—many still bore standard-issue spears.
 
-To expand enough National Army from the "homeland" was really too difficult for the Senate. Therefore, in the construction of the National Army, the main body was still the original National Army as the backbone, expanding with old Wei-Suo soldiers and surrendered Ming troops recruited locally in Guangdong.
+Expanding sufficient National Army forces from the "homeland" posed insurmountable difficulties for the Senate. Consequently, National Army construction employed the original core as backbone, expanding through veteran Wei-Suo soldiers and surrendered Ming troops recruited locally throughout Guangdong.

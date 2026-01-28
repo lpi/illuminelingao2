@@ -1,102 +1,106 @@
 # Chapter 2284: Offering a Plan
 
-Luo Yangming didn't chase asking anymore; he thought in heart, now Teng County already liberated, just asking Zhao Fengtian to send a letter to Teng County, could check clear this Advisor Hao's background.
+Luo Yangming didn't press further. He thought to himself that Teng County had already been liberated—he need only ask Zhao Fengtian to send a letter there and Advisor Hao's background could be verified.
 
-Ding A-tao asked back instead: "What happened to Advisor Hao? Could it be having some fault?"
+Ding A-tao asked instead, "Has something happened with Advisor Hao? Has he done something wrong?"
 
-"Where where," Luo Yangming said, "I see he has much ability, not like an ordinary scholar. Now military chaos horse confusion, better ask Australian to check steadier."
+"No, no," Luo Yangming said. "I just see that he's quite capable—not like an ordinary scholar. With all the chaos of war, it would be safer to have the Australians check on him."
 
-These words made Ding A-tao take heart; she had good feeling for Mr. Hao consistenttly, moreover introduced by best friend. Own husband now was figure on official use; if really checked out some "Unresponsive Matters," wouldn't it make everyone very ugly. Second day early morning, quietly wrote a note, sealed well giving Wen Yun, asking her to take simple gifts to Jiang family.
+These words alarmed Ding A-tao. She had always had a favorable impression of Master Hao, and moreover, her best friend had introduced him. Her husband now held an official position; if the investigation turned up anything "irregular," it would be embarrassing for everyone. Early the next morning, she quietly wrote a note, sealed it properly, and gave it to Wen Yun, asking her to bring some simple gifts to the Jiang household.
 
-"You say to Miss Jiang, this gift is returning Australian Dim Sum she sent last time; here also has a letter, hand to her personally together, understand?"
+"Tell Miss Jiang that these gifts are in return for the Australian pastries she sent last time. There's also a letter here—hand it to her personally. Understood?"
 
-Sent away Wen Yun, Ding A-tao heart somewhat panicked. A few days ago, city arrested several "Bandits," said to be spies sent by government, all beheaded for public display. Since this Prefect Xie took office rarely killed people; suddenly beheading several in one breath was first time; could it be situation outside had some unstable place again?
+After Wen Yun left, Ding A-tao felt somewhat uneasy. A few days earlier, the city had arrested several "bandits" who were said to be spies sent by the Ming government. All had been publicly beheaded. Since Prefect Xie had taken office, he had rarely executed anyone; suddenly beheading several at once was unprecedented. Could it be that the situation outside had become unstable again?
 
-She had heart to talk her worry with Li Wensheng, but this old shopkeeper always blindly spoke some comforting words—moreover he was same as herself, dwelling in city for long time; what situation outside exactly not necessarily knew more than herself...
+She thought of sharing her worries with Li Wensheng, but the old shopkeeper always offered nothing but empty reassurances. And like herself, he had lived in the city for so long that he probably knew no more about what was happening outside than she did...
 
-She suddenly remembered Wen Iron Head. He this boat runner and brothers under hand now all running boats for Australians on river; things known should be more; might as well ask him when having chance.
+She suddenly thought of Wen Iron Head. That boatman and his crew were now running boats for the Australians on the river; he ought to know more. She might as well ask him when she had the chance.
 
-News of Luo Yangming chasing questioning "Mr. Hao" background caused Jiang Qiuchan’s nervousness. "Mr. Hao's" background she couldn't be clearer. This Luo Yangming now was person on official face; really wanting to chase check, afraid couldn't conceal. In case Yi Haoran identity exposed, taken to government, harming life not to say, also involving that corpse in dry well of husband family backyard; at that time afraid herself couldn't dodge either...
+---
 
-Thinking here, she took opportunity of picking up child from school to see Yi Haoran, telling him this news quietly.
+News that Luo Yangming was inquiring into "Master Hao's" background made Jiang Qiuchan nervous. She knew Master Hao's true background all too well. Luo Yangming now held an official position; if he really pursued the investigation, the truth could hardly be concealed. If Yi Haoran's identity were exposed and he were hauled before the authorities, not only would his life be at risk, but the corpse in the dry well at her in-laws' house would come to light too—and then she herself could not escape involvement...
 
-"...This Shopkeeper Luo although is a business man, yet handling affairs for Australian very hard; in case he detects something, reporting you to government, wouldn't it be accident!"
+With this in mind, she took the opportunity of picking up her child from school to see Yi Haoran and quietly relay the news.
 
-Yi Haoran didn't expect Employer Luo surprisingly would suspect himself. Asked a few more sentences; roughly guessed was own "Offering Plan" attracted other party's suspicion.
+"...This Shopkeeper Luo, though a businessman, works very hard for the Australians. If he detects something and reports you to the authorities, it would be a disaster!"
 
-This was actually miscalculation! He thought secretly, didn't expect this Luo Yangming so ghost! But he also raised suspicion: reasonably speaking, this kind of business man mostly held concept of one thing less better than one thing more; even detecting suspicious points, high probability also pretending confusion. How could think of inviting government to interfere? Himself in Luo family trading firm never did things sorry to his family.
+Yi Haoran hadn't expected Employer Luo to be suspicious of him. He asked a few more questions and roughly guessed that his "offering a plan" must have attracted the man's attention.
 
-Just suspicious he suddenly remembered Chang Qingyun told him, Australian "Spies sitting and scouting spreading under heaven." Could it be this Luo Yangming was Australian’s spy too?
+A miscalculation, he thought. He hadn't expected Luo Yangming to be so shrewd. But he also found this curious: typically, businessmen adhered to the principle of "the less trouble, the better." Even if they noticed something suspicious, they would most likely pretend ignorance. Why would Luo think of involving the authorities? Yi Haoran had done nothing to wrong his household.
 
-While contemplating, Qiuchan low voice said: "Otherwise, Mr. Hao you evade first—now road to Teng County already through; you just say want to go home, hurry resign job going to Teng County. My husband family is right in Teng County, also big household; I write a letter for Sir; Sir take to seek refuge, evade temporarily."
+His suspicion aroused, he suddenly recalled what Chang Qingyun had told him: that the Australians had "spies and informants scattered everywhere." Could Luo Yangming be one of the Australians' spies as well?
 
-"Teng County now also in Hair thief hands; if this Luo Yangming really wants to investigate, isn't it matter of a paper document." Yi Haoran shook head saying, "If I go, wouldn't it immediately fulfill his suspicion?"
+While he was contemplating this, Qiuchan whispered, "Perhaps you should lie low for a while, Master Hao. The road to Teng County is open now. You could say you want to go home, quickly resign your position, and head for Teng County. My in-laws are right in Teng County—a prominent family. I'll write you a letter of introduction. You can take refuge there temporarily."
+
+"Teng County is also in the Hair thieves' hands now. If Luo Yangming really wants to investigate, it's just a matter of sending a document." Yi Haoran shook his head. "And if I leave now, wouldn't that immediately confirm his suspicions?"
 
 "Then..."
 
-"I in Wuzhou consistently abide by law and behave myself; Luo Yangming now busy with grain transfer matter; at this critical confuse juncture afraid can't attend to manage this matter." Yi Haoran knew, running away immediately at this moment was safest; but he couldn't let go plan plotted for long time; he was plan coordinator; once running away, this big matter considered wasted!
+"I've been law-abiding and well-behaved here in Wuzhou. Luo Yangming is busy with the grain transfer right now; at this critical juncture, he probably can't spare attention for this." Yi Haoran knew that fleeing immediately would be safest, but he couldn't abandon a plan he had been developing for so long. He was the coordinator of this conspiracy; if he ran, the entire enterprise would be ruined.
 
-He considered for moment, feeling safe for now; Luo Yangming not necessarily would really go investigate anything. But seeing panicked appearance of woman before eyes, he felt necessary to comfort her, avoiding exposing horse foot under panic.
+He thought it over and felt safe for the moment; Luo Yangming might not actually investigate anything. But seeing the panic on the woman before him, he felt he should calm her fears—lest her anxiety betray them.
 
-"You don't worry," Yi Haoran comforted her saying, "Student heaven big crime is nothing more than being Xiong Wencan’s staff—I wasn't some Red Man in Shogunate; even taken down just squatting a few days in Sanheui, can't harm life. Other matters, you don't need to worry even more. Also, your brother's matter now also has brow; within three five days, probably Senator Xie place will have explanation."
+"Don't worry," he said reassuringly. "The worst crime I could be charged with is having been on Xiong Wencan's staff—and I was no important figure in his Shogunate. Even if they catch me, it just means a few days squatting in Sanheui. It won't cost me my life. As for other matters, you needn't worry at all. Oh, and your brother's situation is looking promising. Within three to five days, there should be an answer from Senator Xie's office."
 
-He said matter of his "Offering Plan," also said: "...Shopkeeper Luo originally suffered from money shortage; this method he has to use. Go back tell your brother, ask him to contact actively as soon as possible, occupying this first opportunity!"
+He explained his "offering a plan" idea and continued, "Shopkeeper Luo was suffering from a shortage of funds; he'll have to use this method. Go back and tell your brother to make contact as soon as possible so he can seize the opportunity!"
 
-"This matter not anxious, Sir you here..." Jiang Qiuchan still felt not reassured; Yi Haoran quick witted moved, said: "When you go accompany Cai Lan, say this matter to her—no, not wanting her to beg favor, just want her to pay attention to this matter; if any news tell you ASAP is fine..."
+"My brother's business isn't urgent—what matters is you, Sir..." Jiang Qiuchan still felt uneasy. Yi Haoran thought quickly and said, "When you go to attend Cai Lan, mention this to her—no, don't ask her to intervene. Just ask her to keep an ear out for any news and let you know immediately..."
 
-Jiang Qiuchan thought herself still had Cai Lan this aid, heart loosened, said: "I entering mansion tomorrow will speak with her!"
+Realizing she still had Cai Lan as an ally reassured Qiuchan somewhat. "I'll speak with her tomorrow when I go to the mansion!"
 
-"Mr. Hao says so?" Cai Lan asked in low voice.
+---
 
-"Exactly!" Jiang Qiuchan somewhat nervous, "Beg sister pay attention; if any change, please inform one or two in advance."
+"Master Hao said this?" Cai Lan asked quietly.
 
-"I know." Cai Lan nodded, "You don't need to fear, ten thousand matters have me."
+"Yes!" Jiang Qiuchan was somewhat nervous. "I beg you, sister, to keep an eye out. If anything changes, please give us some advance warning."
 
-Having Cai Lan this sentence, Jiang Qiuchan naturally reassured. Since Cai Lan went to Dragon Mother Temple, attitude towards Senator Xie had obvious change. Common saying goes: Man chasing woman, separated by mountain; woman chasing man, separated by paper. If woman used heart on man, man rarely not falling into gentle township. Senator Xie work busy, lacking was exactly tenderness between man and woman. Cai Lan although small door small household background, traditional woman works were all learned; also able to go up hall and down kitchen. Every day not only preparing soup and water personally, also sewing and mending for Senator Xie. Servant women all said secretly: this little girl accepted fate.
+"I understand." Cai Lan nodded. "Don't be afraid. Whatever happens, I'll handle it."
 
-This effort going down, Senator Xie now almost every day came to Three Headquarters to stay overnight. Sometimes "Spring night bitter short," getting up late, simply worked here during day too. Administrative center of Wuzhou gradually had trend of shifting to Three Headquarters. Cai Lan’s "Exclusive Favor" momentum was blazing. At critical moment as long as she willing to come out to mediate, could turn bad luck to good luck.
+With these words from Cai Lan, Jiang Qiuchan naturally felt reassured. Ever since Cai Lan's visit to Dragon Mother Temple, her attitude toward Senator Xie had changed noticeably. As the saying went: *When a man chases a woman, they're separated by a mountain; when a woman chases a man, only a paper screen lies between.* When a woman set her heart on a man, he rarely escaped the gentle trap. Senator Xie was busy with work and starved for the tenderness between man and woman. Though Cai Lan came from a humble background, she had mastered all the traditional womanly arts; she could manage a household and work in the kitchen. Now she personally prepared soup and tended to his comforts every day, and even did his mending. The servant women whispered among themselves that the young miss had finally accepted her fate.
 
-But Zhao Fengtian didn't quite approve this shift: although Three Headquarters had many organizations, also troops stationed, place bigger than Prefecture Yamen several times; garrison mostly National Army, unfavorable for strict security.
+With such devoted attention, Senator Xie now came to the Three Headquarters to stay overnight nearly every evening. Sometimes, when "the spring night is all too brief," he rose late and simply worked there during the day as well. The administrative center of Wuzhou was gradually shifting toward the Three Headquarters. Cai Lan's "exclusive favor" was blazing hot. At any critical moment, if she were willing to intercede, she could turn misfortune into blessing.
 
-But Xie Erren didn't mind; here was Wuzhou's "City within City"; surrounding had hundreds of National Army and naturalized citizen cadres encircling; if here not safe, where else safe! Therefore towards Zhao Fengtian’s advice just laughed it off.
+Zhao Fengtian, however, didn't quite approve of this shift. Though the Three Headquarters housed many organizations and stationed troops, the compound was several times larger than the Prefecture Yamen. The garrison was mostly National Army, which was less than ideal for strict security.
 
-Luo Yangming came to find him, reporting thought of "Raising Fund Buying Rice." Xie Erren listened feeling also a method, asked:
+But Xie Erren didn't mind. This was Wuzhou's "city within a city"; hundreds of National Army soldiers and naturalized civilian cadres surrounded it. If this place wasn't safe, where would be? He simply laughed off Zhao Fengtian's concerns.
 
-"This gang of merchants, wanting them to pay money definitely has dividend; we selling rice over saying back to bottom is for stabilizing rice price; how much dividend can give them?"
+Luo Yangming came to present his "fundraising for grain" proposal. Xie Erren listened and found it reasonable, then asked:
 
-"I preliminarily calculated. Price of this batch of brown rice arriving Wuzhou is one tael three mace per *dan*." Luo Yangming took out notebook, "City flat in flat out, directly engaging as registered residence rice rationing, only can sell one tael five mace per *dan*; earning two mace per *dan*. Ten thousand *dan* also just earning two thousand taels silver."
+"These merchants—they'll want dividends if they're putting up money. But the whole point of selling this rice is to stabilize prices. How much dividend can we offer them?"
 
-"This gang of merchants inevitably unwilling." Xie Erren nodded saying, "This I understand. Benefit they covet, at least fifty percent profit."
+"I've done preliminary calculations. The cost of this batch of brown rice arriving in Wuzhou is one tael three mace per *dan*." Luo Yangming took out his notebook. "If the city sells it at cost as ration rice, we can only charge one tael five mace per *dan*—a profit of just two mace per *dan*. Ten thousand *dan* would yield only two thousand taels of silver."
 
-"Yes," Luo Yangming said, "But right now their condition universally not good; silver placed in hand can't earn money; can force them a bit."
+"The merchants will definitely refuse." Xie Erren nodded. "I understand. They expect at least fifty percent profit."
 
-"Forcing a bit is easy; just next time asking them to pay money again, afraid won't be that happy." Xie Erren somewhat hesitant.
+"Yes," Luo Yangming said. "But conditions are generally poor right now. Silver sitting idle earns nothing. We can push them a bit."
 
-Luo Yangming said: "I actually have a method, just need Chief to make decision."
+"Pushing a bit is easy enough. But the next time we ask them for money, they might not be so willing." Xie Erren hesitated.
 
-"You speak to see."
+Luo Yangming said, "I actually have an idea, but the Chief will need to decide."
 
-Luo Yangming’s method speaking came not rare; after ten thousand *dan* grain arrived, six thousand *dan* taken out as registered residence rice rationing; remaining three thousand *dan*, sold according to current "Market Limit Price."
+"Let's hear it."
 
-Seven thousand *dan* rice fair price rationing, could support grain consumption of Wuzhou for a month; and selling according to "Market Limit Price," current retail price was two taels eight mace.
+Luo Yangming's proposal wasn't unusual: after the ten thousand *dan* of grain arrived, six thousand *dan* would be allocated as ration rice, and the remaining three thousand *dan* would be sold at the current "market ceiling price."
 
-"...These grain, not released by big plate small plate, but handed to various grain shops to act as agent. After sales finished, then distribute dividend according to each family funding quota. Agent grain shops, every *dan* sold take one mace agent fee."
+Seven thousand *dan* of rice at fair prices could support Wuzhou's grain consumption for a month. The "market ceiling price" for retail sales was currently two taels eight mace.
 
-This way three thousand *dan* rice could profit four thousand five hundred taels; deducting three hundred taels agent fee, still had four thousand one hundred taels net profit. Enough to pay various returns; City Government could also keep a part as funds—City Government's current financial situation of stretching collar exposing elbow also always made Xie Erren headache.
+"...This grain wouldn't be released in bulk, but distributed to various grain shops to sell on commission. After sales are complete, dividends would be distributed according to each investor's contribution. The grain shops acting as agents would take a commission of one mace per *dan* sold."
 
-This plan both could stabilize registered residence rice supply, maintaining social stability; and could guarantee investor's interest; also could alleviate fiscal distress situation; one stone three birds.
+This way, three thousand *dan* of rice would yield four thousand five hundred taels in profit. Deducting three hundred taels in commission fees still left a net profit of four thousand one hundred taels—enough to pay investors their returns, with a portion left over for the City Government's funds. The City Government's current financial straits were another constant headache for Xie Erren.
 
-Xie Erren thought this Intelligence Agency spy really had two brushes! Was a talent in administration! Pity now he was still Political Security Bureau’s hidden cadre, couldn't reuse. However, he still somewhat worried:
+This plan would stabilize the ration rice supply, maintaining social order; guarantee investor returns; and alleviate fiscal difficulties—killing three birds with one stone.
 
-"Just this way, registered residence rice quota equals less one third; next time rationing don't know when to come..."
+Xie Erren thought to himself that this Intelligence Agency spy really had talent! A genuine administrator! A pity he was still an undercover Political Security Bureau cadre and couldn't be openly employed. Still, Xie Erren had some concerns:
 
-"Right now front line war affairs smooth; as long as able to support pass one or two months, Guangxi pacified, grain from Guangxi side will come over. Even if can't come, rural summer grain around Wuzhou soon to appear on stage; as long as grasping tight collecting Reasonable Burden, won't lack grain. Further down, is autumn harvest..."
+"But this way, the ration rice quota is reduced by a third. Who knows when the next shipment will arrive..."
 
-"In past days could Wuzhou surroundings collect grain?"
+"Right now the front lines are going smoothly. If we can just hold out for another month or two, Guangxi will be pacified and grain from that side will flow in. Even if it doesn't, the summer harvest from the countryside around Wuzhou will soon be ready. As long as we manage the Reasonable Burden collection properly, we won't lack grain. And after that comes the autumn harvest..."
 
-"Can," Luo Yangming said without hesitation, "I opened rice shop here for many years; August starting has summer grain appearing on stage; although not counting much, can also acquire quite a lot. Wuzhou's summer tax collected according to Ming system okay; adopting Reasonable Burden apportionment collecting okay..."
+"Have we been able to collect grain from the Wuzhou area recently?"
 
-Xie Erren heart moved; how did self forget "Imperial Grain National Tax"!
+"Yes," Luo Yangming said without hesitation. "I've run a rice shop here for many years. Starting in August, summer grain comes to market. Though it's not a huge amount, we can acquire quite a lot. Wuzhou's summer tax can be collected according to the Ming system, or we can adopt the Reasonable Burden levy..."
+
+Xie Erren's heart stirred. How had he forgotten about "Imperial Grain and National Taxes"?
 
 ---
 **Next Update:** Volume 7 - Guangzhou Governance Part 488

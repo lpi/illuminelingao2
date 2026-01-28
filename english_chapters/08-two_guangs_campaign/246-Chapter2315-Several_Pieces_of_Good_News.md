@@ -1,119 +1,119 @@
 # Chapter 2315 - Several Pieces of "Good News"
 
-The arrival of grain and troops quickly settled the hearts of the people in Wuzhou. Under Zhao Fengtian's persuasion, Xie Erren made several public appearances again, especially paying a special visit to the Dragon Mother Temple, creating an atmosphere of "Dragon Mother protects Wuzhou."
+The arrival of grain and troops quickly settled the people of Wuzhou. At Zhao Fengtian's urging, Xie Erren made several public appearances, including a special visit to the Dragon Mother Temple to cultivate an atmosphere of "the Dragon Mother protects Wuzhou."
 
-Wuzhou followed suit as usual. Seven or eight days after the riot, victory reports also came from Guangxi: the Volte Army occupied Nanning. With this, the Left Route Army's strategy for Guangxi was basically completed. Except for the former Ming Dynasty's bonded areas (Tusi areas) and some remote places inaccessible by water, most prefectures and counties ruled by regular officials had been occupied, and Guangxi's main water transportation was also restored.
+Wuzhou followed suit as usual. Seven or eight days after the riot, victory reports also arrived from Guangxi: the Volte Army had occupied Nanning. With this, the Left Route Army's Guangxi strategy was essentially complete. Except for former Ming Dynasty bonded areas controlled by Tusi and some remote places inaccessible by water, most prefectures and counties under regular official rule had been occupied, and Guangxi's main water transportation was restored.
 
-Shortly after Zhu Mingxia captured Nanning, he immediately proclaimed to merchants across the province that all waterway channels were open for navigation immediately.
+Shortly after capturing Nanning, Zhu Mingxia immediately proclaimed to merchants throughout the province that all waterway channels were now open for navigation.
 
-"Whether it is goods backlogged before the war or goods in hand, as long as you are willing to transport them west to Wuzhou, warships and soldiers will be sent to protect them along the way without taking a penny."
+"Whether goods backlogged before the war or goods currently in hand—as long as you're willing to transport them west to Wuzhou, warships and soldiers will escort you along the entire route without taking a penny."
 
-Not only were Inland River Fleet ships sent for escort, but empty ships of the Joint Logistics Fleet returning west also provided cargo space at low prices. Strategic materials—such as grain—were exempt from freight charges.
+Not only were Inland River Fleet ships sent for escort, but empty vessels from the Joint Logistics Fleet returning west also offered cargo space at reduced prices. Strategic materials—such as grain—were transported free of charge.
 
-As a result, some of the local products and grain originally backlogged in Guangxi begin to be transported to Guangdong.
+As a result, local products and grain originally stockpiled in Guangxi began flowing toward Guangdong.
 
-According to custom, most Guangxi merchants sold off their goods upon reaching Wuzhou. So the restoration of water transportation was like a cardiotonic shot for the Wuzhou merchants and people who had fallen into depression. Especially the owners and managers of the Peace Code Guild; one can imagine the excitement of their mood when they saw civilian boats arriving from the upper reaches of the West River.
+By custom, most Guangxi merchants sold their goods upon reaching Wuzhou. So the restoration of water transportation was like a shot of adrenaline for the merchants and citizens who had fallen into depression. Especially the owners and managers of the Peace Code Guild—one could only imagine their excitement when they saw civilian boats arriving from the upper reaches of the West River.
 
-Xie Erren and Zhao Fengtian were indifferent to the changes brought by the improvement of the situation. They had too many things to do.
+Xie Erren and Zhao Fengtian remained indifferent to the changes brought by the improving situation. They had too many matters demanding their attention.
 
-First was the case. After Cai Lan was escorted back to the Earth God Temple for custody, she was bullied and tortured daily by two female wardens, especially with verbal humiliation. Finally unable to endure it, she swallowed gold and committed suicide. Hearing that Cai Lan was dead, Zheng Ergen breathed a sigh of relief in secret. After sending a coroner to verify the corpse was correct, he found nuns from a local nunnery and asked them to handle the funeral arrangements.
+First was the case. After Cai Lan was escorted back to the Earth God Temple for custody, she was bullied and tormented daily by two female wardens—especially through verbal humiliation. Finally unable to endure it any longer, she swallowed gold and died. Upon hearing of her death, Zheng Ergen breathed a secret sigh of relief. After sending a coroner to verify the body, he found nuns from a local nunnery and commissioned them to handle the funeral arrangements.
 
-"Don't be too frugal with the funeral arrangements. Select a good coffin to send her off." Zheng Ergen instructed according to Zhao Fengtian's orders. "After encoffining, don't bury the coffin temporarily. Keep it for half a year first. If there is no news after half a year, choose a piece of auspicious land to bury it."
+"Don't be too frugal with the funeral. Select a proper coffin to see her off." Zheng Ergen followed Zhao Fengtian's instructions. "After encoffining, don't bury the coffin immediately. Keep it for half a year first. If there's no news after half a year, choose auspicious ground for burial."
 
-The nuns took the silver and went to follow the orders. Zheng Ergen breathed a sigh of relief and immediately went to report to Zhao Fengtian.
+The nuns took the silver and went about their duties. Zheng Ergen breathed another sigh of relief and went immediately to report to Zhao Fengtian.
 
-"The person is dead." He said excitedly. "Without tampering!"
+"She's dead," he said excitedly. "Without any tampering."
 
-Zhao Fengtian didn't smile; instead, he sighed rather heavily and said, "We have done a matter with a guilty conscience..."
+Zhao Fengtian didn't smile. Instead, he sighed heavily. "We've done something with a guilty conscience..."
 
-"Even in a public trial, she couldn't escape death." Zheng Ergen persuaded.
+"Even at a public trial, she couldn't have escaped death," Zheng Ergen offered.
 
-"The words are correct, but doing this can't be put on the table. It violates 'Rule by Law'." Zhao Fengtian sighed again as he said this. "When I was in the administrative training class, the Chief taught us that regardless of motive or intention, doing things must be upright and able to withstand people's nitpicking. Don't think the law hinders our hands; the law is a protective armor for people like us..."
+"That's true enough, but what we did can't be brought into the light. It violates 'Rule by Law.'" Zhao Fengtian sighed again. "When I was in the administrative training class, the Chief taught us that regardless of motive or intention, our actions must be aboveboard and able to withstand scrutiny. Don't think the law ties our hands—the law is protective armor for people like us..."
 
-As he spoke, seeing Zheng Ergen's face full of ignorance, he knew he couldn't quite understand these things, and saying them was useless. So he said: "How are the follow-up matters arranged?"
+Seeing Zheng Ergen's expression of complete incomprehension, he realized the man couldn't grasp these concepts, and saying more was pointless. So he asked instead, "How are the follow-up matters arranged?"
 
-Zheng Ergen immediately recounted the arrangements for Cai Lan's funeral. Zhao Fengtian nodded and asked again: "What about those two female wardens?"
+Zheng Ergen immediately recounted the arrangements for Cai Lan's funeral. Zhao Fengtian nodded and asked, "What about those two female wardens?"
 
-Zheng Ergen was stunned and said: "I told them to go back and continue their duties..."
+Zheng Ergen was startled. "I told them to return to their duties..."
 
-"These two people cannot stay," Zhao Fengtian whispered, taking two small bundles from the drawer. "In each bundle is twenty taels of silver. Tell them to take the silver and move out of Wuzhou with their families as soon as possible. Live incognito from now on—never return to Wuzhou. You must scare them a bit."
+"Those two cannot stay." Zhao Fengtian whispered, taking two small bundles from his drawer. "Each bundle contains twenty taels of silver. Tell them to take the silver and move out of Wuzhou with their families as soon as possible. Live incognito from now on—never return to Wuzhou. Make sure to frighten them a bit."
 
-The management of retained personnel was strict entry and loose exit. Although there was vetting upon entry, leaving was not strict. There were those who formally resigned, and plenty who left without saying goodbye. Because of the unstable regime and unpredictable war situation in recent months, changes in retained personnel were significant. Two female wardens running away was not strange.
+The management of retained personnel was strict on entry but loose on exit. Although there was vetting upon hiring, leaving wasn't rigorous. Some resigned formally, while plenty simply vanished without notice. With the regime's instability and unpredictable war situation in recent months, personnel turnover had been significant. Two female wardens running away wouldn't raise eyebrows.
 
-"Okay, I'll go arrange it right away." Sweat poured down Zheng Ergen's forehead. He thought to himself that acting according to regulations in the past earned no good, but acting according to the Chief's will now was also soul-stirring! He really didn't know what was best.
+"Understood. I'll arrange it right away." Sweat poured down Zheng Ergen's forehead. He thought to himself that following regulations in the past earned no good, yet following the Chief's wishes now was equally nerve-wracking! He truly didn't know what was best.
 
-Sending away Zheng Ergen, Zhao Fengtian studied the seal script of the two secret cipher seals on the table again. Up to now, the local police in Wuzhou hadn't found the origin of these seals. Managers and staff from several seal-carving shops in the city were called to identify them, but they didn't recognize whose handiwork it was specifically. However, they unanimously said these two seals didn't come from places like seal-carving shops; they might be privately carved by some shop itself.
+After Zheng Ergen left, Zhao Fengtian studied the seal script on the two cipher seals lying on his table once more. Thus far, the local police in Wuzhou hadn't discovered their origin. Managers and staff from several seal-carving shops in the city had been summoned to examine them, but none could identify the specific craftsman. However, they unanimously agreed these two seals hadn't come from ordinary seal-carving shops—they had likely been privately carved by some commercial establishment.
 
-"...The material for private carving can be kept secret, and the carving method is different from outside. The shop can control it itself, so outsiders can't counterfeit it," a manager reported.
+"...For private carving, the material can be kept secret, and the carving method differs from outside work. The shop controls it internally, so outsiders can't forge copies," one manager reported.
 
-"Since that's the case, which shops in Wuzhou carve secret cipher seals themselves?"
+"In that case, which shops in Wuzhou carve cipher seals themselves?"
 
-"That would be many. At least the local Peace Code Guild and substantial big shops would do it. Small and medium shops have little silver deposited and no big accounts, so they generally don't use them."
+"That would be quite a few. At minimum, the local Peace Code Guild and substantial major shops all do it. Smaller establishments have little silver deposited and no large accounts, so they generally don't bother."
 
-In Wuzhou City, the substantial firms that carved secret cipher seals themselves were not too many, no more than thirty or forty. So the identification scope narrowed down at once. Zhao Fengtian sent people to invite the prominent figures of the local Chamber of Commerce, letting them take the seals to identify. See if anyone could identify which family it belonged to—at least, they had to know which trade it likely belonged to.
+Within Wuzhou City, the substantial firms that carved their own cipher seals numbered perhaps thirty or forty at most. So the identification scope had narrowed considerably. Zhao Fengtian sent people to invite prominent figures from the local Chamber of Commerce, having them examine the seals to see if anyone could identify which family they belonged to—or at least which trade they likely pertained to.
 
-Rapid footsteps came from outside. These were Luo Yangming's footsteps—his footsteps were always this rapid. But listening to them made one feel quite reassured.
+Rapid footsteps sounded from outside—Luo Yangming's footsteps, always this hurried. Yet somehow listening to them brought reassurance.
 
-What was the matter for him to come so urgently? Zhao Fengtian's heart tensed up again.
+What could be so urgent? Zhao Fengtian's heart tensed again.
 
-Luo Yangming came in hurriedly for a reason: he had just received an urgent letter from the secret channel of Political Security.
+Luo Yangming hurried in for good reason: he had just received an urgent letter through Political Security's secret channel.
 
-Luo Yangming plunged in, sitting opposite Zhao Fengtian without time for pleasantries, a look of lingering fear on his face.
+He burst in and sat opposite Zhao Fengtian without time for pleasantries, lingering alarm on his face.
 
-"Yangming, what's wrong with you? Is there an emergency?"
+"Yangming, what's wrong? Is there an emergency?"
 
-"Disaster!" Luo Yangming said hurriedly, "Great disaster!"
+"Disaster!" Luo Yangming said urgently. "A great disaster!"
 
-"What great disaster?!" Zhao Fengtian's face also changed. Due to his profession, Luo Yangming not only spoke cautiously but also always had an indifferent expression. It was rare to see him startled.
+"What disaster?!" Zhao Fengtian's expression changed. Given his profession, Luo Yangming not only spoke cautiously but typically maintained an impassive demeanor. It was rare to see him rattled.
 
-Now that he was so excited, it went without saying that this matter wasn't small.
+For him to be this agitated, the matter was clearly serious.
 
-"Plague cases found in Guangzhou." Luo Yangming whispered.
+"Plague cases found in Guangzhou," Luo Yangming whispered.
 
-"What?!" Zhao Fengtian almost stood up. When he received training in the administrative training class, there was a special course on local administrative "health and epidemic prevention" work, focusing on the spread and prevention of several severe infectious diseases. So he wasn't unfamiliar with the plague.
+"What?!" Zhao Fengtian nearly leapt to his feet. During his training in the administrative training class, there had been a special course on local administrative "health and epidemic prevention" work, focusing on the spread and prevention of several severe infectious diseases. So he was no stranger to the plague.
 
-"Don't get excited, be careful of the news spreading." Luo Yangming lowered his voice. "This news just arrived. The official document will probably be a few days late."
+"Don't get excited—be careful the news doesn't spread." Luo Yangming lowered his voice. "This just arrived. The official document will probably be a few days behind."
 
-The secret channel of the Political Security Bureau had a very high priority, often arriving at the destination earlier than official documents.
+The Political Security Bureau's secret channel had very high priority, often reaching destinations before official documents.
 
-"What is the specific situation?"
+"What's the specific situation?"
 
-"Cases were found when repatriating and sheltering beggars at the dock a few days ago. Since there are cases, I'm afraid the plague has already spread. In the next wave, Guangzhou is likely to see many deaths." Luo Yangming said, "The PSB ordered me to pay attention to visitors from Guangzhou in Wuzhou..."
+"Cases were found during beggar repatriation and sheltering at the docks a few days ago. Since there are cases, I'm afraid the plague has already spread. In the coming wave, Guangzhou will likely see many deaths." Luo Yangming said. "The PSB ordered me to monitor visitors from Guangzhou in Wuzhou..."
 
-Zhao Fengtian nodded silently and whispered: "This is really bad luck! In this way, isn't the Senate attacked front and rear?"
+Zhao Fengtian nodded silently and whispered, "This is truly terrible luck! The Senate is now under attack from front and rear?"
 
-"Who says it isn't. Fortunately, Guangxi is roughly pacified militarily now. As long as Guangzhou controls the epidemic not to spread out, it will naturally subside in a few months."
+"Indeed. Fortunately, Guangxi is roughly pacified militarily now. As long as Guangzhou controls the epidemic and prevents it from spreading outward, it will naturally subside in a few months."
 
-"Although so, if Guangzhou has a problem, our commerce here which just recovered some vitality will probably suffer a heavy blow again..."
+"Even so, if Guangzhou has problems, our commerce here—which has only just begun recovering—will probably suffer another heavy blow..."
 
-"I think the problem isn't big. After all, what comes from Guangxi is mostly grain. This grain is urgently needed by the Planning Commission." Luo Yangming said, "What is transported to Guangxi is mainly salt—produced in salt fields in Haibei and Hainan, also unrelated to Guangzhou."
+"I don't think it'll be too serious. After all, what's coming from Guangxi is mostly grain, which the Planning Commission urgently needs." Luo Yangming said. "What's being transported to Guangxi is mainly salt—produced in the salt fields of Haibei and Hainan, completely unrelated to Guangzhou."
 
-"I'm relieved hearing you say this." Zhao Fengtian thought to himself, although plague broke out in Guangzhou, this should count as a blessing for Chief Xie—at present, the Senate probably wouldn't have the mind to investigate this matter. After another half a year, maybe it would be another situation.
+"That's reassuring to hear." Zhao Fengtian thought to himself that although plague had broken out in Guangzhou, this should actually count as a blessing for Chief Xie—at present, the Senate probably wouldn't have the bandwidth to investigate his affair. After another half year, the situation might be entirely different.
 
-How could Luo Yangming know the little calculations in Zhao Fengtian's heart? He said: "Although Guangzhou is far from us, we must also do some preparatory work."
+How could Luo Yangming know the calculations running through Zhao Fengtian's mind? He said, "Though Guangzhou is far from us, we should begin preparatory work."
 
-The so-called preparatory work was nothing more than setting up quarantine zones, conducting quarantine inspections on personnel from Guangzhou, and at the same time inevitably launching a rat extermination campaign.
+The preparatory work amounted to setting up quarantine zones, conducting inspections on personnel from Guangzhou, and inevitably launching a rat extermination campaign.
 
-"...We can start preparing these things first. After all, Wuzhou is a major water and land terminal of Liangguang. Normally merchants gather here; it's hard to guarantee no one comes from Guangzhou—speaking of which, with the war in Liangguang these days, traffic and merchants are cut off, which counts as a blessing in disguise."
+"...We can start preparing these things now. After all, Wuzhou is a major water and land terminal for Liangguang. Normally merchants gather here—there's no guarantee no one comes from Guangzhou. Come to think of it, with the war disrupting traffic and commerce across Liangguang these past months, that's actually been a blessing in disguise."
 
-"You are right," Zhao Fengtian nodded. "I'll go report to Chief Xie immediately and get this handled."
+"You're right," Zhao Fengtian nodded. "I'll go report to Chief Xie immediately and get this handled."
 
-Just as they were speaking, a naturalized cadre came in, put down the envelope in his hand, and whispered a few words in Zhao Fengtian's ear. Zhao Fengtian nodded slightly and said: "You go out first."
+Just as they were speaking, a naturalized cadre entered, placed an envelope on the table, and whispered a few words in Zhao Fengtian's ear. Zhao Fengtian nodded slightly and said, "You may go."
 
-He put the envelope on the table and poured out two secret cipher seals.
+He opened the envelope and poured out two cipher seals.
 
-"These two seals have been located."
+"These two seals have been identified."
 
-"Oh?" Luo Yangming became interested. "Which family?"
+"Oh?" Luo Yangming's interest was piqued. "Which family?"
 
 "Ruijin Tang Silk Shop."
 
-"The Jiang family's?" Luo Yangming feigned surprise. In fact, he had more or less guessed: since Jiang Qiuchan was deeply involved in this case, her maiden family might also be implicated.
+"The Jiang family's?" Luo Yangming feigned surprise. In fact, he had more or less guessed: since Jiang Qiuchan was deeply implicated in this case, her maiden family might also be involved.
 
-"Correct. Several people from the Chamber of Commerce and the Aftermath Bureau looked at it and said it should be theirs." Zhao Fengtian said playfully while looking at Luo Yangming. "I originally thought Jiang Qiuchan was just being used. It seems the water in her family is quite deep."
+"Correct. Several people from the Chamber of Commerce and the Aftermath Bureau examined them and said they should be theirs." Zhao Fengtian spoke playfully while watching Luo Yangming. "I originally thought Jiang Qiuchan was merely used. It seems the waters in her family run deeper than expected."
 
-When they discussed the case, Luo Yangming more or less intentionally exonerated Jiang Qiuchan. On one hand, it was his wife's request; on the other hand, he also felt Jiang Qiuchan had a pitiful background and no subjective malice. It was different from the deliberate actions of Cai Lan and the others.
+When they had discussed the case, Luo Yangming had more or less deliberately tried to exonerate Jiang Qiuchan. On one hand, it was at his wife's request; on the other, he also felt Jiang Qiuchan had a pitiable background and no malicious intent—quite different from the deliberate actions of Cai Lan and the others.
 
-Originally, they had reached a certain tacit understanding on exonerating Jiang Qiuchan, but now that new evidence came out, Luo Yangming knew this matter could no longer be vague.
+Originally, they had reached a certain tacit understanding about clearing Jiang Qiuchan's name. But now that new evidence had emerged, Luo Yangming knew this matter could no longer remain ambiguous.
 
 **(End of Chapter)**

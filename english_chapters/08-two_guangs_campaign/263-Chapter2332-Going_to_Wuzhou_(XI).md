@@ -1,95 +1,95 @@
 # Chapter 2332 - Going to Wuzhou (XI)
 
-"...But the matter of Cai Lan destroying the document is different. Only three or four people know the ins and outs of this matter, and not a single person masters the full picture. You can only piece together that such a thing happened, knowing nothing of other details. Moreover, there is also the Wuzhou riot, giving him a sufficient excuse to destroy key documents. As long as he insists firmly that there was no such thing, no one can falsify it."
+"...But the document matter is different. Only three or four people know the full sequence of events, and no single person has the complete picture. You can piece together that something happened, but the details remain unknown. Moreover, the Wuzhou riot provides a perfect excuse for destroying key documents. As long as he insists firmly that no such thing occurred, no one can prove otherwise."
 
-"No wonder, no wonder, this Old Xie's scheming is really deep." Chen Baibin said, "After all, Cai Lan destroying the external investigation letter is only what we know; maybe there are other leak incidents we don't know. The nature is more serious than him keeping a female spy! So Yi Haoran is still alive, but Cai Lan is already dead."
+"No wonder—this Old Xie's scheming runs deep." Chen Baibin nodded. "After all, Cai Lan destroying the inquiry letter is only what we've uncovered. There may be other security breaches we don't know about. The implications are far more serious than simply keeping a female spy. So Yi Haoran remains alive, but Cai Lan is already dead."
 
-"It is so." Ji Xin nodded, "Senator Xie counts as cutting off the tail to survive. As long as it is not a mistake of principle, there will always be a chance for him to turn over in the future."
+"Precisely." Ji Xin nodded. "Senator Xie has cut off the tail to save himself. As long as it's not a fundamental error of principle, he'll always have a chance to recover someday."
 
-"Wouldn't this mean letting him go..." Chen Baibin originally thought Ji Xin would be somewhat disappointed, but his expression was extremely calm, completely without meaning of disappointment.
+"So we're essentially letting him off..." Chen Baibin had expected Ji Xin to show at least some disappointment, but his expression remained utterly calm.
 
-"Little Chen, whenever an investigation involves a case of a Senator, the truth is only one aspect..."
+"Little Chen, whenever an investigation involves a Senator, the truth is only one aspect..."
 
-"More important is the Senate's interest. Right?"
+"The more important aspect is the Senate's interests. Correct?"
 
-Ji Xin nodded: "It is so."
+Ji Xin nodded. "Precisely."
 
-"But what if the truth conflicts with the interests of naturalized citizens and indigenous people..."
+"But what if the truth conflicts with the interests of naturalized citizens and indigenous people?"
 
-"Little Chen, are the Senate's interests consistent with the interests of naturalized citizens and indigenous people?"
+"Little Chen, are the Senate's interests consistent with those of the naturalized citizens and indigenous people?"
 
-"This..." Chen Baibin found it somewhat difficult to answer. This question was somewhat subtle. According to the Senate's public propaganda line, the Senate and the people were one, sharing common interests. From a general direction, it wasn't wrong.
+"That..." Chen Baibin found the question difficult to answer. It was subtle. According to the Senate's public line, the Senate and the people were one, sharing common interests. In a general sense, that wasn't wrong.
 
-But privately, Senators knew very well. Their interests were not the same—it could only be said that the goals were common.
+But privately, Senators understood the reality. Their interests weren't truly the same—at best, their goals aligned.
 
-"Actually, they are inconsistent."
+"In fact, they aren't consistent."
 
-"Correct." Ji Xin said in a tone of an intimate talk, "Actually we all know, our interests are not the same as the indigenous people. Landlord masters are exploiting them, aren't we exploiting them? Of course not [exactly], just that we brought new technologies and new systems, improved productivity, so we have more surplus value to distribute to them. Letting them live like human beings, living a better life than in the past—this is the greatest legitimacy of our existence in this spacetime.
+"Correct." Ji Xin's tone became more intimate. "We all know our interests differ from those of the indigenous people. The landlord class exploited them—don't we exploit them too? Well, not exactly. We brought new technologies and new systems, improving productivity and creating more surplus value to distribute. Giving them lives worthy of human beings—better lives than they had before. That is the greatest source of legitimacy for our existence in this era.
 
-"But you must have also seen, there are plenty of people in the Senate who view naturalized citizens and indigenous people as 'tools', 'cannon fodder', or even 'a number on the human resources table', and this kind of thinking has also been approved by many people. As Senators and rulers, perhaps thinking this way is beyond reproach. After all, human joys and sorrows are not the same, and buttocks cannot sit on the same bench. However, contempt for naturalized citizens and indigenous people will form a new class prejudice—this prejudice has now emerged—once it takes shape, it will cause endless harm to our future society..."
+"But you must have noticed: plenty of people in the Senate view naturalized citizens and indigenous people as 'tools,' 'cannon fodder,' or merely 'numbers on a personnel table.' This thinking has been embraced by many. As Senators and rulers, perhaps thinking this way is beyond reproach. After all, people don't share the same sorrows and joys, and you can't sit on multiple sides of a fence. However, contempt for naturalized citizens and indigenous people will crystallize into a new form of class prejudice—and this prejudice has already begun to emerge. Once it solidifies, the harm to our future society will be endless..."
 
-He sighed deeply: "I never believed the Senate would establish any Millennium Empire. But, as a member of the Senate, I hope it can live a bit longer, and on the day of reaching a dead end, it can still transition to a new country in a peaceful or less bloody way—instead of turning into a violent revolution because of our arrogance and prejudice..."
+He sighed deeply. "I've never believed the Senate would establish any Thousand-Year Empire. But as one of its members, I hope it can endure a while longer. And when it finally reaches its dead end, I hope it can transition peacefully—or at least with minimal bloodshed—into a new nation. Rather than collapsing into violent revolution because of our arrogance and prejudice..."
 
-"Director Ji, what you said is inevitably too... too..." Chen Baibin was somewhat nervous. Although Senators had full "freedom of speech", no one had ever said similar words. Whenever discussing the future of the Senate nation, although there were disputes on many issues, almost all Senators had completely positive imaginations.
+"Director Ji, what you're saying is perhaps too..." Chen Baibin felt a twinge of nervousness. Although Senators enjoyed complete freedom of speech, no one had ever expressed such views. Whenever the Senate's future was discussed, despite disagreements on many issues, nearly all Senators held entirely positive expectations.
 
-"Too sensational?" Ji Xin smiled, and shook his head again, "Not at all. Do you still remember the matter of Hao Yuan back then? Strange! Yi Haoran's alias was also surnamed Hao! Hahaha."
+"Too alarmist?" Ji Xin smiled, then shook his head. "Not at all. Do you remember the Hao Yuan affair? Strange coincidence—Yi Haoran's alias also had the surname 'Hao'! Ha ha ha."
 
-This laughter made Chen Baibin's scalp numb. This was indeed an inexplicable coincidence. He remembered when the report on Hao Yuan and Black (Heir) was submitted to the Senate for internal discussion, the fear revealed by Senators—that was unspoken fear from the bottom of the heart... The Political Security Bureau, Foreign Intelligence Bureau and Special Reconnaissance Team conducted a near-crazy search and suppression of Hao Yuan's remnants in Hangzhou and other places. Almost everyone who had contact with him, as long as they could be found, was secretly arrested or assassinated.
+The laugh made Chen Baibin's scalp prickle. It was indeed an inexplicable coincidence. He remembered when the report on Hao Yuan and Black Heir was submitted for internal Senate discussion, the fear revealed by the Senators—unspoken terror from the depths of their hearts. The Political Security Bureau, Foreign Intelligence Bureau, and Special Reconnaissance Team had conducted near-frantic searches and purges of Hao Yuan's remnants in Hangzhou and elsewhere. Anyone who had contact with him, if they could be found, was secretly arrested or assassinated.
 
-"Wait, the work I am doing now, speaking of it, is upholding the interests of naturalized citizens and indigenous people, but in essence, it is just delaying the arrival of a certain moment..."
+*Wait—the work I'm doing now, ostensibly upholding the interests of naturalized citizens and indigenous people, is essentially just delaying the arrival of a certain moment...*
 
-"I understand your meaning, protecting the rights of naturalized citizens and indigenous people is protecting the Senate itself..." He murmured, "Isn't this the same meaning as protecting the Earth is protecting humanity?"
+"I understand your meaning," he murmured. "Protecting the rights of naturalized citizens and indigenous people is protecting the Senate itself... Isn't that the same logic as 'protecting the Earth protects humanity'?"
 
-Ji Xin nodded: "Does the Earth need human protection? Simply doesn't need it. Whether the Earth is a lifeless desert or a lush paradise of life, it has no meaning to the Earth itself, only has meaning to the existence of humanity."
+Ji Xin nodded. "Does the Earth need human protection? It doesn't. Whether the Earth becomes a lifeless desert or a lush paradise of life has no meaning to the Earth itself—only to humanity's existence."
 
-"So speaking, your work is truly very meaningful..." Chen Baibin said sincerely, "I support you! After going back, I will also help you do related things more."
+"When you put it that way, your work is truly meaningful..." Chen Baibin said sincerely. "I support you. After returning, I'll do more to help with these efforts."
 
-"I am very satisfied that you can approve of my idea. To actually do this work is not easy." Ji Xin said, "Let's not talk about these, better talk about work."
+"I'm very pleased that you approve of my ideas. Actually implementing this work is not easy." Ji Xin said, "But let's set that aside for now and discuss business."
 
-They had been in Wuzhou for more than ten days, basically finishing investigation and interrogation work. Next was forming a specific report. This was a text to report to the Senate, which must stand up to scrutiny from all sides, and at the same time implement Ji Xin's train of thought. Chen Baibin felt quite difficult.
+They had been in Wuzhou for more than ten days, essentially completing the investigation and interrogation work. The next step was drafting the formal report. This document, which would be submitted to the Senate, had to withstand scrutiny from all sides while also implementing Ji Xin's approach. Chen Baibin found the task daunting.
 
-"My idea is this," Chen Baibin said, "According to the data we currently master, the facts of the whole process of the Wuzhou riot are relatively clear. Currently, among the main personnel involved in the case, only Jiang Qiuchan, Song Ming and Chang Qingyun are missing. Others are either dead or brought to justice, almost caught in one net. So the report itself is not hard to write. What's difficult is the situation regarding Xie Erren..."
+"My thinking is this," Chen Baibin said. "Based on the data we've gathered, the facts of the entire Wuzhou riot are relatively clear. Among the principal figures in the case, only Jiang Qiuchan, Song Ming, and Chang Qingyun remain at large. Everyone else is either dead or in custody—we've essentially swept the net clean. So the report itself isn't difficult to write. What's difficult is the situation regarding Xie Erren..."
 
-Saying that he looked at Ji Xin, wanting him to offer opinions.
+He looked at Ji Xin, hoping for guidance.
 
-Ji Xin nodded slightly, asking: "Which parts do you feel are most difficult?"
+Ji Xin nodded slightly. "Which parts do you find most troublesome?"
 
-"One is the man-woman relationship between him and Cai Lan, two is the matter of Cai Lan contacting confidential documents. These two are both big bombs..."
+"First, his romantic relationship with Cai Lan. Second, the matter of Cai Lan accessing confidential documents. Both are powder kegs..."
 
-"Our investigation report is not based on rumors, everything must be based on facts." Ji Xin said, "As long as there is evidence for things, naturally write them down."
+"Our investigation report cannot be based on rumor—everything must rest on facts," Ji Xin said. "If evidence exists for something, we write it down."
 
-Conversely, what had no evidence need not be written. Chen Baibin thought, *isn't this following Xie Erren's path?* Although feeling Ji Xin's plan was very appropriate, being arranged by Xie Erren just like this, he felt somewhat unwilling.
+*And conversely, what lacks evidence need not be written.* Chen Baibin thought, *Isn't this exactly what Xie Erren was counting on?* Though he recognized the wisdom of Ji Xin's approach, being outmaneuvered like this left a bitter taste.
 
-Probably seeing his thought from his expression, Ji Xin said: "Don't feel you fell into Xie Erren's routine. This lesson for Xie Erren won't be light, at least he will be silent for three or five years. It is also a warning to many current Senators. Don't feel too good about themselves, trampling on systems at will."
+Perhaps reading this thought in his expression, Ji Xin said, "Don't feel you've fallen into Xie Erren's trap. This lesson won't be light for him—at minimum, he'll be sidelined for three to five years. It also serves as a warning to many current Senators: don't think too highly of yourselves, trampling on systems at will."
 
-"I have no view on Senator Xie. Just somewhat worried. Since the relationship between Cai Lan and Xie Erren is recognized, contacting confidential secrets and leaking secrets are not hard to deduce. What if someone holds onto this problem tightly at the hearing?"
+"I have no personal opinion about Senator Xie. I'm just worried. Since we're acknowledging the relationship between Cai Lan and Xie Erren, it's not hard to deduce she had access to confidential documents and may have leaked information. What if someone presses that point hard at the hearing?"
 
-"This is Xie Erren's problem, not ours. We only speak according to facts. No one can say otherwise. As for Senator Xie, probably at the hearing he will also insist on his own set of rhetoric. Anyway, as long as there is no evidence, no one can do anything to him. Furthermore, if someone really presses him hard, those Senators advocating 'Senator Rights Supremacy' will definitely jump out to help him. In addition, Wen and Ma are his direct and indirect superiors, and won't sit by watching him be made too embarrassed—after all, they have leadership responsibility, and will also give assistance secretly. As for other dispatched administrative Senators, seeing Senator Xie be targeted (集火-focused fire), inevitably will have a feeling of the fox mourning the death of the hare (sympathy for like kind), so although his situation is dangerous, it is not fatal."
+"That's Xie Erren's problem, not ours. We speak only according to the facts. No one can fault us for that. As for Senator Xie, he'll likely maintain his version at the hearing as well. As long as there's no evidence, no one can touch him. Furthermore, if someone does press too hard, the Senators advocating 'Senator Rights Supremacy' will certainly jump in to defend him. Additionally, Wen and Ma are his direct and indirect superiors—they won't stand by while he's humiliated too badly, since they bear leadership responsibility. They'll quietly provide support. And other dispatched administrative Senators, watching Xie Erren under concentrated fire, will inevitably feel a kinship of shared vulnerability. So while his situation is precarious, it's not fatal."
 
-Chen Baibin rarely heard such straightforward analysis in work, because Bureau Director Xiong always spoke very implicitly, and absolutely wouldn't have any speech unsuitable for public occasions.
+Chen Baibin rarely heard such frank analysis during work—Bureau Director Xiong always spoke indirectly and never said anything unsuitable for public occasions.
 
-While the two were discussing the report writing issue, an orderly came in to report: Zheng Ergen came.
+While they were discussing how to draft the report, an orderly came in to announce that Zheng Ergen had arrived.
 
-Zheng Ergen came to deliver the conclusion report on the Sanhezui camp. Ji Xin and Chen Baibin browsed it roughly. From the conclusion, basically Liu Youwang, Jiang Yougong and others colluded, engaging in massive corruption in the camp causing intensification of contradictions, eventually utilized by Chang Qingyun. It specifically mentioned many details of Liu Youwang and others bullying men and dominating women, and living corruptly in the camp. Seeing he successively raped dozens of women, and forced to death or beat to death over a hundred people, Ji Xin couldn't help showing a sorrowful look, sighing: "It is our management not in place. Harmed many innocent people."
+Zheng Ergen had come to deliver the final report on the Sanhezui Camp investigation. Ji Xin and Chen Baibin skimmed through it. The conclusion showed that Liu Youwang, Jiang Yougong, and others had been colluding, engaging in massive corruption that intensified contradictions within the camp until Chang Qingyun exploited the situation. The report specifically detailed how Liu Youwang and his cohorts had bullied men, preyed upon women, and lived corruptly in the camp. Reading that he had raped dozens of women and caused over a hundred deaths through violence or abuse, Ji Xin's expression turned sorrowful. He sighed, "Our management failures harmed many innocent people."
 
-"If not for this, how could Chang Qingyun, a mere scholar, possibly stir up such a big storm!" Chen Baibin said.
+"Without all that, how could a mere scholar like Chang Qingyun have stirred up such a storm?" Chen Baibin said.
 
 "Did he say who the third seal belongs to?"
 
-"No, didn't say anything. Used means (torture) and still didn't say."
+"No. He said nothing. Even under torture, he refused."
 
-"Really strange." Chen Baibin murmured, "Who is worth him protecting like this? He doesn't look like a loyal person."
+"Truly strange." Chen Baibin murmured, "Who is worth protecting like this? He doesn't strike me as the loyal type."
 
-"Maybe there is some leverage or family member in the other party's hands." Ji Xin said, "Have you checked his surrounding social relations?"
+"Perhaps someone has leverage over him—or has his family," Ji Xin said. "Have you investigated his social connections?"
 
-"Liu Youwang is an orphan, a penniless poor kid in Lingao. He muddled in the agricultural sector for many years without success, served in the Fubo Army without promotion, so haven't established a family all along." Zheng Ergen said.
+"Liu Youwang is an orphan, born penniless in Lingao. He drifted through the agricultural sector for years without success, served in the Fubo Army without promotion, and never married," Zheng Ergen said.
 
-"You go first." Chen Baibin said.
+"You may go," Chen Baibin said.
 
-"How do you feel about this report?" Ji Xin asked after Zheng Ergen left.
+"What do you think of this report?" Ji Xin asked after Zheng Ergen left.
 
-"Except for this third seal having no whereabouts, others are all reasonable." Chen Baibin said, "Actually there are also many testimonies disadvantageous to Xie Erren inside, such as the opera chests Liu Youwang wanted, and his almost zero control and supervision over the entire Sanhezui prisoner camp, completely letting it drift."
+"Except for the mysterious third seal, everything else checks out," Chen Baibin said. "Actually, there's considerable testimony damaging to Xie Erren—the opera chests Liu Youwang wanted, for instance, and his near-total neglect of oversight at the Sanhezui prisoner camp."
 
-"So I say, if someone wants to stink him up, these materials are enough." Ji Xin said, "Should be able to satisfy them."
+"Which is why I say, if anyone wants to smear him, these materials are sufficient," Ji Xin said. "That should satisfy them."
 
 **(End of Chapter)**

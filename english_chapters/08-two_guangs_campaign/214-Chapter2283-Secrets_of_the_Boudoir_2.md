@@ -1,108 +1,110 @@
 # Chapter 2283: Secrets of the Boudoir (2)
 
-Currently driven by high prices, although no large bulk grain arrived from Guangxi, small amounts of grain from surrounding rural areas flowed into Wuzhou. Some small grain peddlers risked driving boats along various waterways branched from West River, going deep into rural areas to acquire grain. And Australians also encouraged landlords around Wuzhou to sell surplus grain in hands into Wuzhou. Merchants and landlords selling grain in Wuzhou, none didn't obtain heavy profit. Making Jiang Rongxian very jealous.
+Driven by high prices, although no large shipments of grain had arrived from Guangxi, small quantities from the surrounding countryside were trickling into Wuzhou. Some petty grain merchants risked taking boats along the various waterways branching from the West River, venturing deep into rural areas to procure rice. The Australians also encouraged landlords around Wuzhou to sell their surplus grain in the city. Every merchant and landlord who brought grain into Wuzhou reaped substantial profits, making Jiang Rongxian deeply envious.
 
-However he wasn't a grain merchant—since ancient times separating profession like separating mountain. Moreover situation outside, dared not throw self into this trading betting family property and life either.
+But he wasn't a grain merchant—since ancient times, different trades might as well be different mountains. And given the dangerous conditions outside, he didn't dare stake his family's fortune and lives on such a gamble.
 
-While annoying, suddenly servant boy sent a lacquer box, reporting Aunt brought many "Australian Dim Sum" back; Mistress said invite Master to taste too.
+While he sat brooding, a servant boy brought in a lacquer box, reporting that his sister had returned with many "Australian pastries." The mistress suggested the master might like to try some.
 
-"What dim sum, where can I eat down." Jiang Rongxian smiled bitterly, "Just put there."
+"What pastries? I couldn't swallow a thing," Jiang Rongxian said with a bitter smile. "Just leave them there."
 
-Servant boy retreated out. Jiang Rongxian sat withered for half a moment, still had no plan. While helpless he subsequently opened lacquer box; inside surprisingly were several round flaky cakes; not only colors different, also emitting different aromas. This Australian really particular; transporting this from Guangzhou over thousands of *li* too!
+The servant boy withdrew. Jiang Rongxian sat numbly for a while longer, still without a plan. On an idle impulse, he opened the lacquer box. Inside were several round, flaky cakes in different colors, each giving off a different aroma. These Australians certainly were particular—transporting such things over a thousand *li* from Guangzhou!
 
-Thinking here his heart moved: now only one able to get large bulk grain in Wuzhou city, wasn't it exactly Australian! Own family as long as able to hook up relationship with Australian, becoming "Imperial Merchant," wouldn't this wealth source roll coming?
+At this thought, his heart stirred. The only ones capable of bringing large quantities of grain into Wuzhou were the Australians themselves! If his family could establish a connection with them and become "official merchants," wouldn't wealth come rolling in?
 
-Speaking of hooking up relationship, own family had uniquely endowed conditions! Thinking here, Jiang Rongxian immediately got spirit, getting up coming towards sister’s lodging.
+Speaking of connections, his family happened to have a uniquely advantageous position! Energized by this thought, Jiang Rongxian rose and headed toward his sister's quarters.
 
-"So say, your brother wants to do grain business?" Yi Haoran hearing this news, somewhat surprised, "Isn't your maiden family doing silk business? Knowing nothing about grain business ah."
+---
 
-"Exactly this reason!" Qiuchan had frowning brows not spreading, "He said I since good with Australian’s concubine, why not devise to blow pillow wind through Cai Lan, letting him mix a foot in too."
+"So you're saying your brother wants to go into the grain business?" Yi Haoran was somewhat surprised when he heard the news. "Doesn't your family deal in silk? They know nothing about grain."
 
-"Wanting to mix a foot isn't hard—always this Australian won't not sell this face; just your brother has no grain in hand, take what as capital?"
+"Exactly!" Qiuchan's brow was furrowed. "He says that since I'm close to the Australian's concubine, I should find a way to have Cai Lan whisper in the right ear and help him get a foot in."
 
-"He has silver, just nowhere to buy grain. So remembered Liheng is studying here, you old man's employer is..."
+"Getting a foot in isn't difficult—surely the Australian would grant that much face. But your brother has no grain on hand. What would he use as capital?"
 
-Yi Haoran suddenly realized; his employer Luo Yangming was not only grain merchant, also Aftermath Bureau Committee Member and member of Grain Guild. Although business not big, was one of real power figures in this Wuzhou city.
+"He has silver, but nowhere to buy grain. That's when he remembered that Liheng is studying here, and that your employer is..."
 
-"I understood, he wants to get grain from my Employer."
+Yi Haoran suddenly understood. His employer, Luo Yangming, was not only a grain merchant but also a committee member of the Aftermath Bureau and a member of the Grain Guild. Though his business wasn't large, he was one of the real power brokers in Wuzhou.
 
-"Exactly so." Qiuchan nodded, her face skin slightly red; she grew up in deep boudoir since childhood, never contacted such business trading; still had to look up begging people; if not herself living under other's fence, dared not oppose, beaten to death also unwilling to come lobby Yi Haoran.
+"I see. He wants to get grain from my employer."
 
-"Slave Maid maiden family undergoing this difficulty, scene very difficult. Brother also has no method. Illness acute rushing to doctor randomly."
+"Exactly." Qiuchan nodded, her face slightly flushed. She had grown up in the inner quarters, never dealing with business transactions, and here she was having to look up and beg favors. If she weren't living under another's roof and afraid to refuse, she would never in a hundred years have agreed to lobby Yi Haoran like this.
 
-Yi Haoran’s brain turned flying fast; these days all busy planning riot plan, hadn't thought out suitable plan. Hearing Qiuchan’s request at this moment, involuntarily connected this matter to think a bit, seeing if there was opportunity to take advantage. He immediately said: "Since so, wait I inquire my Employer’s tone first, then give you an answer."
+"My family is going through such difficulties—things are very tight. My brother has no other options. When you're desperate, you try any doctor."
 
-Sent away Jiang Qiuchan, Yi Haoran pondered for long time, didn't discover places utilizable; after all this was just a common routine utilizing skirt string to seek private profit; helping or not seemed to have no damage to Australian, nor would lure Xie Hair thief out for this.
+Yi Haoran's mind raced. He had been busy plotting the uprising these past days but hadn't devised a suitable plan. Hearing Qiuchan's request now, he instinctively connected this matter to their scheme to see if there might be an opportunity to exploit. He said at once, "Very well. Let me first sound out my employer, and then I'll give you an answer."
 
-He just thinking, suddenly A-Chun came out to call him: Shopkeeper Li invited him to go.
+After Qiuchan left, Yi Haoran pondered for a long time but couldn't see how this could be useful. After all, it was just ordinary string-pulling—using connections through women to seek private profit. Whether he helped or not seemed neither to damage the Australians nor to lure that Hair thief Xie out into the open.
 
-Yi Haoran dared not neglect, hurriedly went into accounting room.
+As he sat thinking, A-Chun suddenly came out to fetch him: Shopkeeper Li wanted to see him.
 
-"Mr. Hao, this time received a big business," Li Wensheng said, "Want to buy in a large batch of rice from Guangdong side. You just clear up accounts completely; able to collect try best to collect; in short prepare silver and copper cash properly."
+Yi Haoran didn't dare delay and hurried to the accounting room.
 
-"Silver I have account in heart, only more than three hundred taels, less than four hundred. Outside debts able to collect gathered almost done; remaining probably can't collect back in short time."
+"Master Hao, we've just landed a big piece of business," Li Wensheng said. "We're going to purchase a large shipment of rice from Guangdong. Clear up all the accounts you can. Collect what's collectible. In short, get the silver and copper cash ready."
 
-"Count how much have, try best more." Li Wensheng didn't mind.
+"Silver I have a handle on—more than three hundred taels but less than four. Outstanding debts that can be collected are mostly in. The rest probably can't be recovered any time soon."
 
-Yi Haoran heart moved, remembering matter of Zhu Fuyuan of Dachang visiting not long ago; looks like, Australians wanted to sell grain to Wuzhou in large quantity! He deliberately said:
+"Total up whatever we have; the more the better." Li Wensheng didn't seem concerned.
 
-"These money can buy at most more than three hundred *dan* grain in Guangdong; if counting freight, only three hundred *dan*; count what big business."
+Yi Haoran's heart stirred. He remembered Zhu Fuyuan of Dachang visiting not long ago. It seemed the Australians intended to sell grain to Wuzhou in large quantities! He said deliberately:
 
-"Our shop small capital tiny, can't do big business. Just count as taking lead managing." Li Wensheng spoke modestly, in language quite proud, "Grain Guild is raising this sum of money, probably needs ten thousand taels silver..."
+"That money could buy at most a little over three hundred *dan* of grain in Guangdong. Counting freight, barely three hundred *dan*. How does that count as big business?"
 
-"This money really not few!" Yi Haoran pretended surprise saying, "Pity, now Wuzhou not like past..."
+"Our shop has modest capital—we can't do big business. We're just taking the lead in managing things." Li Wensheng spoke modestly, but there was pride in his voice. "The Grain Guild is pooling funds. Probably needs about ten thousand taels of silver..."
 
-"You say right," Li Wensheng didn't know he harbored ghost in heart, also followed sighing, "In past ten thousand silver, Grain Guild was a matter of one sentence; even small brand like us, anytime anywhere could take out several thousand taels silver! Now good, ten thousand taels silver, whole guild has to pool!"
+"That's no small sum!" Yi Haoran feigned surprise. "Pity that Wuzhou isn't what it used to be..."
 
-"Current events different after all. I heard Wuzhou in past grain going to Guangdong every year had hundreds of thousands *dan*; now have to transport from Guangdong to here instead."
+"You're right about that," Li Wensheng sighed, unaware of the schemes lurking in Yi Haoran's mind. "In the old days, ten thousand taels was nothing for the Grain Guild to raise. Even a small shop like ours could produce several thousand taels at any time! Now it takes the whole guild pooling together to come up with ten thousand!"
 
-Li Wensheng twisted beard said: "Only beg war fires extinguish early, returning a peaceful world to common people! Now rice price soaring expensive; this batch of grain transferred coming, at least can solve burning eyebrow emergency."
+"Times are different, after all. I've heard that in the past, hundreds of thousands of *dan* of grain flowed from Wuzhou to Guangdong every year. Now it has to be shipped the other way."
 
-Yi Haoran remembered Qiuchan’s entrustment, quick witted moved, pretended anxious saying:
+Li Wensheng stroked his beard. "I only pray the fires of war die down soon and return peace to the common people! Rice prices are soaring. This shipment of grain coming in should at least ease the immediate crisis."
 
-"Just this silver money is problem ah."
+Yi Haoran remembered Qiuchan's request. Quick-witted, he put on an anxious expression:
 
-"Employer these few days is just annoying for this matter."
+"The only problem is the silver."
+
+"The employer's been fretting over that very issue these past few days."
 
 "Shopkeeper, I actually have an idea..." Yi Haoran said.
 
 "What idea?"
 
-"Wuzhou city inside trading firms numerous; since Grain Guild can't take out this much silver, why not seek some other trading firms to enter shares? Isn't it just partnering to do a business." Yi Haoran said, "Now market not good, various brands all output no input. If able to insert a foot here, can also share some profit; isn't it everyone has benefit?"
+"There are numerous trading firms in Wuzhou. Since the Grain Guild can't raise enough silver, why not invite other firms to buy shares? It's just everyone pooling capital for a joint venture." Yi Haoran explained, "Business is slow right now—every firm has more going out than coming in. If they could participate in this, they'd get a share of the profit. Even a modest return is better than sitting there watching their savings dwindle to nothing."
 
-"This is actually a method!" Li Wensheng said, "Evening Employer comes back, you speak with him!"
+"That's actually a good approach!" Li Wensheng said. "When the employer returns this evening, you can discuss it with him."
 
-Luo Yangming came back in evening; since Zhu Fuyuan handed task of transferring grain to him, he had been running for this matter. Grain coming, various grain shops naturally happy. Although sales would have limited price, this batch of rice was official price only one tael two mace; getting in hand could earn big money.
+Luo Yangming came back that evening. Ever since Zhu Fuyuan had entrusted him with the grain transfer task, he had been busy with nothing else. The various grain shops were naturally eager—though selling prices would be capped, this batch of rice was priced at only one tael and two mace per *dan*; getting their hands on it would mean substantial profit.
 
-But although various families extremely enthusiastic, yet encountered same problem: no money.
+But though the various families were enthusiastic, they all faced the same problem: no money.
 
-Grain shops were heaviest damaged among Wuzhou various trades; originally their capital mostly placed on grain. After war fire various families stock remained almost nothing. Capital loss all above seventy eighty percent. Even cargo payment less than thirteen thousand taels silver including freight, in past quite a few brands could take out anytime; now taking out one thousand taels silver felt difficult. Until now Guild only pooled eight thousand taels silver; still five thousand no matter what couldn't pool out.
+Grain merchants had been hit hardest among all of Wuzhou's trades. Most of their capital had been tied up in grain stock. After the fighting, nearly every family had lost their inventory. Capital losses ran seventy to eighty percent. A cargo payment of less than thirteen thousand taels including freight—any number of shops could have produced that amount at will in the old days. Now, coming up with a thousand taels felt difficult. So far the Guild had pooled only eight thousand; the remaining five thousand simply couldn't be scraped together.
 
-If in peaceful season, various families always had houses lands to sell, could also borrow. Right now land houses no one asked; nor anyone willing to lend silver—how high interest given didn't have.
+In peacetime, families could always sell houses or land, or borrow. But right now no one was buying property, and no one was willing to lend—at any interest rate.
 
-Of course, he could also propose letting Dachang advance part of payment temporarily, pay clear after selling rice. This counted as conventional practice too. But Luo Yangming knew currently Senate also difficult; this silver collected, turning hand had use.
+Of course, he could propose having Dachang advance part of the payment, to be repaid after the rice was sold. That was standard practice. But Luo Yangming knew the Senate was also strapped for cash; this money, once collected, had immediate uses elsewhere.
 
-Now hearing Yi Haoran propose this suggestion, Luo Yangming hesitated slightly.
+Now, hearing Yi Haoran's suggestion, Luo Yangming hesitated.
 
-Utilizing other trading firms' financial power, he hadn't not thought. But this after all was cross profession operation; since ancient times separating profession like separating mountain; whether other trading firms willing to take money out to participate he had no confidence; secondly doing so, inevitably must have considerable return regarding trend. Current situation military chaos horse confusion, who also unwilling to take silver out easily to do business. Must have excess profit.
+He had considered leveraging other trading firms' financial resources. But this was cross-industry operation; different trades were like different mountains. Would other firms be willing to invest? He had no confidence. Moreover, any such arrangement would require considerable returns for the investors. With the current chaos of war, who would willingly part with silver to do business? There would have to be excess profits.
 
-Speaking of profit, now grain business profit was big enough; if no limit price, earning double profit was there. Happened original intention of grain business this time was stabilizing grain price. One *dan* grain at most could earn four five mace silver. To grain merchants maybe not few; to investors putting capital might be too low. Loan interest here in Wuzhou, annual interest before war reached sixty seventy percent; some usury annual interest reached two three times. Just this market price, now no one willing to lend.
+Speaking of profits—the grain trade was certainly lucrative enough right now. Without price controls, doubling one's money was easy. But the whole purpose of this grain operation was to stabilize prices. One *dan* of grain would earn at most four or five mace of silver. For grain merchants, that was still decent; for outside investors contributing capital, it might seem paltry. Loan interest here in Wuzhou had reached sixty or seventy percent annually before the war; some usurers charged two or three hundred percent. At current market rates, no one was willing to lend.
 
-"Your idea is actually not bad, but this rice grain is limited price; capital big profit small, also has risk. Other brands fear not necessarily willing..."
+"Your idea isn't bad, but this rice is price-controlled. High capital investment, low profit, and some risk. Other firms might not be willing..."
 
-"Employer! You can't use past to look at now; even more can't use money dog’s appetite to measure shopkeepers of various brands." Yi Haoran said, "Now various families are all output no input; Guangxi pacification also don't know what day to end; various families have no business to do, silver put there can't give birth to small silver. If able to invite Prefect Xie to go out, summoning shopkeepers of various brands with official identity, stating transporting grain benefiting country benefiting people; everyone paying money raising capital; profit of selling everyone share; more or less always have some income, always better than them sitting eating mountain empty."
+"Employer! You can't judge the present by the past, and you can't measure respectable shopkeepers by the appetites of loan sharks," Yi Haoran said. "Right now, every firm has more outflows than income. No one knows when the Guangxi campaign will end. Various families have no business to conduct; silver sitting idle doesn't breed more silver. If you could get Prefect Xie to call a meeting, summon the shopkeepers of various firms in his official capacity, and explain that transporting grain benefits both country and people—that everyone should contribute capital, pool resources, and share whatever profit comes from sales—there would be at least some income. That's surely better than watching their fortunes dwindle away to nothing."
 
-These words had reason and ground, making occasionally headache Luo Yangming nod repeatedly. Didn't expect this Advisor really had a set! He couldn't help paying attention to this half old man before eyes: this person although clothes old, a desolate appearance, speech and bearing completely different from ordinary advisors.
+These words were well-reasoned and persuasive, making the occasionally headache-prone Luo Yangming nod repeatedly. He hadn't expected this advisor to have such insights! He couldn't help studying the half-worn older man before him more closely. Though his clothes were threadbare and his appearance shabby, his speech and bearing were entirely different from ordinary private tutors.
 
-Although when Ding A-tao recommended him coming said was being private tutor in official family, but looking at his speech and behavior, probably also served as private staff (Makaku).
+When Ding A-tao had recommended him, he'd said the man was a private tutor who had worked for official families. But judging by his words and manner, he had probably also served as a private secretary—a *mufu* advisor.
 
-Luo Yangming heart born suspicion: this was sixth sense profession brought him. This Advisor Hao fear wasn't as simple as an ordinary private tutor. Although these days he kept duty in shop, didn't do any strange things, still had to pay attention to him one or two.
+Suspicion stirred in Luo Yangming's heart—the sixth sense his profession had given him. This Advisor Hao was probably not as simple as an ordinary private tutor. Though he had dutifully tended the shop these past days without doing anything strange, it would be wise to keep an eye on him.
 
-Although having suspicion, Luo Yangming didn't show on expression, only said: "You speak right, I tomorrow will go discuss with various Bureau Directors, advising Chief Xie together."
+Despite his suspicions, Luo Yangming betrayed nothing in his expression. He simply said, "You make good points. Tomorrow I'll discuss this with the various Bureau Directors and propose it to Chief Xie together."
 
-Luo Yangming returned to inner residence, then asked Ding A-tao about this Advisor Hao's origin again.
+After Luo Yangming returned to the inner residence, he asked Ding A-tao again about this Advisor Hao's background.
 
-"His origin wasn't said to Master?" Ding A-tao strange said, "Is husband family relative of Ruijintang Silk Shop Jiang family on West Street, Teng County person. Being private tutor with official families outside. Now Two Kwangs war fire flourishing, dare not go home, wandering in Wuzhou."
+"Didn't I already tell the master his background?" Ding A-tao said, puzzled. "He's a relative by marriage of the Jiang family, who own the Ruijintang Silk Shop on West Street. He's from Teng County. He was working as a private tutor for official families somewhere. With the fires of war raging across the Two Guangs, he didn't dare go home, so he's been drifting around Wuzhou."
 
 ---
 **Next Update:** Volume 7 - Guangzhou Governance Part 487

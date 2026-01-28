@@ -1,89 +1,89 @@
 # Chapter 2182 - Shijian (Part 2)
 
-"Oh?" Wu Baliu nodded. "The enemy seems to have gathered quite a few people. Your unit has many new recruits; can they handle it?"
+"You're certain?" Wu Baliu studied him. "The enemy appears well-positioned. Your unit carries many new recruits—can they handle this?"
 
-"They need to undergo more tempering by war. If they always follow behind the Fubo Army, how can they take charge alone without fighting a few tough battles?" Li Dong was confident. "Veterans are still the majority in our squadron, and morale is high."
+"They require tempering by fire. If they always shelter behind the Fubo Army, they'll never learn to stand alone." Li Dong's confidence showed. "Veterans still form the squadron core, and morale runs high."
 
-"Good, your squadron will take the lead!" Company Commander Wu appreciated the other's courage and agreed on the spot.
+"Excellent. The vanguard is yours!" Wu Baliu appreciated such courage and approved immediately.
 
-Li Dong took some men to the front to observe. The place where the village braves set up the barricade was exactly at the narrowest part of the road. It wasn't exactly perilous, but the terrain was indeed favorable. One side of the road was mudflats, which were not only open but also difficult for people to walk on; the other side was hilly terrain. The village braves had built towers on several main commanding heights to monitor the surrounding situation at any time.
+Li Dong led a reconnaissance party forward. The village braves had chosen their ground well—the road's narrowest point, flanked on one side by mudflats too soft for maneuvering and on the other by hills crowned with observation towers that commanded the approaches.
 
-"Everyone take a look, how should we fight this situation?" Li Dong asked.
+"Study the terrain. How do we attack?" Li Dong posed the question to his assembled leaders.
 
-Attending this pre-battle discussion, besides squad leaders, were the squadron's sergeants and veteran soldiers. Holding a discussion before battle to brainstorm was a feature of the Senate's officer education system.
+The pre-battle conference included squad leaders, sergeants, and veteran soldiers—the Senate's officer education system emphasized collaborative planning before engagement.
 
-At the meeting, everyone put forward their own suggestions. It boiled down to two methods: outflanking and frontal attack. The differences lay solely in specific execution. Some suggested cutting grass and wood to pave a road on the mudflats for the whole army to outflank and assault; others suggested setting fire to the mountain directly to drive away the village brave defenders on the hills... methods varied.
+Suggestions proliferated. The tactics distilled to two approaches: outflank or assault directly. The differences lay in execution. Some proposed laying fascines across the mudflats to enable a flanking maneuver. Others suggested setting fire to the hillside to drive the enemy from the high ground. Each variant had its advocates.
 
-"What you're saying is all superfluous!" Yang Erdong said. "The captives said there are only two hundred village braves over at Shijian. The defensive measure is just a wooden fence. Let's not go through the trouble; just one assault and we'll take down this wooden fence to save time."
+"You're all overthinking this," Yang Erdong cut through the discussion. "Prisoners say only two hundred village braves hold Shijian. The defenses amount to a wooden fence. Why complicate matters? One hard push breaks through and saves time."
 
-Yang Erdong had already been promoted to corporal and had changed weapons. He was full of enthusiasm.
+Yang Erdong, newly promoted to corporal with upgraded weapons to match, brimmed with aggressive confidence.
 
-"...The most important thing now is time. The Chiefs said we must rush to Lianzhou to suppress the Yao as quickly as possible. If we fight perfectly safe battles so slowly along the way, when will we reach Lianzhou?"
+"Time is our critical constraint. The Chiefs demand we reach Lianzhou for Yao suppression with all speed. If we fight cautious, methodical battles at every obstacle, we'll never get there."
 
-Li Dong deeply agreed with his opinion, so he decided to attack frontally.
+Li Dong agreed completely. They would attack frontally.
 
-The wooden fence on the road was only slightly taller than a person. Although there were defensive facilities like trenches and abatis, there were no insurmountable obstacles. Judging from the equipment of the militia standing behind the wooden fence, they didn't even have many bows and arrows, let alone firearms.
+The wooden barricade stood barely taller than a man. Though defended by trenches and abatis, nothing presented a truly insurmountable obstacle. The militia manning the position showed minimal equipment—few bows, fewer firearms.
 
-Immediately, more than ten simple ladders and several makeshift bridges for crossing trenches were made urgently. Wu Baliu's company also moved up, ready for "overhead fire."
+Working parties hastily constructed makeshift assault bridging and a dozen crude scaling ladders. Wu Baliu's company advanced into supporting positions for overhead fire.
 
-The so-called "overhead fire" was rifle fire at a high angle of elevation. In the era of flintlocks and Minié rifles, this was a long-range shooting tactic commonly used by European armies. Sometimes, infantry could project bullets to places 500-600 meters away in this manner and still have considerable lethality. Of course, there was no accuracy to speak of with this "overhead fire," but in actual combat, commanded company volleys could still inflict sufficient casualties on dense enemy formations at long range.
+So-called "overhead fire" employed high-angle rifle volleys. European armies of the flintlock and Minié era used the technique routinely for extended-range fire support. Skilled infantry could project bullets five to six hundred meters and still achieve useful lethality. Accuracy suffered terribly, but massed company volleys against dense formations still inflicted respectable casualties at distance.
 
-Wu Baliu adopted "overhead fire" not to increase range, but simply to be able to shoot from behind the Wuzhou Squadron in this narrow terrain to support them.
+Wu Baliu employed the tactic not for range but to enable his company to fire over the Wuzhou Squadron's heads in the confined terrain.
 
-Due to the narrow road, three squads couldn't go up together and could only enter combat successively in platoon columns. Unexpectedly, this time Li Dong didn't order the rifle squad with the strongest combat power to be the vanguard.
+The narrow road prevented deploying all three squads abreast—they would enter action in platoon column. Li Dong surprised everyone by withholding his strongest rifle squad from the vanguard position.
 
-"Yang Erdong, you be the vanguard!" Li Dong ordered.
+"Yang Erdong, you lead the assault!" he ordered.
 
-"Yes! Guarantee to complete the mission!" Yang Erdong trembled all over. Being the vanguard meant a high probability of death or injury, but breaking the wooden fence meant the first merit would be his too.
+"Yes! We will complete the mission!" Yang trembled—not with fear but excitement. Leading the vanguard meant high casualty risk, but it also meant first claim to glory if they broke through.
 
-With the rapid beating of assault drums, the sound of rifle volleys rang out behind Yang Erdong. He didn't have time to think much; leveling his bayoneted rifle, he shouted: "Brothers, follow me!" With that, he was the first to rush out.
+Assault drums thundered. Rifle volleys crackled overhead. Yang Erdong had no time for contemplation. Leveling his bayoneted rifle, he roared, "Brothers, follow me!" and charged.
 
-Yang Erdong came from the old Ming army and knew that even for positions like Vice General or Regional Commander, one had to lead house retainers to charge in front during battle; otherwise, other miscellaneous soldiers wouldn't be willing to risk their lives. His squad had many new recruits; if he didn't take the lead, he couldn't control the troops at all.
+Yang's experience in the old Ming army taught him that even vice generals and regional commanders led their household troops from the front—anything less, and common soldiers wouldn't risk their lives. With so many new recruits in his squad, he couldn't maintain control from the rear.
 
-The whole squad, and then the whole squadron, started trotting behind him. This distance was only three hundred meters or so; the faster the action, the smaller the casualties. The Wuzhou Squadron managed to maintain order on this narrow road, soldiers lowering their muzzles and trotting all the way.
+The entire squad, then the entire squadron, surged forward at the trot. Only three hundred meters—speed meant survival. The Wuzhou Squadron maintained formation despite the confined space, soldiers advancing at double-time with lowered weapons.
 
-There were only some militia behind the wooden fence. Yang Erdong could clearly see their panicked running figures, followed by noisy shouting and the chaotic sound of bamboo clappers.
+Yang saw only militia behind the fence—panicked figures running chaotically, followed by confused shouting and the rattle of bamboo clappers.
 
-At this moment, what Li Dong had worried about happened: A flash of fire suddenly spurted from behind the wooden fence, followed by the boom of a cannon.
+Then Li Dong's worst fear materialized. Fire belched from behind the barricade, followed by the cannon's roar.
 
-"It's over!" Yang Erdong's mind went blank: *On such a narrow road, taking a cannon shot to the face, if I don't die I'll at least lose a limb.*
+*We're finished!* Yang's mind went white. *Direct canister on this narrow road—I'm dead or maimed.*
 
-However, when he came to his senses, his legs were still running, and his arms were fine. Four or five people in the squad following him had fallen, each a bloody mess. Screams were incessant.
+His legs kept running. His arms worked fine. Behind him, four or five men lay crumpled, bodies torn and bloodied. Screams filled the air.
 
-The squad stopped instantly. Some had already turned around to run back. The chaotic situation directly blocked the squad behind on the road. Yang Erdong roared, wanting the squad to charge with him, but the whole squad cowered, daring not advance.
+The squad stopped dead. Some turned to flee, directly blocking the following squad. Yang roared, trying to drive them forward, but the men cowered, paralyzed.
 
-Arrows and projectiles fired from bird guns constantly flew over their heads. The entire column broke into three sections on the road and fell into chaos. Luo Mao shouted from behind for them to continue charging, but gunfire drowned out the officer's shouts. Some people started firing blindly. Ai Buyi was sandwiched in the middle, trekking all over with fear.
+Arrows and bird gun projectiles whistled overhead. The assault column fractured into three segments, dissolving into chaos. Luo Mao shouted from the rear for them to resume the charge, but gunfire drowned his voice. Panicked troops began firing blindly. Ai Buyi, trapped mid-column, trembled with terror.
 
-"Stop f*cking shooting! Follow me, charge!" Yang Erdong dragged and kicked the soldiers in the front row, finally managing to make them move forward reluctantly. Two soldiers, however, dropped their rifles, turned, jumped off the roadbed, and climbed up the hillside.
+"Stop shooting and follow me!" Yang dragged and kicked the front rank until they grudgingly moved forward. Two soldiers dropped their rifles, jumped off the roadbed, and scrambled uphill.
 
-"F*ck your mother! Where are you going? Come back!" Yang Erdong roared. Seeing the fastest one had already run dozens of meters away, suddenly, gunshots rang out from the squad in the rear row. The two deserters climbing the hillside were hit successively and rolled down. The soldiers who were originally restless and about to route were instantly stunned.
+"Where the hell are you going? Get back here!" Yang bellowed. The lead deserter had covered dozens of meters when gunfire cracked from the rear squad. Both fleeing men tumbled down the hillside, shot dead. The wavering troops froze.
 
-"Those who don't want to die, follow me!" Yang Erdong seized this opportunity to rally the troops and charged all the way to the wooden fence. The squad quickly set up makeshift bridges, crawled over trenches, and erected ladders. Yang Erdong was the first to climb up the wall, stabbing down a panicked militia member.
+"Those who want to live, follow me!" Yang seized the moment, rallying his men for a final rush to the barricade. They threw down makeshift bridges, scrambled across trenches, and threw up ladders. Yang scaled first, bayoneting a panicked militiaman at the top.
 
-The Yang Family Village braves didn't offer fierce resistance. In fact, when they broke through to the trench, the village braves scattered and fled. The entire squadron successfully breached the wooden fence. Immediately after, the 2nd Company followed and broke through.
+The Yang Family Village braves offered no sustained resistance. By the time the assault reached the trench, they were fleeing. The entire squadron breached the fence successfully. The 2nd Company followed through the gap.
 
-After the wooden fence was breached, there was no suspense left for Shijian. Jiang Wenming and Xie Wendong slipped away with the remnants, leaving the ground full of trash and dozens of corpses to the Fubo Army.
+With the barricade fallen, Shijian's fate was sealed. Jiang Wenming and Xie Wendong fled with their remnants, leaving behind scattered equipment and dozens of corpses for the Fubo Army.
 
-Shijian was safely relieved. The National Army squad leader guarding the town and the town's "Elders" came out to welcome them. This squad leader hadn't been in office long and it was his first time undergoing such a test. At this moment, holding Li Dong's hand tightly, he couldn't say a word, almost bursting into tears.
+Shijian stood relieved. The National Army squad leader who'd held the town emerged with the town elders in welcome. The young officer, facing his first real test, gripped Li Dong's hand wordlessly, tears threatening.
 
-The Sui River Detachment decided to rest overnight in Shijian. Li Dong's unit had taken the first merit, and every squad was beaming with joy. But good days in the army usually didn't last long. Before the Wuzhou Squadron's butts were warm, they received new orders: the entire squadron was to execute outer perimeter guard duty north of Shijian. The whole squadron had just finished tending to the wounded and preparing to eat, but had to pack up their mess kits, pass through the town, and go outside the village to prepare exclusively for camping.
+The Sui River Detachment elected to rest overnight in Shijian. Li Dong's unit claimed first honors, and every squad celebrated—though such respite rarely lasted in military life. Before the Wuzhou Squadron could settle, new orders arrived: establish perimeter security north of Shijian. Having just finished treating the wounded and preparing meals, they packed their mess kits, marched through town, and prepared for overnight field deployment.
 
-Shijian Town was located on a small alluvial plain. The Sui River on the west side of the town turned from south to east here. The east and north sides were green mountains. The road to Guangning was sandwiched between the mountains to the north. The mountain pass was more than two *li* from the village. Fearing being too far from the main force, the 2nd Battalion's campsite was only half a *li* from the northernmost village. According to the report from the scout squad sent out, there was only a small village on the opposite mountain, and no trace of Ming troops was found. Tonight the weather was clear and windless, the temperature pleasant. Plus, with guard duty at hand, the officers used training the soldiers' spirit as a reason not to let them pitch tents.
+Shijian occupied a small alluvial plain where the Sui River bent from south to east. Mountains hemmed the east and north. The road to Guangning threaded through the northern mountain pass, over two *li* from the village proper. Concerned about separation from the main force, the 2nd Battalion established their bivouac only half a *li* from the northernmost houses. Scout reports indicated a single small village on the opposite mountainside with no sign of Ming forces. Clear skies, calm wind, pleasant temperature—combined with guard duty requirements, the officers forbade tent-pitching, citing the need to harden the troops' spirit.
 
-The mishap during the attack left Yang Erdong with lingering fears. Although the squadron leader didn't say anything, he felt very uneasy inside. Although he had the first merit of "First to Ascend," he still volunteered, requesting his own squad to build the simple outer perimeter fortifications.
+The assault's near-disaster gnawed at Yang Erdong. Though the squadron leader said nothing, his own conscience troubled him. Despite earning "First to Ascend" honors, he volunteered his squad to construct the perimeter fortifications.
 
-"We just fought a battle, casualties weren't few. Should we switch to another squad?" Li Dong asked.
+"You just fought. Casualties were significant. Should we assign another squad?" Li Dong asked.
 
-"It doesn't matter. These raw recruits need to be drilled more to stop them from thinking too much."
+"It's fine. These raw recruits need more drill to stop them dwelling on things."
 
-"Alright, leave it to you then."
+"Very well. It's yours."
 
-While the other two squads of Wuzhou Squadron were chewing on molar-grinding bricks with soup, Yang Erdong's squad could only dig pits bitterly with shovels, piling the excavated earth behind the pits to build a low wall only chest-high that looked like it couldn't block anything. They also knew that battle was won quite shamefully. There were only a dozen militia on the wall in total, and only three or five muskets. Although there was a cannon, it only fired once. The dozens of militia behind who didn't go up the wall slipped away as soon as the wall was lost. The squad itself lost four brothers, and the most shameful thing was that two were executed by "Battlefield Law Enforcement."
+While the other two Wuzhou Squadron squads gnawed rock-hard ration biscuits with soup, Yang Erdong's squad labored with shovels, piling excavated earth into low chest-high walls that looked inadequate to stop anything. They understood how poorly the battle had gone. The barricade had been defended by barely a dozen militia with three to five muskets total. The cannon had fired once. The reserve militia fled when the wall was breached. The squad had lost four men—most shamefully, two executed by battlefield law enforcement.
 
-Shame was shame, but when working, Squad Leader Yang Erdong stood by the pit drinking soup with a bowl, calling it supervising and guiding them to build the wall. The Sui River Detachment built fortifications every night on the way north to Guangning; even fools had learned it, did they need him to teach? Originally, suppressing bandits in Zhaoqing was quite free, but as soon as they dug ditches, the soldiers couldn't help recalling painful memories of recruit training in Guangzhou. Plus, although Ming troops were approaching, they estimated that eight out of ten were garrison troops from Guangning and wouldn't be many, so the soldiers' enthusiasm for digging fortifications wasn't high.
-    
-"The Squadron Leader punished our whole squad, leader why don't you work together with us?" A few veterans asked complainingly, relying on their familiarity with him.
+Shame notwithstanding, Squad Leader Yang Erdong stood by the excavation drinking his soup, calling it "supervision and guidance." The Sui River Detachment had built field fortifications every night during the northward march—even fools had learned the routine by now. What guidance did they need? The bandit suppression around Zhaoqing had been comparatively relaxed, but trench-digging recalled painful recruit training memories from Guangzhou. With Ming forces approaching—likely just Guangning garrison troops in limited numbers—the soldiers' enthusiasm for fortification work remained minimal.
 
-"What, not convinced?" Yang Erdong laughed. "When you change the strip on your armband to a bean (star), someone will work for you."
+"The squadron leader punished our whole squad. Why don't you work with us, leader?" A few veterans complained, trading on familiarity.
 
-Soldiers and officers mixed familiarly, and bold new recruits talked back: "You officers are all from the Chiefs' regulars, how could we ever have that time."
+"What, not convinced?" Yang laughed. "When you change that armband chevron to a rank pip, someone will work for you."
+
+The casual banter between ranks emboldened newer recruits. "You officers are all from the Chiefs' regulars. We'll never get that chance."

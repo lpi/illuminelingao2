@@ -1,103 +1,103 @@
 # Chapter 2165 - Post-Battle Summary
 
-"So, has everyone eaten?" Li Dong smiled and asked.
+"So—has everyone eaten?" Li Dong asked with a smile.
 
-"Reporting to the Captain, we've all eaten!" the sergeant major, acting as deputy commander, reported.
+"Reporting to Captain, we've all eaten!" the sergeant major acting as deputy commander replied crisply.
 
-Li Dong ordered: "Now, conduct a post-battle summary by squad!"
+Li Dong issued his order: "Conduct post-battle summaries by squad!"
 
-"Yes!"
+"Yes, sir!"
 
-The post-battle summary was mandated by the "Combat Regulations" issued by the General Staff. As long as there were no urgent tasks after a battle, a comprehensive summary of the day's combat had to be conducted. It was done by squad and then compiled into a report at the company level to be submitted to the battalion command.
+Post-battle summaries constituted mandatory protocol under General Staff "Combat Regulations." Absent urgent follow-on missions, commanders conducted comprehensive combat reviews after each engagement—squad-level analysis compiled into company reports for battalion submission.
 
-The purpose of this summary was, first, to consolidate lessons learned from combat and identify deficiencies in troop operations and training; second, to increase soldier participation and cultivate soldiers with more independent combat awareness.
+The practice served dual purposes: first, consolidating lessons learned while identifying operational and training deficiencies; second, fostering soldier participation and cultivating independent combat awareness.
 
-Li Dong sat down by the fire with Yang Erdong and the others. Yang Erdong and the rest stood up reflexively.
+Li Dong settled by the fire alongside Yang Erdong and the others. They rose reflexively.
 
-This was not only a habit from the old army; even in the Fubo Army system, the hierarchical difference between officers and soldiers was still an emphasized absolute authority.
+This reflex wasn't merely old-army conditioning. Even within the Fubo Army system, the hierarchical gulf between officers and enlisted remained an emphasized absolute authority.
 
-"Don't be stiff, everyone sit down." Li Dong waved his hand. "We fought all day today, you must have plenty of thoughts. Let's hear them."
+"Relax. Sit down." Li Dong gestured dismissively. "We fought all day. You must have thoughts. Let's hear them."
 
-Luo Mao was a veteran. Seeing Li Pudun and the others looking bashful and afraid to speak, he smiled and said, "I'll start. Captain, your command today was brilliant..."
+Luo Mao was a veteran. Seeing Li Pudun and others looking bashful and reluctant to speak, he smiled. "I'll start. Captain, your command today was brilliant..."
 
-"You don't need to summarize that," Li Dong laughingly kicked him. "Save the flattery for when we get back. Talk about your direct feelings."
+"Skip that part," Li Dong interrupted with a laugh, nudging him with his boot. "Save the flattery for after we return. Talk about your direct impressions."
 
-"The biggest feeling is that our equipment isn't good enough." As a Corporal Squad Leader, Luo Mao used a Nanyang rifle, but he had seen the awkward performance of the spears all day.
+"Biggest impression—our equipment's inadequate." As corporal squad leader wielding a Nanyang rifle, Luo Mao had witnessed the spearmen's awkward performance throughout the day.
 
-"Speaking of spears, they really don't lose out in close-quarters combat on open ground. But in today's terrain, with so many hills and trees, spears are hard to use—not as handy as machetes."
+"Spears don't lose ground in close combat on open terrain. But today's landscape—all these hills and trees—spears proved cumbersome. Not nearly as practical as machetes."
 
-This remark immediately resonated with the soldiers:
+The observation immediately resonated:
 
-"Always getting snagged when passing through woods."
+"Constantly snagging passing through woods."
 
-"Carrying them on a long march feels very cumbersome."
+"Burden on long marches."
 
-"Especially hard to hold when climbing mountains or crossing water; a rifle can be slung over the back."
+"Especially awkward climbing or crossing water. Rifles sling across the back."
 
-...
+Yang Erdong watched everyone speaking enthusiastically. He wanted to address rifles too, but hesitated. Instead, Li Pudun stammered:
 
-Yang Erdong saw everyone speaking enthusiastically and wanted to talk about the rifles too, but he hesitated and didn't open his mouth. Instead, Li Pudun stammered:
+"I also have a thought. Can't we receive more of these bird guns—Nanyang rifles? This weapon's genuinely effective, but currently we've only twenty-odd rifles total. Sometimes during combat it's frustrating..."
 
-"...I also have a thought. Can't we be given a few more of these bird guns—Nanyang rifles? This gun is really easy to use, but right now there are only twenty or so rifles. Sometimes it's frustrating during a fight..."
+This ignited everyone's emotions. Regarding why the National Army lacked rifle equipment, many had harbored unspoken thoughts for considerable time. Many of these soldiers were Ming army veterans who'd initially disliked firearms—primitive weapons boasted weak power, poor usability, and frequent accidents. They'd felt indifferent about lacking rifles, considering spears more reliable. But actual battlefield experience instantly revealed the Nanyang rifle's combat performance advantages. Particularly, every rifleman volley could instantly suppress enemy momentum and shatter formations—far superior to arrows or spear thrusts. Especially coordinating with Mi Longtao's forces, the Fubo Army's firepower output and combat effectiveness exceeded theirs severalfold, making these common soldiers secretly envious. *This* was real combat! Originally they'd thought avoiding dangerous firearms was preferable—now carrying spears felt inferior.
 
-With this said, everyone's emotions rose. Regarding why the National Army wasn't equipped with rifles, many actually had thoughts in their hearts for a long time. In fact, many of these soldiers had served in the Ming army and initially didn't like firearms much—primitive firearms had weak power, poor usability, and often caused accidents. So they weren't very interested in not being equipped with rifles, thinking spears were more reliable. But once on the battlefield, having fought a real battle, they immediately appreciated the combat performance advantages of the Nanyang rifles equipped by the National Army. especially, every volley by the riflemen could instantly suppress the enemy's offensive momentum and disrupt their formation. The effect was far better than arrows and spear thrusts. especially when coordinating with Mi Longtao's troops, the firepower output and combat effectiveness of the Fubo Army were several times stronger than theirs, making these grunts secretly envious—this was what fighting should look like! Originally they thought they could avoid dangerous things like firearms, but now they felt that carrying a spear made them inferior.
+"The Fubo Army's fully equipped with rifles, naturally. But other National Army units have guns too—among the hundreds of men in Xugang, we're the only ones without!"
 
-"...It goes without saying that the Fubo Army has rifles, but other National Army units have guns too—we're the only ones among the hundreds of men in Xugang who don't!"
+"Even the Li tribesmen have matchlocks! We're worse equipped than them!"
 
-"Even the Li savages have skirts... stick guns; we're worse off than them!"
+Seeing everyone talking over each other, Yang Erdong found courage. He
 
-...
+ considered momentarily, then raised his hand. "Why not issue me a firelock? During this morning's river battle, I spotted the enemy—but without a firelock in hand, unable to shoot with just a spear, I could only watch helplessly as enemy archers shot first. With a firelock, I could've eliminated those archers. Several brothers wouldn't have taken arrows."
 
-Seeing everyone talking over each other about this, Yang Erdong grew bolder. He thought for a moment and raised his hand. "Why not issue me a firelock? If I had a firelock, in the battle by the river this morning, I saw the enemy, but having no firelock in hand and unable to shoot with a spear, I could only watch helplessly as the enemy shot arrows first. If I had a firelock, I could have taken out the enemy archers first, and several brothers wouldn't have been hit by arrows."
+"Fine sentiment—but would you even know how to operate one if issued?" a soldier nearby asked deliberately, provoking general laughter.
 
-"Beautifully said, but would you know how to use it if given one?" a soldier nearby asked deliberately, causing everyone to laugh.
+Yang Erdong stiffened his posture. "Of course I can operate one! I used them serving as house guard for Governor Xiong—no, Xiong Wencan. Even practiced extensively."
 
-Yang Erdong stiffened his neck and said, "Of course I know how to use it! I used it when I was a house guard for Governor Xiong... no, Xiong Wencan. I even practiced many times."
+Li Dong looked surprised. "You're trained on Nanyang rifles?"
 
-Li Dong was somewhat surprised: "You know how to use a Nanyang rifle?"
+"Yes!" Yang Erdong displayed evident pride. "I learned in Xiong Wencan's house guard squad. During assessments, three hits from five shots. Even learned some Ausländer... er, foreign foot drills from Advisor Yi."
 
-"Yes!" Yang Erdong was a bit proud. "I learned it in Xiong Wencan's house guard squad. During the assessment, I hit the target three times out of five shots. I even learned some Aussie... er, Aussie foot drills from Advisor Yi."
+"You served as house guard!"
 
-"So you were a house guard!"
+"Xiong Wencan's house guard at that!"
 
-"Wow, Xiong Wencan's house guard!"
+"Isn't Xiong Wencan a high-ranking Ming official? How would he possess Ausländer rifles?"
 
-"Isn't Xiong Wencan a big official of the Ming Dynasty? How would he have Aussie rifles?"
+Li Dong raised his hand, silencing the discussion. "I've heard everyone's input. I'll relay it upward. But the rifle matter requires time. The Senate can't manufacture limitless Nanyang rifles instantaneously. How long has our unit existed? Tens of thousands of National Army soldiers are organizing across Guangdong. Even allocating twenty rifles per squadron means thousands upon thousands total."
 
-Li Dong waved his hand to stop the discussion and said, "I've heard everyone's opinions. I will reflect them to my superiors. But the rifle issue has to take time—the Senate can't produce so many Nanyang rifles all at once. How long has our unit been established? There are tens of thousands of National Army soldiers being organized across Guangdong. Even if the Senate gives twenty guns per squadron, adding it up means thousands upon thousands."
+Various suggestions followed. In the old army, even low-ranking officers rarely discussed campaign success or failure before generals—"strategy" remained supervisors' and commanders' exclusive domain. Consequently, this practice simultaneously intrigued soldiers while sparking discussion enthusiasm. From rifles, conversation shifted to personal equipment—many soldiers advocated for armor.
 
-Then everyone expressed various ideas. In the old army, let alone soldiers, even low-to-mid-ranking officers rarely discussed the success or failure of campaign tactics in front of generals—"strategy" was something for the Supervisors and Commanders to consider. Thus, this practice, while making the soldiers curious, also sparked their interest in discussion. From the rifle issue, they moved to personal equipment—many soldiers felt it would be best to have a suit of armor.
+"We exclusively wield spears, possess no bows or arrows. When enemies launch arrow barrages, several comrades get wounded simultaneously. Iron armor or cotton armor would dramatically improve survival—at minimum, a single arrow wouldn't prove fatal." A veteran combat soldier spoke.
 
-"We all use spears and have no bows or arrows. When the enemy shoots a barrage of arrows, several of us get wounded at once. If we had a suit of iron armor or cotton armor, it would be much better; at least we wouldn't die from just one arrow." A soldier with a combat soldier background said.
+"Precisely. Battle-experienced brothers know the adage: three arrows don't match one blade. Armor protection means as long as vital organs aren't struck, fighting continues even with seven or eight arrows embedded. Currently, wearing only uniforms, one arrow means half-dead."
 
-"That's right. Brothers who have been in battle know the old saying: three arrows are not as good as one blade. With armor for protection, as long as vital parts aren't hit, one can continue fighting even with seven or eight arrows in them. Now, wearing just a uniform, one arrow means half-dead."
+Regarding armor, Li Dong had heard soldier complaints repeatedly. He'd served several years, participated in numerous battles, yet never considered armor particularly important. However, during his service, troops carried rifles rather than spears. Combat meant suppressing enemies with vigorous long-range firepower. Conversely, these National Army soldiers charged enemy formations directly without adequate suppression—casualties from arrows proved inevitable.
 
-Regarding armor, Li Dong had heard soldiers complain more than once. He had been a soldier for several years and participated in many battles, but never felt armor was that important. However, when he was a soldier, the troops were equipped with a rifle for every man, not spears. Once in combat, they could suppress the enemy with vigorous firepower from a distance. In contrast, these National Army soldiers had to charge enemy formations directly without sufficient suppression, so casualties from weapons like arrows were inevitable.
+Still, he refrained from refuting or explaining, permitting soldiers to speak freely. Most discussions proved essentially worthless—but Li Dong possessed sufficient experience recognizing summaries meant panning gold from chaotic rubble. Luo Mao contributed sparingly, notebook and pencil in hand, occasionally recording notes and adding observations.
 
-However, he didn't refute or explain, but let the soldiers speak their minds freely. Most of the discussions were completely worthless, but Li Dong was experienced and knew that a summary meant panning for gold from a pile of messy fragments. Luo Mao didn't talk much either; holding a notebook and pencil, he engaged in taking notes occasionally and added a few comments.
+While the summary meeting proceeded, a military conference convened in the Xu Ancestral Hall.
 
-While the summary meeting was being held, a military conference was taking place in the Xu Ancestral Hall.
+Participants included Mi Longtao, Zhu Si, and newly arrived detachment commander Lieutenant Li Shenggang.
 
-The participants, besides Mi Longtao, included Zhu Si and Lieutenant Li Shenggang, a detachment commander who had just arrived.
+Li Shenggang and Mi Longtao were training corps classmates—both officers rapidly promoted during the Guangdong campaign. Predominantly veterans with extensive service records, having served as sergeants, experienced in combat and troop leadership.
 
-Li Shenggang and Mi Longtao were classmates from the training corps, both officers promoted rapidly during this Guangdong campaign. They were mostly veterans with long service records, having served as sergeants, experienced in both fighting and leading troops.
+Li Shenggang's unit had originally targeted Lianzhou. Shortly after departing Sanshui, they'd received new orders: "Intelligence indicates major enemy operations imminent within Fengchuan and Yu'nan county borders. Abort original mission immediately. Proceed to Yu'nan County and await orders."
 
-Li Shenggang's unit was originally intended for Lianzhou, but shortly after departing from Sanshui, they received orders: "Intelligence shows the enemy will have a major operation within the borders of Fengchuan and Yu'nan counties. Abort the original mission immediately and proceed to Yu'nan County to await orders."
+Similar directives arrived via Fengchuan County messengers. Headquarters had obviously obtained significant intelligence.
 
-Similar orders were also conveyed by messengers from Fengchuan County. The headquarters had obviously obtained some important intelligence.
+"Comrades." Mi Longtao, being most senior among present officers, temporarily commanded the mixed force as frontline commander. "You've all reviewed South China Army Forward Command orders. Intelligence suggests the enemy will launch major combat operations against Yu'nan County, preparing to capture the county seat decisively. Consequently, Forward Command ordered the Yu'nan County Garrison to prepare for combat, defending the county seat and surrounding strongholds firmly. As mobile forces, we must somehow encircle and destroy this enemy concentration."
 
-"Comrades," Mi Longtao, being the most senior among the present officers, temporarily served as the frontline commander of the mixed force. "You've all seen the orders from the South China Army Forward Command. Intelligence says the enemy will launch a major combat operation in Yu'nan County, preparing to take the county seat in one stroke. For this, the Forward Command has ordered the Yu'nan County Garrison to prepare for combat, defending the county seat and important strongholds around it firmly. As a mobile force, we must find a way to encircle and destroy this group of enemies."
+Immediate stirring arose. Since the Yao rebellion's commencement, several county seats surrounding Yao territories had fallen. However, those settlements had merely submitted recently to Senate authority; government troops possessed weak fighting spirit, facilitating easy capture. Yu'nan County, conversely, constituted a West River county seat—critical for ensuring smooth West River waterway passage, a key defensive support node along communication lines. Each such county seat garrisoned at minimum one National Army squadron, equipped with naturalized cadre working teams, maintaining ample ammunition and provisions. Recently, escalating tensions triggered secondary emergency reinforcements; new supplementary squadrons prioritized counties along the West, North, and East Rivers. Yu'nan County received a supplementary squadron as well.
 
-A stir immediately arose in the venue. Since the start of the Yao rebellion, several county seats around the Yao area had fallen. However, those county seats had mostly just submitted to the Senate and the government troops' will to fight was weak, so they fell easily. But Yu'nan County was a county seat along the West River, an important guarantee for the smooth passage of the West River waterway, and a key defensive support point along the communication line. Each of these county seats was garrisoned by at least one National Army squadron, equipped with a working team of several naturalized cadres, and had ample ammunition and food. Recently, due to the tense situation, a second emergency reinforcement was carried out, and a batch of new supplementary squadrons was prioritized for the counties along the West, North, and East Rivers. Yu'nan County also received a supplementary squadron.
+Though the county lacked Fubo Army core forces, two National Army squadrons' combined strength sufficed for self-defense. River patrol fleets passed endlessly, ready to deliver reinforcements from upstream or downstream positions instantly.
 
-Although the county had no Fubo Army as a core, the strength of two National Army squadrons was enough for self-defense. Patrol fleets flowed endlessly on the river surface, ready to bring reinforcements from upstream and downstream at any time.
+Given this posture, bandit mobs actually intended besieging Yu'nan County seat? Wasn't that excessive confidence?
 
-Under such a posture, a mob of bandits actually wanted to besiege the Yu'nan County seat? This was too overconfident, wasn't it?
+Li Shenggang coughed. "I believe this intelligence contains questionable elements. Upstream from Yu'nan County sits Fengchuan County—among our largest West River strongholds. Not only are heavy forces stationed there, but the Navy's inland river fleet resides there too, prepared to sail downriver for immediate reinforcement. Time available for city attacks remains minimal. Even if enemies capture Yu'nan County seat, they cannot hold it long—much less sever the West River channel."
 
-Li Shenggang coughed: "I think this intelligence has doubtful points. Upstream from Yu'nan County is Fengchuan County, one of our largest strongholds on the West River. Not only are heavy troops stationed there, but the Navy's inland river fleet is also there, ready to sail downriver for reinforcement at any time. The time left for the enemy to attack the city is not much. Even if the enemy takes the Yu'nan County seat, they cannot hold it for long, let alone cut off the West River channel."
-
-"Yes, I see it that way too," Mi Longtao said. "But the headquarters says the intelligence is reliable. So their motive might be to make a feint to the east while attacking in the west..."
+"Yes, my assessment agrees," Mi Longtao replied. "However, headquarters insists the intelligence is reliable. Consequently, their motive likely involves making a feint to the east while striking west..."
 
 "Sound east, strike west?" Zhu Si asked, puzzled.
 
-"Meaning their real target isn't Yu'nan County, but they have other designs?"
+"Meaning their genuine target isn't Yu'nan County—they harbor alternative designs?"
+
+(Chapter End)

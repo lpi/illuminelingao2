@@ -1,102 +1,102 @@
 # Chapter 2294: Opera Chests
 
-"Just walk and look." Chang Qingyun said; Liu Youwang’s "Ambition" if in normal times, could figure slowly, sowing discord... tricks to play were many. But right now grain boat arriving immediate; also no time to play these tricks. He cared more about another matter:
+"We'll just have to play it by ear," Chang Qingyun said. Under normal circumstances, Liu Youwang's "ambition" could be worked on slowly—sowing discord and various other tricks could be employed. But with the grain fleet arriving any day now, there was no time for such games. He was more concerned about another matter:
 
-"Just this Opera Chest matter, currently has eyebrow eye (clue)? This Liu Youwang asks this matter every day. I didn't expect this person opera addiction so big." He shook head said.
+"What about the opera chests? Have you made any progress? Liu Youwang asks about them every day. I hadn't realized the man was so obsessed with opera." He shook his head.
 
-"Opera Chest has." Yi Haoran smiled, "Just no meaning. Can't take out."
+"I've located some opera chests," Yi Haoran smiled. "But there's no use in them. We can't get them out."
 
-"Oh? At where?"
+"Oh? Where are they?"
 
-"Just inside Three Headquarters—in General Town Office’s warehouse." Yi Haoran said, "I learned from an old clerk, Wanli Era Wuzhou’s Guarding Eunuch liked listening opera; specially brought an opera troupe and full set Opera Chests from north; when leaving office person left, these costumes Opera Chests moving inconvenient, then throw all in Wuzhou. Putting is several decades—these years no one moved; should preserve still good."
+"Right inside the Three Headquarters—in the General Town Office warehouse." Yi Haoran explained, "I learned from an old clerk that during the Wanli era, the Eunuch Defender of Wuzhou loved opera. He brought an entire troupe and a complete set of opera chests all the way from the north. When he left office, the equipment was too cumbersome to move, so it was all left behind in Wuzhou. It's been sitting there for decades—untouched all these years. It should still be in good condition."
 
-"This isn't same as none." Chang Qingyun disappointed said. Three Headquarters now was forbidden area; entering leaving personnel all had strict management. Even Liu Youwang himself had no method to extract Opera Chests out.
+"That's as good as nothing." Chang Qingyun was disappointed. The Three Headquarters was now a restricted zone, with strict controls on all personnel coming and going. Even Liu Youwang himself had no way to extract opera chests from there.
 
-"It is useless; but anyhow can provide an excuse for you." Yi Haoran said.
+"It may be useless, but at least it provides you with an excuse," Yi Haoran said.
 
-"Also only can so." Chang Qingyun nodded, "I go back first."
+"I suppose that's all I can do." Chang Qingyun nodded. "I should head back."
 
-He stood up wanting to leave; suddenly Yi Haoran called him stop: "Slow!"
+He rose to leave, but Yi Haoran suddenly called out: "Wait!"
 
 "?"
 
-"I suddenly had a stratagem; just don't know if appropriate..."
+"I just thought of a stratagem. I'm not sure if it's feasible..."
 
-"You just say come listen." Chang Qingyun had interest.
+"Go on, I'm listening." Chang Qingyun was intrigued.
 
-"Just this method still has to search from Opera Chest."
+"The method still involves the opera chests."
 
-"Opera Chest can't take out; only call helplessness!"
+"But we can't get them out. There's nothing to be done about it!"
 
-Yi Haoran nodded: "With our ability naturally can't take out. But, calling Liu Youwang go, maybe works."
+Yi Haoran nodded. "With our abilities, naturally we can't. But if we get Liu Youwang to do it—it might just work."
 
-"This, afraid not working." Chang Qingyun embarrassed said, "Liu Youwang although recently listening opera somewhat obsessed, matter heavy light always still understands: Three Headquarters is now Hair thief’s forbidden land; even if he wants to enter have to notify in advance; absolutely impossible to take out quietly..."
+"That... probably won't work." Chang Qingyun was doubtful. "Liu Youwang may have developed a fondness for opera recently, but he still understands priorities. The Three Headquarters is the Australians' forbidden ground now. Even if he wanted to go in, he'd have to notify them in advance. There's no way to take things out quietly..."
 
-"Then let pass bright road (openly) take out." Yi Haoran said, "He anyhow is also one of local Fake Hair chiefs, doesn't have this bit face?"
+"Then let him take them out through proper channels," Yi Haoran said. "He's one of the local Australian chiefs, after all. Doesn't he have at least that much face?"
 
-"This really hard to say." Chang Qingyun frowned saying, "Now is exactly war fire military might time; wanting to get opera troupe? Liu Youwang afraid date not go to ask..."
+"That's hard to say." Chang Qingyun frowned. "This is exactly when warfare is at its fiercest. Wanting to assemble an opera troupe? Liu Youwang probably wouldn't dare even ask..."
 
-He speaking suddenly stunned; a thought instantly rushed onto his heart head—doing so perhaps has drama (chance)! Chang Qingyun secretly thought. Thinking here, he nodded: "Good, then try try look."
+He trailed off mid-sentence, suddenly stunned. A thought flashed through his mind—perhaps this could actually work! Chang Qingyun thought to himself. Considering this, he nodded: "Alright, let's try it."
 
-"You have method?"
+"You have a method?"
 
-"Although no ten parts assurance, also have six seven parts." Chang Qingyun said, "Just you have what strategy?"
+"I can't promise ten out of ten success, but I'd say six or seven." Chang Qingyun said, "But first, tell me—what's your stratagem?"
 
-"You just listen me say..."
+"Listen carefully..."
 
-Chang Qingyun returned to camp; told matter of Opera Chests one five one ten to Liu Youwang.
+Chang Qingyun returned to the camp and reported every detail about the opera chests to Liu Youwang.
 
-"Old Chang, aren't you equal to finding nothing?" Liu Youwang somewhat dissatisfied said. Three Headquarters now was forbidden area; entering leaving checking very tight; even naturalized citizens couldn't enter leave at will. Moreover moving seven eight big boxes out from inside!
+"Old Chang, isn't this the same as finding nothing?" Liu Youwang said, somewhat dissatisfied. The Three Headquarters was now a restricted zone with tight entry and exit checks. Even naturalized citizens couldn't come and go freely—let alone move seven or eight large chests out!
 
-"Ashamed ashamed."
+"My apologies."
 
-"You don't ashamed either; say listen look; can still think what method? Can't assume this Opera Chest only General Town Office has."
+"Don't apologize. Just tell me—is there any other way? Surely the General Town Office isn't the only place with a full set of opera chests."
 
-Chang Qingyun said: "Right now inside this Wuzhou city, having full set Opera Chest, really only General Town Office has—this thing originally wasn't ordinary people could afford to prepare..." He stopped, looked at Liu Youwang, "Student actually still has a method."
+Chang Qingyun said, "Right now in all of Wuzhou city, the General Town Office is the only place with a complete set. These things were never something ordinary people could afford..." He paused, looking at Liu Youwang. "This student does have one other method."
 
-Xie Erren didn't know current dark current surging; someone wanted to give him "Color" to see. In his view, currently Wuzhou’s situation already improved largely. First was Guangxi aspect battles connecting victories; Huang Chao in North Guangdong also stabilized situation; not only defeated bandits, also controlled range of rioting Yao people inside Lianyang Three Jurisdictions; didn't expand further. Rapidly expanding National Army although combat power not high, loss very big, but through large scale stationing various county cities, traffic main roads and road patrol, effectively contained Xiong Wencan’s plan of "Indulging Soldiers Being Bandits"; various places and roads security had obvious improvement.
+Xie Erren had no idea that dark currents were surging beneath the surface, that someone was planning to show him "what's what." From his perspective, Wuzhou's situation had improved significantly. The battles in Guangxi were yielding one victory after another. Huang Chao in North Guangdong had also stabilized things—not only defeating the bandits but also containing the rioting Yao people within the Three Jurisdictions of Lianyang, preventing further spread. The rapidly expanding National Army, though lacking in combat effectiveness and suffering heavy losses, had effectively curtailed Xiong Wencan's strategy of "letting his soldiers turn bandit" by garrisoning various county seats and traffic routes and conducting regular patrols. Security throughout the region had visibly improved.
 
-These victories reflecting on Wuzhou’s civil sentiment, was decline of various rumors; original "Australian no good" rumor once dust clamor straight up; making Wuzhou city inside people heart panic. Following victory reports continuously coming also gradually vanished voice extinguished track.
+These victories were reflected in Wuzhou's public sentiment as a decline in various rumors. The "Australians can't hold on" rumor that had once sent dust flying and people panicking had gradually died down as reports of victory continued to arrive.
 
-Even folk criticism biggest, once like rein off wild horse grain price problem, after transmitting news Australian grain boat fleet about to arrive also appeared small range falling back. This was first time after Wuzhou Recovery.
+Even the most criticized issue—grain prices, which had once run wild like an unbroken horse—showed a small decline after news spread that the Australian grain fleet was about to arrive. This was the first such drop since Wuzhou's recovery.
 
-This news was after he received grain departed from Sanshui, ordered naturalized citizen cadres intentionally leak out. Sure enough effect brilliant. This kind small method although counted nothing; but made Xie Erren feel very complacent.
+This news had been deliberately leaked by naturalized citizen cadres on Xie Erren's orders after receiving word that the grain had departed from Sanshui. The effect had been brilliant. It was a small trick, to be sure, but it left Xie Erren feeling quite pleased with himself.
 
-People heart gradually peaceful; inside Wuzhou border although still had small group bandits making chaos, but already no big worry; inside outside city security condition improved largely. Bringing along now convening Assembly Bureau meeting also rarely had representatives absent.
+Public sentiment was gradually settling. Though small bands of bandits still caused trouble within Wuzhou's borders, they were no longer a serious concern. Security conditions inside and outside the city had improved markedly. Even the Assembly Bureau meetings he now convened rarely had absent representatives.
 
-Right now he various matters smooth hand; quite had feeling of ambition satisfied will full: didn't expect self indeed had governing world quite managing administration talent! Back then he applied external transfer serving as local main official still somewhat anxious. Going to Liu Muzhou and Ming Lang place talking; inside heart even more no bottom—because talk lasting time had more than one hour; seemed simple random, actually was an "Interview."
+With all matters proceeding smoothly, Xie Erren felt a sense of satisfied ambition: Who would have thought he actually had talent for governance and administration! He had been somewhat anxious when he first applied for an external transfer to serve as a local chief official. When he went to discuss things with Liu Muzhou and Ming Lang, he'd felt even more uncertain—that conversation had lasted over an hour and, though seemingly casual, was clearly an "interview."
 
-Although finally his interview "Qualified," even might be excellent—otherwise wouldn't give heavy town like Wuzhou to him. But Xie Erren after all no what local administrative work experience to speak of. Rashly taking over a hundred wastes waiting to prosper medieval city. He however "Ambition Stored High Far," heart also no bottom.
+Though he had ultimately "passed"—perhaps even with distinction, or why else would they assign him a key city like Wuzhou—Xie Erren had no real experience in local administrative work. Taking over a medieval city where everything needed rebuilding, he had harbored "lofty ambitions" but little confidence.
 
-Now hardest enduring part finally passed; right now not only government affairs smooth hand; Cai Lan’s change even made Xie Erren’s self confidence explode. He now started setting hand gathering material, preparing to use administration experience understanding in Wuzhou receiving, governing process write into long feature article, finding a suitable timing send back Lingao, publish on "Two Journals One Paper"—since decided walking local administrative chief this route, had to accumulate political capital for self as soon as possible.
+Now the hardest part had passed. Not only were government affairs running smoothly, but Cai Lan's transformation had sent Xie Erren's confidence soaring. He had begun gathering material, preparing to write up his experiences and insights from taking over and governing Wuzhou as a lengthy feature article. At the right moment, he would send it back to Lingao for publication in the "Two Journals and One Paper." Since he had decided to follow the path of local administration, he needed to accumulate political capital as soon as possible.
 
-Just when he was thinking how to plan this long report on overall, someone came in report:
+Just as he was pondering how to frame this long report, someone came in to announce:
 
-"Sanheui Camp Manager Liu Youwang came, says wants to report work to Chief face to face."
+"Sanhezu Camp Manager Liu Youwang is here. He says he wants to report work to the Chief in person."
 
-"Oh? How he came." Xie Erren both somewhat surprised, also felt happy.
+"Oh? What brings him here?" Xie Erren was both somewhat surprised and pleased.
 
-Liu Youwang this person usually rarely showed face in Wuzhou city. Xie Erren’s impression to him actually not bad. Bad things Liu Youwang did in Sanheui weren't a bit didn't transmit to his ears. He more or less from naturalized citizens, retained personnel mouth knew some rumors of his doings. But this after all was road hearsay rumors; no one could take out true proof real evidence.
+Liu Youwang rarely showed his face in Wuzhou city. Xie Erren's impression of him was actually not bad. The unseemly things Liu Youwang did at Sanhezu weren't entirely unknown to him—he'd heard rumors from naturalized citizens and retained personnel about the man's conduct. But these were just hearsay; no one could produce solid evidence.
 
-Xie Erren felt, rumor definitely had certain truthfulness—after all such things in Lingao also couldn't do completely extinct; let alone such newly opened area. In his mind, Liu Youwang roughly was Fu Youdi (corrupt but capable figure reference) character. Having capability, private moral poor. After all he as one of Wuzhou local most important naturalized citizen cadres, under situation of completely not equipped subordinate, only relying on retained personnel managing several thousands captives and refugees in Sanheui Camp—these people both were human resources, could also be a bucket of gunpowder exploding anytime—he not only managed camp orderly, didn't erupt riot. Also implemented executed various assigned tasks one by one in place, not vague a bit. And these achievements were completed under premise of outside having security pressure, internal grain supply insufficient. Just this work ability, among naturalized citizen cadres counted quite outstanding. Xie Erren even had thought of recruiting him.
+Xie Erren felt the rumors likely had some truth to them—after all, such things couldn't be completely eliminated even in Lingao, let alone in a newly opened territory like this. In his mind, Liu Youwang was roughly a "Fu Youdi" type—capable but morally deficient. After all, as one of Wuzhou's most important naturalized citizen cadres, he had managed a camp of several thousand captives and refugees in Sanhezu without any subordinate cadres, relying entirely on retained personnel. These people represented both human resources and a powder keg that could explode at any moment. Yet he had not only kept the camp in order without any riots but had also executed every assigned task precisely and without ambiguity. And all this was accomplished under external security pressure with insufficient grain supplies. Such work capability was quite outstanding among naturalized citizen cadres. Xie Erren had even considered recruiting him.
 
-Xie Erren since decided walking local administrative chief route, then was very caring about naturalized citizen cadres; after all these people were left arm right arm after arriving local. Own pocket inside must have a few backup candidates.
+Since deciding to follow the path of local administration, Xie Erren had paid close attention to naturalized citizen cadres—they would be his left and right hands once he arrived at a new post. He needed to keep a few backup candidates in mind.
 
-However Liu Youwang towards him somewhat cold; several talks all looked left said other. And other naturalized citizen cadres mostly were moment moment coming before him turning; having matter no matter all wanted to come "Report Work," fearing not able to leave impression to him. Only this Liu Youwang was no matter not enter city; after entering city meeting finished affairs done then leave; resolutely not stay in city more. Usually nesting in Sanheui.
+Yet Liu Youwang remained somewhat cold toward him. In several conversations, the man had always looked away and spoken of other things. Other naturalized citizen cadres were constantly showing up before Xie Erren, making every excuse to "report work," afraid of failing to make an impression. Only Liu Youwang never came to the city unless there was business, and once his affairs were concluded, he left immediately, resolutely refusing to linger. He just nested in Sanhezu.
 
-Xie Erren for a time somewhat confused; didn't know if he was pretending stupid or real stupid.
+For a time, Xie Erren was puzzled—was the man playing dumb, or was he genuinely dense?
 
-Later he consulted Liu Youwang’s cadre file; seeing he before joining army once worked under Agricultural Committee Huang Chao, then "Suddenly Realized": turn out this Liu Youwang was Huang Chao’s person; no wonder attitude cold to self!
+Later, he consulted Liu Youwang's cadre file and discovered that before joining the military, Liu Youwang had worked under Huang Chao at the Agricultural Committee. "Suddenly it all made sense"—so Liu Youwang was one of Huang Chao's people! No wonder he was so cool toward Xie Erren!
 
-But he didn't die heart—this Huang Chao going North Guangdong, administrative team selected didn't choose Liu Youwang; showing Liu in his mind status not high; belonged to character not bearing heavy responsibility. This way, later still could dig foot of wall.
+But Xie Erren didn't give up hope. When Huang Chao went to North Guangdong, his administrative team hadn't included Liu Youwang. This showed that Liu didn't rank highly in Huang Chao's mind—he wasn't trusted with important responsibilities. That being the case, there was still an opportunity to poach him.
 
-"Invite him come in." Didn't know he wanted to talk what matter with self? Xie Erren unconsciously still somewhat expected.
+"Show him in." Xie Erren wondered what Liu Youwang wanted to discuss, and despite himself, felt a touch of anticipation.
 
-"Report Chief!" Liu Youwang attention saluted a military salute, "Liu Youwang comes to report work."
+"Reporting to the Chief!" Liu Youwang snapped to attention and delivered a military salute. "Liu Youwang has come to report work."
 
-"You please sit." Xie Erren looked at man before eyes with interest. Liu Youwang’s face appearance he always not quite liked; although skull appearance, face appearance in 21st century were denounced as "Pseudoscience," talking up meant very not complying "Political Correctness"; but relying on his many years media work experience, these things not nonsense talk. This Liu Youwang grew exactly a typical lower class villain appearance.
+"Please, sit." Xie Erren studied the man before him with interest. He had never quite liked Liu Youwang's appearance. Phrenology and physiognomy might be denounced as "pseudoscience" in the twenty-first century, and discussing such things was decidedly "politically incorrect." But based on his years of experience in media work, these matters weren't entirely nonsense. Liu Youwang had exactly the typical look of a lower-class villain.
 
-"Yes, Chief, thank Chief." Liu Youwang heart somewhat anxious. At beginning listening Chang Qingyun’s suggestion he very hesitant: he liked listening opera however also knew heavy light: Chang Qingyun thought reason for him very high sounding dignified; but speaking to bottom singing opera listening opera all were pastime; at this juncture self personally coming ask for Opera Chest, would or not be regarded as "Not Knowing Big Body" by Chief? Moreover various bad things self did in camp hard to avoid transmitting to Chief’s ears; in case provoking Chief angry, new account old account calculate together, he could count finished ball.
+"Yes, Chief. Thank you, Chief." Liu Youwang's heart was somewhat anxious. At first, hearing Chang Qingyun's suggestion, he had been very hesitant. He liked opera, true, but he understood priorities. Chang Qingyun's reasoning was high-sounding enough, but at bottom, singing and listening to opera were just pastimes. At such a critical juncture, personally coming to request opera chests—would the Chief see him as "lacking sense of the bigger picture"? Moreover, the unsavory things he had done in the camp had surely reached the Chief's ears. If he provoked the Chief's anger and old and new accounts were settled together, he'd be finished.
 
 ---
 **Next Update:** Volume 7 - Guangzhou Governance Part 498

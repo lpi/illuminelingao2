@@ -1,52 +1,54 @@
 # Chapter 2146 - Deploying Defenses
 
-Gou Xunli smiled unfathomably. Rotten-Eye Hu knew that this sworn brother had some "material" to educate him again.
+Gou Xunli smiled enigmatically. Rotten-Eye Hu recognized that expression—his sworn brother possessed additional "material" with which to enlighten him.
 
-"Big Brother, you must know that there is a gorge on this Gui River called Duanteng (Broken Rattan) Gorge."
+"Big Brother, you're surely aware of the gorge along the Gui River called Duanteng Gorge?"
 
-"I know that; that's the Yao people's territory."
+"Of course—that's Yao territory."
 
-"Exactly. The Yao people in Duanteng Gorge rose against the government in the Jiajing reign. Their leader, Hou Dagou, once captured Wuzhou with only seven hundred men, captured several court officials, and killed the Administration Commissioner."
+"Precisely. During the Jiajing reign, the Yao people of Duanteng Gorge rose against the government. Their leader, Hou Dagou, captured Wuzhou with merely seven hundred men, seized several court officials, and killed the Administration Commissioner himself."
 
-"Is there such a thing?!" Now it was Rotten-Eye Hu's turn to be surprised.
+"Such a thing happened?!" Now Rotten-Eye Hu's turn for astonishment arrived.
 
-"Of course it's true." Gou Xunli said, "Not only that, from the Tianshun era to the Chenghua era, the Yao people captured Wuzhou seven times. Each time they won with fewer numbers—are we inferior to a few Yao barbarians?"
+"Absolutely true." Gou Xunli continued, "Moreover, from the Tianshun era through Chenghua, Yao forces captured Wuzhou seven times. Each victory came against superior numbers—are we inferior to mere Yao barbarians?"
 
-These words moved Rotten-Eye Hu's heart, but Hou Dagou had seven hundred men after all, while they only had two hundred. And the Great Ming's soldiers and the Bald Thieves' soldiers were not the same thing.
+These words stirred Rotten-Eye Hu's heart, yet Hou Dagou had commanded seven hundred men, while they mustered merely two hundred. Moreover, Great Ming soldiers and Bald Thief troops represented entirely different propositions.
 
-"...So what we want to do is not to capture Wuzhou..."
+"...So our objective isn't actually capturing Wuzhou..."
 
-"If we don't capture it, what fortune can we make?" Rotten-Eye Hu was greatly disappointed. "We are not government troops; we can claim credit by rushing in and chopping off a few heads—besides, how many taels of silver can one head get? Maybe it will be embezzled by the officials. Won't do it, won't do it."
+"If we don't capture it, what fortune can we make?" Rotten-Eye Hu deflated considerably. "We're not government troops who claim credit by rushing in and severing heads—besides, how much silver does one head fetch? Likely embezzled by officials anyway. Won't do it, absolutely won't."
 
-"Hehe, Big Brother, you are wrong. In my opinion, we don't even need to chop heads." Gou Xunli said, "Do you know there is a priceless treasure in Wuzhou city—as long as we get this treasure, promotion and wealth are just around the corner..."
+"Hehe, Big Brother, you misunderstand entirely. In my assessment, we needn't sever heads at all." Gou Xunli declared, "You're aware Wuzhou contains a priceless treasure—securing this treasure alone guarantees promotion and wealth..."
 
-Rotten-Eye Hu slapped his thigh and shouted: "Brother, stop tormenting people with mysteries. Just speak frankly. How do we plan to do it?!"
+Rotten-Eye Hu slapped his thigh explosively. "Brother, cease tormenting me with riddles! Speak plainly—how exactly do we proceed?!"
 
-"Good!" Gou Xunli knew he had made Rotten-Eye Hu determined, so he stopped playing with words and said, "The biggest treasure in Wuzhou city is the Bald Thieves' 'Director'!"
+"Excellent!" Gou Xunli, recognizing his sworn brother's commitment was secured, abandoned circumlocution. "Wuzhou's greatest treasure is the Bald Thieves' 'Director'!"
 
 "Director?"
 
-"It is the True Bald Senator." Gou Xunli nodded heavily. "As long as we capture him and present him to Viceroy Xiong, hehe..."
+"The True Bald Senator himself." Gou Xunli nodded emphatically. "Capture him and present him to Viceroy Xiong, and then..."
 
-"But he is in the city; how do we catch him?"
+"But he's inside the city—how do we seize him?"
 
-"So I say, we sneak attack, 'raid the bed'." Gou Xunli said, "We only have this many people in total. Don't think about conquering Wuzhou and looting for three days. But sneaking into Wuzhou and kidnapping this True Bald out is not without opportunity."
+"Hence my proposal: sneak attack, a 'bed raid.'" Gou Xunli explained, "Our total forces limit our options. Don't fantasize about conquering Wuzhou and looting for three days. Infiltrating Wuzhou and kidnapping this True Bald, however—that presents genuine opportunity."
 
-This idea was daring to the extreme. Rotten-Eye Hu was stunned for a moment. However, thinking it over, the temptation of this spoil of war was indeed too great—so far, in the battles between the Imperial Court and the Bald Thieves, let alone catching a True Bald, not even a Fake Bald leader had been killed in battle. Once a True Bald was captured and presented to the Court, this credit would absolutely not be small. Moreover, True Balds and Fake Balds differ greatly in temperament and image; they are hard to impersonate, so there was no need to worry about Xiong Wencan not believing it.
+The audacity staggered comprehension. Rotten-Eye Hu stood momentarily stunned. Yet contemplating the prize's magnitude, temptation proved overwhelming—thus far in battles between Imperial Court and Bald Thieves, never mind capturing True Balds, not even a single Fake Bald leader had fallen in combat. Capturing and presenting a True Bald to the Court would constitute merit of extraordinary magnitude. Moreover, True Balds and Fake Balds differed dramatically in temperament and appearance, rendering impersonation impossible—no concern about Xiong Wencan's disbelief existed.
 
-"Brother's idea works! Just that he is inside Wuzhou city and must be guarded by heavy troops. How do we start?"
+"Brother's scheme shows merit! Yet he resides within Wuzhou under heavy guard. How do we commence?"
 
-"I entered the city a few days ago and have thoroughly understood the situation inside. This Bald Thief Director, upon arriving in the city, is busy with irrelevant matters and doesn't care about military preparations. Instead, he paints words on walls every day, asks people to sing and speak on the streets to engage in some 'propaganda' to confuse the people; asks merchants to open for business to 'prosper the market,' and is anxious to gather large sums of money to 'repair bridges and fix roads'—set on being a Lord of a Hundred Li. He doesn't care much about military preparations alone. This is an opportunity we can take advantage of..."
+"I entered the city days ago and thoroughly assessed conditions. This Bald Thief Director, upon arrival, busies himself with irrelevancies while neglecting military preparations. Instead he paints slogans on walls daily, dispatches people singing and speechifying through streets pursuing 'propaganda' to deceive common folk; commands merchants to open businesses 'prospering the market,' and frantically raises funds for 'bridge repairs and road maintenance'—determined to play Lord of a Hundred Li. Military preparations alone receive scant attention. This constitutes exploitable opportunity..."
 
-"Which year were you a soldier?" Qian Duo asked Zhu Si on the way to the command post.
+---
 
-The Senate's army, inevitably like all armies in the world, liked to rank by seniority. Which year you were a soldier could roughly determine your status.
+"Which year did you enlist?" Qian Duo inquired of Zhu Si en route to command post.
 
-The sources of National Army soldiers were naturally wide and varied, but the officer class was invariably from the Fubo Army. Zhu Si was no exception. He immediately answered crisply: "Report! I was originally a camp soldier of the Denglai Town of the Ming State. I joined the army in 1632 through Battalion Commander Huang Ande's introduction while serving in the Shandong Detachment. Upon enlistment, I belonged to the Forward Column of the Shandong Detachment."
+The Senate's military, inevitably resembling all armies worldwide, privileged seniority. Enlistment year roughly determined one's status.
 
-"Oh, so you're a veteran too." Qian Duo nodded. "Where did you serve before transferring to the National Army?"
+National Army recruitment naturally drew from diverse sources, yet the officer corps invariably originated from the Fubo Army. Zhu Si proved no exception. He answered crisply: "Report! Originally a camp soldier of Ming State's Denglai Town garrison. Enlisted in 1632 through Battalion Commander Huang Ande's introduction while serving the Shandong Detachment. Upon enlistment, assigned to the Shandong Detachment's Forward Column."
 
-"Served in the Lingao Garrison Battalion." Zhu Si was very proud of this resume: although the Lingao Garrison Battalion had limited strength, it was the unit defending the capital and the Senate. The officers and soldiers inside all considered themselves the "Imperial Guards."
+"Ah, a veteran then." Qian Duo nodded. "Where did you serve before transferring to National Army?"
+
+"Served in the Lingao Garrison Battalion." Pride colored Zhu Si's resume: though the Lingao Garrison Battalion maintained limited strength, it constituted the unit defending both capital and Senate. All officers and soldiers within considered themselves the "Imperial Guards."
 
 "What rank?"
 
@@ -70,14 +72,73 @@ Zhu Si was secretly alarmed seeing this deployment map. The defense of Wuzhou wa
 
 "In addition, we have to guard the Sanhezui POW camp. The prisoners in this camp haven't been transferred completely yet. There are currently about a thousand people—although we used some retained bailiffs to guard them, without our troops anchoring the formation, the strong-arm bailiffs simply can't suppresses these old soldier rascals."
 
-"I understand. Please instruct, Sir. What is our battalion's mission?"
+Zhu Quanxing's 2nd Battalion held quarters in the original Ming garrison camp near Ximatan, west of Wuzhou Prefecture. Before Wuzhou's fall, this site had hosted the government's Guangxi Guard Battalion plus two thousand surrendered Wolf-Zhuang troops and Yao braves. 
 
-"Your mission is to replace the 3rd Line Infantry Company in assuming the city-wide security mission. This way, I can concentrate the 3rd Company as a fist, ready to be used at any time—you probably discovered on the way here that the environment along the route is very complex. To our west are the Guangxi Ming troops of Xiong Wencan still entrenched in Teng County, and around us are countless Yao and Zhuang stockades. The situation is very unfavorable to us. We have to deal with possible attacks anytime and anywhere."
+The 2nd Battalion had endured considerable casualties during the assault on Wuzhou. Following battle, all companies had drawn Cantonese recruits as replacements. These reinforcements currently necessitated training. Consequently, the battalion hadn't marched to accept surrendered counties immediately, instead remaining stationed here for reorganization.
 
-"Yes! Guaranteed to complete the mission!" Zhu Si had roughly understood the situation before coming to Wuzhou. He was from the old camp army and wasn't afraid of being a soldier and fighting battles—as long as there was money to take and promotion to get. Those years in the Garrison Battalion had stifled him: standing guard, escorting, and practicing formation every day. When could he accumulate enough credit to become an officer?
+Personnel naturally exceeded camp capacity. Zhu Quanxing retained only the battalion headquarters, Guard Company, and quartermaster department. Other line companies dispersed throughout Gu County, Limeng County, and Fuyang County to receive surrendering magistrates while simultaneously conducting reorganization training.
 
-Transferring to the National Army, although it was more than three promotions, the National Army wasn't considered a regular army, and did chores. Zhu Si was quite disheartened. Until he heard he was going to the front line, he got his spirit back. Not only was he not afraid, but he also had some secret delight: following the Senate to fight rarely resulted in death, but opportunities to earn merit were numerous.
+Despite their dispersal, companies maintained rapid response capability. The main road traversing the drill field passed Cangwu County before following the West River into Guangxi via waterways. Wuzhou city lay merely six *li* distant—even carrying sixty-*jin* packs during emergency drill, the battalion could reach Wuzhou within half an hour's forced march at double-time pace,
 
+though such grinding pace would leave men utterly exhausted. Combat effectiveness upon arrival would prove questionable.
+
+Nevertheless, Zhu Quanxing trusted Wuzhou's security completely. The city had withstood prolonged attacks from tens of thousands of Ming troops. Though the 2nd Battalion had breached its gates, that triumph owed largely to the new "conical explosive" bombs—had the defenders' morale held firm, capturing Wuzhou would have proven far costlier, if achievable at all.
+
+Presently, the Senate stationed a full Fubo Army company within Wuzhou (nearly one hundred forty men when at full establishment); another National Army battalion provided city defense (nominally three hundred thirty-two men, though actual numbers might fall short); plus over one hundred "militia" and labor teams numbering between eight hundred and a thousand. With such garrison strength, attempting an attack demanded at...
+
+*Wait—I should think through this properly.* Zhu Quanxing paused in sudden uncertainty. *If the enemy attacks Wuzhou, can Qian Duo and Xie Erren manage effective defense?*
+
+In his view, both the National Army battalion and the company led by Qian Duo could be relied upon tactically. Yet would that suffice? He possessed no clear answer.
+
+*If enemy forces surpass five thousand and display willingness to sustain casualties, Wuzhou won't hold.* he concluded with some pessimism.
+
+Fortunately, enemy main forces remained concentrated in Teng County. Attempting a Wuzhou offensive would require considerable coordination; they couldn't simply materialize at the gates. Intelligence networks would provide advance warning of any major movements.
+
+Consequently, recent days had found Zhu Quanxing worrying less about Wuzhou's security than about training his newly absorbed Cantonese recruits properly.
+
+The 2nd Battalion had suffered relatively minor casualties during the Wuzhou assault—approximately forty killed, significantly fewer than losses endured storming the Shi'ao Fort. However, the Senate couldn't dispatch naturalized replacement troops in time. Zhu Quanxing could only accept several hundred Cantonese recruits allocated by Zhaoqing's recruitment office into his ranks.
+
+These recruits had undergone minimal physical conditioning and political education in Zhaoqing before being dispersed among companies. Each company also received four to five naturalized cadres as officers. Beyond that, Zhu Quanxing could expect nothing further.
+
+Half the troops being newly conscripted Cantonese represented the 2nd Battalion's present reality. How to train these soldiers and integrate them with veteran naturalized troops posed Zhu Quanxing's primary headache.
+
+He'd concluded that mixing green recruits with veterans within the same squad proved unworkable. Presently, the 2nd Battalion employed a formation of ten-man squads, with three squads comprising a platoon. Each veteran squad carried formidable combat power—designating a recruit as squad leader while assigning eight green troops under his command would merely waste the veteran's capabilities.
+
+Yet concentrating new recruits into dedicated squads also presented problems. Lacking veteran backbone, such squads would require veteran officers. This created a cascading shortage—using veterans as officers for recruit squads deprived veteran squads of their own cadres.
+
+Ultimately, Zhu Quanxing decided distributing Cantonese recruits at platoon level offered the best approach. Each company would establish one "recruit platoon" commanded by a veteran officer. Recruit platoons would then be subdivided into three squads, with veteran NCOs leading each squad.
+
+This framework theoretically provided sufficient veteran personnel. However, it substantially diminished each company's combat effectiveness—essentially rendering one-third of every company uncommittable to battle.
+
+Though disappointed, Zhu Quanxing recognized no superior alternatives existed. Moreover, Military Command had emphasized that following Wuzhou's capture, the Senate's primary Guangdong focus would shift toward consolidation. Large-scale combat operations seemed unlikely.
+
+The greater concern involved the newly emergent Yao uprising.
+
+This "Yao Rebellion" had erupted with startling rapidity. Initially, local Yao had merely "stirred uneasily"—a common enough pattern. When two counties along the West River reported Yao disturbances, Zhu Quanxing's initial response had been dismissing it as hyperbole. Han villages and gentry routinely exaggerated minor Yao activities. During the Ming Dynasty, whenever government demanded "Yao suppression funds and provisions," local Yao populations magically swelled to three or four times actual numbers, with fabricated accounts of Yao forces descending from mountains besieging county seats.
+
+This systematic fraud persisted for one simple reason: exaggerating Yao threats enabled Han landlords and officials to embezzle resources while simultaneously oppressing Yao peoples, conscripting laborers, and confiscating property under "suppression" pretexts.
+
+Yet within half a month, reports of Yao uprisings proliferated across counties and prefectures. "Military urgency" dispatches flooded in from multiple directions. The scope and intensity far exceeded what local Han gentry could fabricate for mere embezzlement purposes.
+
+Only then did Zhu Quanxing recognize this uprising's authentic scale. He immediately dispatched reconnaissance teams for field investigation.
+
+The intelligence they returned proved alarming: not merely Yao peoples, but ethnic minorities throughout the region—Zhuang, Yao, and others—appeared to be mobilizing in coordinated fashion.
+
+Zhu Quanxing had confronted Yao forces before. During his deployment to Lianzhou, he'd led campaigns against rebelling Yao. He knew from experience that Yao fighters, though brave and fierce, typically operated through guerrilla tactics: sudden raids on villages, quick strikes, and immediate mountain retreats. They rarely assembled in concentrations exceeding several hundred.
+
+This uprising exhibited different characteristics entirely. Yao forces were concentrating into formations of thousands. They'd begun constructing fortifications and establishing supply lines. This represented strategic sophistication far beyond traditional Yao tactics.
+
+*Someone's organizing them,* Zhu Quanxing thought with growing unease. Prior Yao rebellions had been suppressed relatively easily because the Yao fought as isolated stockades and villages, unable to coordinate effectively. United Yao resistance, however, could transform into genuine strategic threat.
+
+Worse, intelligence suggested participation might extend beyond Yao populations. Dispersed Ming army remnants, bandits, even disaffected Han gentry—all potentially joining this coalition against Australian authority.
+
+*If handled improperly, this could spiral beyond containment,* Zhu Quanxing reflected grimly. Half his battalion consisted of barely trained recruits. Operating in unfamiliar mountainous terrain against guerrilla forces represented the worst possible scenario for his unit's capabilities.
+
+Nevertheless, Zhu Quanxing recognized inaction was impossible. The West River constituted the Senate's strategic lifeline to Guangxi. Allowing Yao forces to control the riverbanks would sever communications and logistics between Lingao and Wuzhou, potentially collapsing the entire western campaign.
+
+He'd need to act decisively—but intelligently. Rushing inadequately prepared forces into mountain warfare would accomplish nothing beyond wasting lives and emboldening rebel movements.
+
+Zhu Quanxing extracted his operational map and studied the terrain intently. The forthcoming campaign would demand meticulous planning.
 "Good, come look." Qian Duo pointed on the map with a red and blue pencil:
 
 "Our current position is the Cangwu County Yamen, and next to it is the Wuzhou Prefecture Yamen—that is, the new City Government. Chief Xie and the entire City Government team are here, so this area is our defense focus."

@@ -1,175 +1,175 @@
 # Chapter 2330 - Going to Wuzhou (IX)
 
-"... The first time Director Xie suggested sending a letter, I actually refused. I always felt he was a good person; even if he was Xiong Wencan's staff, he wouldn't do anything bad. Should give him a chance. This was completely my carelessness." Luo Yangming said with a tone of regret, "By the time it was sent the second time, the riot broke out before the reply came."
+"...The first time Director Xie suggested sending an inquiry letter, I actually refused. I'd always thought he was a good man—even if he was Xiong Wencan's staff, surely he wouldn't do anything truly harmful. I wanted to give him a chance. That was careless of me." Luo Yangming's voice carried unmistakable regret. "By the time the second letter was proposed, the riot broke out before any reply could arrive."
 
-"An external investigation letter for Yi Haoran was sent from Wuzhou?" Chen Baibin felt strange because this matter wasn't mentioned in the case materials.
+"An external inquiry letter about Yi Haoran was sent from Wuzhou?" Chen Baibin found this strange—the case materials made no mention of it.
 
-"I reported to Director Xie. Director Xie proposed sending a letter, I agreed. The letter was sent through Xie's Office."
+"I reported the matter to Director Xie. He proposed sending the letter, I agreed. It was dispatched through Xie's Office."
 
-He was a hidden cadre in Wuzhou. Except for secret reporting, he had no power to send official documents and had to go through other departments.
+As a covert operative stationed in Wuzhou, Luo Yangming had no authority to send official correspondence except through secret channels—all other documents had to go through the proper departments.
 
-"That means you don't know whether the external investigation letter was sent or not?"
+"So you have no way of knowing whether the inquiry letter was actually sent?"
 
-"Yes, I indeed haven't seen the letter. But there was indeed such a thing. Because I waited for the reply for a long time without result, I asked Director Zhao. Director Zhao even specially checked the reply registration book..."
+"Correct. I never saw the letter myself. But the request was definitely made. When I'd waited a long time without receiving any reply, I asked Director Zhao about it. He even checked the response registration book specifically..."
 
 "How long did you wait?"
 
-"From Director Xie saying send the item to me asking, roughly half a month."
+"From when Director Xie said he'd send the letter to when I finally asked—roughly half a month."
 
-Ji and Chen looked at each other. This was fishy. Hard to say if this matter was forgotten by Xie Erren or Zhao Fengtian—of course, few people and many matters in Wuzhou, forgetting was excusable. But from Zhao Fengtian's action, the external investigation letter should exist.
+Ji and Chen exchanged glances. Something was amiss here. Whether Xie Erren or Zhao Fengtian had forgotten about it was hard to say—granted, with so few personnel and so much work in Wuzhou, such oversights were forgivable. But judging from Zhao Fengtian's actions, the inquiry letter should have existed.
 
-Then how did it disappear?
+So how had it vanished?
 
-"Talk about Cai Lan and Jiang Qiuchan."
+"Tell us about Cai Lan and Jiang Qiuchan."
 
-"I don't know Cai Lan personally, only know her fiancé was a Ming scholar who died in Wuzhou. She went to assassinate Director Xie for revenge. Before and after this, I had no contact with her, nor can talk about any views."
+"I don't know Cai Lan personally. I only know her fiancé was a Ming scholar who died in Wuzhou, and she attempted to assassinate Director Xie in revenge. I had no contact with her before or after the incident, so I can't offer any insights."
 
-"What role was she beside Xie Erren?"
+"What role did she serve beside Xie Erren?"
 
-Luo Yangming said: "She had no specific official duty, counted as Director Xie's maid-concubine. Usually living seclusively in San Zong Fu, almost never stepping out."
+"She held no official position," Luo Yangming said. "She was essentially Director Xie's maid-concubine. She lived in seclusion at San Zong Fu and almost never left the grounds."
 
-"What about Jiang Qiuchan?"
+"And Jiang Qiuchan?"
 
-"She is my wife's boudoir close friend, usually discussing everything. Sometimes also picks up Ding Atao to stay at her home for a short time. Just a young lady of an ordinary merchant family. Nothing special. Later recommended by someone to enter San Zong Fu, said to be keeping Cai Lan company to relieve boredom. Her son Qi Liheng was sent to me every day, taught by Yi Haoran."
+"She's my wife's closest friend—they confide in each other about everything. Sometimes she'd take Ding Atao to stay with her for short visits. She's just a young lady from an ordinary merchant family. Nothing remarkable about her. Later, someone recommended her to San Zong Fu to keep Cai Lan company and ease her loneliness. Her son Qi Liheng was brought to me daily to be tutored by Yi Haoran."
 
-These situations were all they had mastered. Luo Yangming didn't provide any new situation either.
+All of this matched what they'd already gathered. Luo Yangming offered nothing new.
 
-"Repeat the things that happened on the night of the riot again."
+"Go through the events of the riot night again."
 
-"Yes," Luo Yangming dared not neglect, thought carefully, and started from when he checked for the reply without result, Zhao Fengtian proposed arresting Yi Haoran, returning then Yi Haoran was arrested, detailing his personal experience and what he heard and saw that night.
+"Yes." Luo Yangming was careful not to rush, gathering his thoughts before beginning. He started from when he'd checked on the reply without success, how Zhao Fengtian proposed arresting Yi Haoran, and his return to find Yi Haoran already detained. He detailed his personal experience and everything he witnessed that night.
 
-Chen Baibin looked at Ji Xin. Ji Xin shook his head. Chen Baibin said: "Hard work for you today. You go to work first. Will find you for follow-up if there are things."
+Chen Baibin glanced at Ji Xin, who shook his head. "Thank you for your time today," Chen Baibin said. "You may return to work. We'll contact you if we have follow-up questions."
 
-"Yes."
+"Understood."
 
-"Do you have any thoughts about your own work? Have you considered transfer or changing jobs?" Ji Xin suddenly asked.
+"Do you have any thoughts about your current assignment?" Ji Xin asked suddenly. "Have you considered a transfer or change of position?"
 
-"Everything listens to the Senate's arrangement. I personally have no special request."
+"I defer entirely to the Senate's arrangements. I have no special requests."
 
-As soon as Luo Yangming went out, Chen Baibin said: "Director Ji! This external investigation letter seems to be the key!"
+As soon as Luo Yangming departed, Chen Baibin said, "Director Ji! This inquiry letter seems like the key to everything!"
 
-Ji Xin nodded: "An external investigation letter involving Yi Haoran, why did Senator Xie keep it secretive? This is truly a strange thing!"
+Ji Xin nodded. "An inquiry letter concerning Yi Haoran—why would Senator Xie keep it secret? That's truly strange."
 
-"Could it be Teng County sent a reply, but it was detained for some reason?"
+"Could it be that Teng County sent a reply, but someone detained it?"
 
-"Why detain it? This doesn't make sense." Ji Xin said, "Senator Xie is a Senator, without any human relationship ties in this spacetime. He cannot have any connection with this Yi Haoran, let alone take this risk. If he wanted to protect Yi Haoran for some reason, why propose dragging him out (investigating him) twice?"
+"Why would anyone detain it? That makes no sense." Ji Xin shook his head. "Senator Xie is a Senator with no connections or entanglements in this era. He couldn't possibly have any link to this Yi Haoran, let alone take such a risk. If he wanted to protect Yi Haoran for some reason, why would he twice propose investigating the man?"
 
-"We can easily check clearly the issue of the reply. Just send a letter to Teng County to investigate immediately." Chen Baibin said, "Actually checking the sending and receiving registration here can also find it."
+"We can easily verify whether a reply was sent. We simply need to send an inquiry to Teng County," Chen Baibin said. "We could also check the dispatch and receipt logs here."
 
-"I'm afraid this registration is already incomplete." Ji Xin said, "Never mind, you go fetch it to check."
+"I fear those records are already incomplete." Ji Xin sighed. "Never mind—go fetch them and see."
 
-Chen Baibin went to the City Government immediately. The result was exactly as Ji Xin estimated. The sending and receiving registration book suffered collateral damage on the night of the riot; a part was destroyed. From the preserved part, there was no relevant registration number.
+Chen Baibin went to the City Government immediately. The result was exactly as Ji Xin predicted: the dispatch and receipt logs had suffered collateral damage on the night of the riot, with portions destroyed. Among the surviving records, there was no relevant entry.
 
-Next, they interrogated Zhao Fengtian. Zhao Fengtian's attitude was calm, answering relevant questions in full detail. When asked "What specific work was Cai Lan responsible for in San Zong Fu", Zhao Fengtian smiled and said:
+Next, they interrogated Zhao Fengtian. His demeanor was composed, and he answered all their questions in full. When asked "What specific duties was Cai Lan responsible for in San Zong Fu," Zhao Fengtian smiled and said:
 
-"Chief, speaking of specific work, probably just serving Chief Xie."
+"Chief, speaking of specific duties—probably just serving Chief Xie."
 
-Although the relationship between Cai Lan and Xie Erren was counted as "known to all" in Wuzhou, this City Government Secretary, Xie Erren's direct line cadre, was actually so frank, completely not speaking according to the report's tone, which was somewhat out of Chen Baibin's expectation. He originally thought there would mostly be some quibbling.
+Although the relationship between Cai Lan and Xie Erren was something of an open secret in Wuzhou, Chen Baibin hadn't expected this City Government Secretary, one of Xie Erren's direct subordinates, to be so candid—completely abandoning the careful phrasing of the official report. He'd anticipated at least some hedging.
 
-"Do you know that a status like Cai Lan remaining by the Senator's side is very dangerous? Also not compliant with regulations."
+"Are you aware that keeping someone with Cai Lan's background at the Senator's side is extremely dangerous? It also violates regulations."
 
-"I know." Zhao Fengtian said frankly, "But I cannot go against the Chief's will."
+"I'm aware," Zhao Fengtian said frankly. "But I couldn't go against the Chief's wishes."
 
-*Good guy,* Chen Baibin thought, *you dump the pot (shift blame) cleanly. Ji Xin considered for you in vain.*
+*Well played,* Chen Baibin thought. *You've shifted the blame quite neatly. And here Ji Xin was trying to protect you.*
 
-"Since you worked by Senator Xie's side for a long time, definitely had more contact with Cai Lan. Talk about your view on her."
+"Since you worked closely with Senator Xie for an extended period, you must have had considerable contact with Cai Lan. Tell us your impression of her."
 
-"A lonely and helpless little woman, what is there to say much." Zhao Fengtian sighed, "Speaking of which her background is also truly pitiful. 'Background drifting like duckweed in rain', just a bitter person drifting with the waves!"
+"A lonely, helpless young woman—what is there to say?" Zhao Fengtian sighed. "Her background is truly pitiable. 'Drifting like duckweed in the rain'—just a bitter soul carried along by the waves."
 
-"You are quite good at pitying fragrance and cherishing jade."
+"Quite the romantic sensibility."
 
-"No, no, I just sigh." Zhao Fengtian said, "Cai Lan in San Zong Fu, usually almost never went out. Except sometimes speaking a few words to Cai Lan (sic - probably meant Jiang Qiuchan or maid) beside her, sometimes didn't say a word all day. Pastime was just painting and playing chess. If Chief Xie went to her place, she served Chief Xie. If not, she didn't even go out of the main room, most quiet and duty-bound."
+"Not at all—I merely sigh at her fate," Zhao Fengtian said. "Cai Lan rarely left San Zong Fu. Except for occasionally exchanging a few words with her companion, sometimes she wouldn't speak a word all day. Her only pastimes were painting and chess. When Chief Xie visited her, she attended to him. When he didn't, she never left the main room. Quiet and dutiful to a fault."
 
-"Did she have contact with Senator Xie's documents?" Ji Xin suddenly asked.
+"Did she have access to Senator Xie's documents?" Ji Xin asked suddenly.
 
-"According to rules, Chief's documents are kept in the office. Carrying them around also requires putting in the confidential document box. All done according to rules."
+"According to regulations, the Chief's documents are kept in the office. Any documents being transported must be placed in the secure document case. Everything was done by the book."
 
-"Did Senator Xie bring documents or confidential document box when going to Cai Lan's place?"
+"Did Senator Xie bring documents or the secure case when visiting Cai Lan?"
 
-"No." Zhao Fengtian thought for a while, "At least I haven't seen it."
+"No." Zhao Fengtian thought for a moment. "At least, I never saw him do so."
 
-"Did you handle an external investigation letter about Hao Ran—that is Yi Haoran? Recipient should be Teng County Police Station."
+"Did you handle an inquiry letter about Hao Ran—that is, Yi Haoran? The recipient would have been Teng County Police Station."
 
-"Handled." Zhao Fengtian nodded without hesitation, "This was what Director Xie instructed me to handle back then."
+"I did." Zhao Fengtian nodded without hesitation. "Director Xie instructed me to handle it."
 
-"And after handling?"
+"And after handling it?"
 
-"Handed over to be sent according to process."
+"I passed it along for dispatch according to standard procedure."
 
-"Do you still remember the serial number?"
+"Do you remember the file number?"
 
-"This I definitely can't remember clearly. Too many documents handled every day."
+"I definitely can't recall. I process too many documents daily."
 
-"Are you sure this document was sent?" Ji Xin asked.
+"Are you certain this document was sent?" Ji Xin asked.
 
-A trace of panic appeared in Zhao Fengtian's eyes, which didn't escape Chen Baibin and Ji Xin's eyes: "Should have been sent."
+A trace of panic flickered in Zhao Fengtian's eyes—a flicker that didn't escape either Chen Baibin or Ji Xin. "It should have been sent."
 
-"Tell us what your document sending process is like?"
+"Walk us through your document dispatch procedure."
 
-"All done according to the General Office's process." Zhao Fengtian said, "After drafting, hand to the leader of the corresponding department to sign agreement, hand to sending and receiving department to send."
+"Everything follows the General Office's standard process," Zhao Fengtian said. "After drafting, I hand it to the relevant department head for approval, then pass it to the dispatch office for sending."
 
-"Who should have signed this external investigation letter?"
+"Who should have signed off on this inquiry letter?"
 
-"It was Senator Xie who signed."
+"Senator Xie himself."
 
-"Did he sign?"
+"Did he sign it?"
 
-"Should have signed." Zhao Fengtian looked blank, "If not signed, it would be returned to me. This is all recorded."
+"He should have." Zhao Fengtian looked puzzled. "If he hadn't, it would have been returned to me. All of this is recorded."
 
-*Recorded my ass!* Chen Baibin thought, *your record books are destroyed to pieces.* He now confirmed in his heart: there was a ghost on this external investigation document!
+*Recorded my ass!* Chen Baibin thought. *Your records have been destroyed.* He was now certain: something was wrong with this inquiry letter.
 
-"Who was responsible for document sending and receiving?"
+"Who was responsible for document dispatch and receipt?"
 
-"By right there should be a dedicated confidential clerk responsible, but naturalized cadres were insufficient in Wuzhou, so Senator Xie's Security Secretary was responsible for sending and receiving registration."
+"There should have been a dedicated confidential clerk, but Wuzhou lacked sufficient naturalized cadres. So Senator Xie's Security Secretary handled the dispatch and receipt logs."
 
-Ji Xin couldn't help smiling. Chen Baibin also smiled: Some people really died in time, died in the right place!
+Ji Xin couldn't help smiling. Chen Baibin smiled too: Some people certainly died at a convenient time, in a convenient place.
 
-Zhao Fengtian showed a scared expression instead, saying: "Two chiefs, this... implies... is there anything funny?"
+Zhao Fengtian looked alarmed instead. "Sirs, what... does this imply? Is something amusing?"
 
-"Nothing, nothing." Chen Baibin patted Zhao Fengtian's shoulder, "You go back first."
+"Nothing, nothing." Chen Baibin patted Zhao Fengtian's shoulder. "You may go for now."
 
-The last one summoned was Zheng Ergen.
+The last person summoned was Zheng Ergen.
 
-After he came in and saluted, he looked at Ji Xin eagerly, revealing a suspicious expression on his face.
+After entering and saluting, he looked at Ji Xin with an eager, somewhat suspicious expression.
 
-Chen Baibin spoke a few sentences with him simply, finding a feeling of trembling with fear, walking on thin ice from him. Obviously, his cultivation was far inferior to Zhao Fengtian.
+Chen Baibin exchanged a few words with him and sensed immediately that the man was walking on eggshells, terrified of saying the wrong thing. His composure was clearly far inferior to Zhao Fengtian's.
 
-But the things he could know were inevitably much fewer than Zhao Fengtian. Chen Baibin simply asked him some things about Wuzhou's police work and the situation on the day of the riot, then asked about Yi Haoran's external investigation letter.
+But Zheng Ergen inevitably knew far less than Zhao Fengtian. Chen Baibin simply asked him some questions about Wuzhou's police work and the situation on the day of the riot, then inquired about Yi Haoran's inquiry letter.
 
-Zheng Ergen said he didn't know about the external investigation letter, but he handled the arrest of Yi Haoran that night.
+Zheng Ergen said he knew nothing about the inquiry letter, but he had handled the arrest of Yi Haoran that night.
 
 "Who gave the order?"
 
-"It was Director Zhao who ordered. He said this person had great suspicion. Protective detention first."
+"Director Zhao. He said this person was highly suspicious. Protective detention first."
 
-"Did he say what specific suspicion?"
+"Did he specify what the suspicion was?"
 
 "No."
 
-"I see in the material, you later arrested Cai Lan too. Who gave the order?"
+"I see from the materials that you also arrested Cai Lan. Who ordered that?"
 
 "Also Director Zhao."
 
 "Why arrest her?"
 
-"Said she might have collusion with rioting enemies. Later according to investigation she indeed had collusion with Yi Haoran—contacting through Jiang Qiuchan." Zheng Ergen said.
+"He said she might have been colluding with the rioters. Later investigation confirmed she indeed had connections to Yi Haoran—through Jiang Qiuchan," Zheng Ergen said.
 
-"Do you know the relationship between Senator Xie and Cai Lan?"
+"Did you know about the relationship between Senator Xie and Cai Lan?"
 
-"Know, know." Zheng Ergen nodded repeatedly.
+"Yes, yes." Zheng Ergen nodded repeatedly.
 
-"Why not report to superiors?" Chen Baibin asked again, "Placing such a person by the Chief's couch side, the risk is very big."
+"Why didn't you report it to your superiors?" Chen Baibin pressed. "Keeping such a person at the Chief's side poses enormous risk."
 
-"Chief! I am a small bureau director, how does a Senator's matter turn to me to interrupt?" Zheng Ergen put on a bitter melon face, "Senator's matters, I dare not mix in."
+"Chief! I'm just a minor bureau director—how is it my place to interfere in a Senator's affairs?" Zheng Ergen's face twisted with distress. "I wouldn't dare meddle in a Senator's private matters."
 
-"How did you arrange her after Cai Lan was arrested?"
+"After Cai Lan was arrested, how was she handled?"
 
-"Detained in the County Yamen Earth God Temple, guarded by special personnel."
+"She was detained in the Earth God Temple at the County Yamen, under special guard."
 
 "How did she die?"
 
-"Hanged herself. She suffered quite some bitterness when we interrogated, probably couldn't endure the torture, fearing suffering in pieces again, simply ended it all." Zheng Ergen seemed afraid they wouldn't believe, added, "Remains haven't been buried yet, can open coffin for autopsy anytime..."
+"Hanged herself. She suffered considerably during interrogation. Probably couldn't bear the thought of more torture, so she simply ended it." Zheng Ergen seemed afraid they wouldn't believe him. "The remains haven't been buried yet. We can open the coffin for autopsy anytime..."
 
-Chen Baibin thought *the result of autopsy, death by hanging is probably certain, just how she hanged is hard to say.*
+*The autopsy would confirm death by hanging,* Chen Baibin thought. *But how she came to hang—that's another matter entirely.*
 
 **(End of Chapter)**

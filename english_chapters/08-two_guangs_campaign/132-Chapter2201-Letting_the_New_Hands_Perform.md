@@ -6,17 +6,17 @@ He established his headquarters in Lianzhou, making it the base for the Lianyang
 
 Under his direction, a five-member governing committee was formed to administer Lianzhou city. The committee comprised three local gentry—Mo Jin, Zeng Rushao, and Ma Tiyi—and two naturalized cadres: Fu Debang, the Lianzhou Governor, and Zhang Dayong, commander of the Lianzhou National Army Squadron.
 
-The committee's authority was limited to Lianzhou city itself, responsible for maintaining law and order and overseeing retained Ming clerks.
+The committee's authority was limited to Lianzhou city itself, responsible for maintaining law and order and overseeing the retained Ming clerks.
 
 As for the surrounding countryside, they could only maintain the status quo and allow village self-governance for the time being. The most urgent priority was "pacification and public security." Without stability, nothing else could be accomplished.
 
-Cui Shizhao was still recuperating. Upon entering Lianzhou, Huang Chao had heard that his suicide attempt had failed and counted himself fortunate. According to the army medic, the cause was unclear, but Cui's symptoms indicated "acute food poisoning"—likely the result of some protein in his "supreme-grade Crane's Crest" having spoiled.
+Cui Shizhao was still recuperating. Upon entering Lianzhou, Huang Chao had heard that his suicide attempt had failed, and he counted himself fortunate. According to the army medic, the cause was unclear, but Cui's symptoms indicated "acute food poisoning"—likely the result of some protein in his "supreme-grade Crane's Crest" having spoiled.
 
 "...My instructor says this kind of food poisoning is often extremely dangerous—sudden onset, high mortality, and few treatment options. But he's past the acute phase now. With proper rest and electrolyte correction, he should recover."
 
 In reality, the medic's only remedies were oral glucose rehydration solution and saline—Cui Shizhao had pulled through on the strength of his constitution.
 
-Huang Chao visited several times but received no warm welcome. Putting a warm face to a cold behind, he cursed inwardly—but considering Cui Shizhao's influence in the region, the man had value worth exploiting. So he continued to drop in every few days to "pay his respects."
+Huang Chao visited several times but received no warm welcome. Putting a warm face to a cold reception, he cursed inwardly—but considering Cui Shizhao's influence in the region, the man had value worth exploiting. So he continued to drop in every few days to "pay his respects."
 
 Cui Shizhao had been moved to Ma Tiyi's residence. Leaving him at the yamen was inconvenient; worse, if he recovered only to be seized by melancholy and attempt suicide again, it was better to place him in a friend's home where Ma Tiyi could look after him. Huang Chao had too many matters to manage personally.
 
@@ -32,7 +32,7 @@ Huang Chao, by comparison, was relatively at leisure. At the yamen, he screened 
 
 News of the clerk purge in Guangzhou had already reached the city; many of the "Three Squads" runners had fled. Those with the worst records were almost all gone—though it deprived him of the satisfaction of "ridding the people of scourges," it also spared him the bother of "cleaning house." Some who remained voluntarily requested "retirement," and Huang Chao did not press them to stay. Those willing to serve the Council of Elders had their names posted on the spirit wall outside the yamen.
 
-The Lianzhou yamen was reorganized according to the "1635 Edition Provisional County Institutional Framework." A General Affairs Section was established within the county government, handling administrative matters as well as personnel appointments. The Revenue Division was transformed into the Finance and Taxation Section—a vertically managed unit. And finally, there was the Public Security Section, responsible for order within and without the prefectural seat.
+The Lianzhou yamen was reorganized according to the "1635 Edition Provisional County Institutional Framework." A General Affairs Section was established within the county government, handling administrative matters as well as personnel appointments. The Revenue Division was transformed into the Finance and Taxation Section—a vertically managed unit. Finally, there was the Public Security Section, responsible for order within and without the prefectural seat.
 
 Because conditions in the newly liberated counties remained unsettled, full-fledged county police departments could not yet be established. A provisional Public Security Section was created instead, integrating all security forces—village militia organized by local stockades, retained constables, National Army squadrons, and police—under unified command. Household registration, formerly managed by the old yamen, was temporarily assigned to this section.
 
@@ -54,7 +54,7 @@ Wall repairs naturally followed their customary work-for-relief model. Fortunate
 
 And so the job was delegated to Zhou Liangchen. Zhou had been feeling anxious with nothing to do. Now, entrusted with something as significant as wall repairs, he threw himself into the work with gusto, camping at the site day and night. In less than a week, the walls were restored—much to Huang Chao's surprise.
 
-He had assumed that a bookish scholar like Zhou would be hopeless at practical affairs and unwilling to do manual labor. But Zhou's performance on the construction site exceeded all expectations. Although he did not personally haul earth or carry bricks, coordinating over a hundred workers was no small feat—some Elders still could not handle management positions.
+He had assumed that a bookish scholar like Zhou would be hopeless at practical affairs and unwilling to do manual labor. But Zhou's performance on the construction site exceeded all expectations. Although he did not personally haul earth or carry bricks, coordinating over a hundred workers was no small feat—some Elders still couldn't handle management positions.
 
 Though Zhou's defection had an opportunistic flavor, his administrative ability was solid. He was a man worth using.
 
@@ -70,7 +70,7 @@ Though phrased as a consultation, Zhou Liangchen understood that once his wife a
 
 A few days later, Peng Shou'an and a National Army platoon arrived in Lianzhou, escorting the families of the Yangshan officials who had surrendered.
 
-Though nominally an advisor in Yangshan, Peng Shou'an had in fact been given no concrete work. Content to take it easy, he had spent his days reading and writing, growing fair-skinned. The order puzzled him—why suddenly transport all the families to Lianzhou? Perhaps Elder Huang intended to hold them hostage under centralized guard, to prevent defections?
+Though nominally an advisor in Yangshan, Peng Shou'an had in fact been given no concrete work. Content to take it easy, he had spent his days reading and writing, his complexion growing fair. The order puzzled him—why suddenly transport all the families to Lianzhou? Perhaps Elder Huang intended to hold them hostage under centralized guard, to prevent defections?
 
 With no say in the matter, Peng Shou'an could only lead the group of dependents to Lianzhou.
 

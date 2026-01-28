@@ -1,77 +1,83 @@
 # Chapter 2122 - Breaching the City
 
-By first light, the garrison inside the city had lost all heart.
+By first light, the garrison inside Wuzhou had lost all will to fight.
 
-In the first half of the night, women, children, and the elderly had been expelled, sparking riots throughout the city. Flames sprang up and died down repeatedly; under the desperate efforts of prepared militia, they never spread into a citywide conflagration. The thousand-odd Wolf Soldiers left inside to set fires and loot found resistance everywhere—from "friendly" troops and militia alike—and most of their raiding attempts failed. In the latter half of the night, the loudspeakers outside the walls began broadcasting, exposing the arson plot. This only stiffened the resolve of the civilians and militia remaining in the city; some rioters considered fleeing, while others, not yet resigned, planned to rally at dawn, mass together, and set fires upwind throughout the city.
+The city had descended into chaos during the night's first half. The expulsion of women, children, and the elderly had triggered riots throughout the streets. Flames erupted and died in scattered pockets across the city—desperate militia managed to contain each outbreak before it could spread into a general conflagration. The thousand-odd Wolf Soldiers left behind to set fires and loot met resistance at every turn from supposedly "friendly" troops and militia alike. Most of their attempts at arson failed. In the night's second half, loudspeakers outside the walls began broadcasting, publicly exposing the scorched-earth plot. This stiffened civilian and militia resolve within the city. Some of the would-be arsonists considered fleeing; others, not yet ready to admit defeat, planned to mass at dawn and set coordinated fires upwind throughout the city.
 
-With defenders and populace alike each harboring their own anxieties, morale utterly broken, the soldiers guarding the northern walls were in a state of dread. No one knew what to do next.
+With defenders and populace alike torn by conflicting fears and loyalties, morale shattered completely. The soldiers manning the northern walls existed in a state of paralyzed dread, uncertain what would happen next.
 
-The day before, the militia had been ordered by "higher-ups" to dig open the blocked gates—supposedly to let civilians leave the city. But that night, no civilians had departed through these gates. Now the gates stood open, with no order to re-seal them.
+The previous day, militia had received orders from "higher authority" to clear the blocked gates—ostensibly to allow civilians to evacuate. But no civilians had departed through those gates that night. Now the gates stood open, with no orders issued to reseal them.
 
-The barbican and gate at Dayun Gate had already been destroyed in the bombardments of the preceding days. Without the gate blocked up, the entrance stood wide open. The defending commander ordered the gate re-blocked, but the militia, so eager when digging it open, now played deaf and dumb, ignoring orders entirely. When threatened with force, they looked ready to draw weapons and fight on the spot. In the end, the gap could only be blocked with knife-carts and makeshift barricades.
+The barbican and main gate at Dayun Gate had been reduced to rubble in the preceding days' bombardments. With the gate unblocked, the entrance gaped like an open mouth. The defending commander ordered it re-blocked, but the militia who had so eagerly dug it open now played deaf and dumb, ignoring all orders. When threatened with violence, they looked ready to draw weapons on the spot. In the end, the gap could only be partially obstructed with knife-carts and improvised barricades.
 
-The Hair-Bandits opposite showed no signs of activity—no neighing horses, no shouting men. Probably they wouldn't attack just yet.
+The Hair-Bandits across the killing ground showed no signs of activity—no neighing horses, no shouted commands. Perhaps they wouldn't attack just yet.
 
-Fearing the Australian snipers, the walls were kept dark apart from a few lanterns—no torches, no fires. A deathly stillness prevailed.
+Fearing Australian snipers, the walls remained dark save for a few minimal lanterns—no torches, no braziers. A deathly stillness hung over everything.
 
-At this moment, Zhu Quanxing's force, assigned the main assault on Wuzhou's northern wall outside Dayun Gate, had completed combat preparations. The companies slated for the attack had eaten emergency rations and formed columns in assault order. Ladders and ropes for scaling the walls, and explosives for breaching the gate, were all ready.
+---
 
-His 2nd Battalion's position was only about two hundred meters from the fortifications outside Dayun Gate. The Red Barbarian cannons on the walls had long since been silenced by artillery fire; even in daylight, soldiers in the trenches didn't need to worry about Ming artillery—rather, snipers kept the Ming defenders from even showing their heads.
+At that moment, Zhu Quanxing's force, assigned the main assault on the northern wall outside Dayun Gate, had completed combat preparations. The designated assault companies had consumed emergency rations and formed into columns in attack order. Scaling ladders, rope sections, and demolition charges were all distributed and ready.
 
-Now the guns positioned at the forward line were silent; artillerymen watched the dark outline of the walls cautiously. They hadn't yet received the order to fire.
+His 2nd Battalion's forward position lay a mere two hundred meters from the fortifications shielding Dayun Gate. The Red Barbarian cannons on the walls had long since been silenced by counter-battery fire. Even in daylight, soldiers in the trenches need not fear Ming artillery—rather, it was sniper fire that prevented defenders from even showing their heads above the parapets.
 
-Under cover of the darkest hour before dawn, on Wuzhou's northeastern flank, the vanguard of the 2nd Battalion's light infantry company had crept to within only thirty meters of the Ming fortifications. The riflemen moved in groups of three, three groups to a squad, each group in triangular formation. Squads advanced in alternation—one moved forward while the other dropped prone to provide cover; once the lead squad halted and went prone, the trailing squad rose and advanced under cover of the lead.
+Now the guns positioned along the forward line sat silent, artillerymen watching the dark silhouette of the walls with taut anticipation. They awaited the order to fire.
 
-The light infantry company's mission was to knock out the fortifications covering the gate outside Dayun Gate, ensuring the combat engineers could deliver their explosives in time.
+Under cover of the hour before dawn—the darkest time—the vanguard of the 2nd Battalion's light infantry company had crept to within thirty meters of the Ming fortifications on Wuzhou's northeastern flank. The riflemen moved in threes, three teams to a squad, each team in triangular formation. Squads advanced by bounds—one moved forward while the other went prone to provide suppressive fire; once the lead squad halted and dropped flat, the trailing squad rose and advanced under their cover.
 
-The fortifications outside Dayun Gate had suffered severe damage in the preceding bombardments. Many trenches had been collapsed; the rampart walls had caved in at multiple points. Because of constant sniping by light infantry, the militia and soldiers sent out to repair them had taken heavy casualties. In the end, they had only hastily sealed the gaps with knife-carts and earth-filled baskets.
+The light infantry company's mission was straightforward: eliminate the fortifications covering the gate approach, ensuring the combat engineers could deliver their demolition charges.
 
-At this moment, a sentry on the rampart wall seemed to notice something. In the pitch darkness he could see nothing—they dared not light torches for fear of the Fubo Army snipers—he could only hear rustling sounds, growing louder and closer.
+The fortifications outside Dayun Gate had suffered catastrophic damage in the bombardments. Trenches had collapsed in multiple sections; rampart walls had caved in at numerous points. Sniper fire from light infantry had inflicted heavy casualties on any militia or soldiers sent to repair them. In the end, defenders had managed only to hastily plug the gaps with knife-carts and earth-filled wicker baskets.
 
-His hair stood on end. He spun around and shouted: "Enemy att—"
+A sentry on the rampart wall suddenly stiffened, sensing something amiss. He could see nothing in the pitch darkness—they dared not light torches for fear of Fubo snipers—but he could hear rustling sounds, growing louder, drawing closer.
 
-Even as he cried out, a red signal rocket suddenly rose from the Australian lines. The sky was beginning to lighten—dawn!
+His hair stood on end. He spun and opened his mouth: "Enemy att—"
 
-The attack had begun!
+Before he could finish, a red signal rocket suddenly arced up from the Australian lines. The eastern sky was beginning to pale. Dawn!
 
-The officers and soldiers startled awake by the sentry peered out and saw dozens of Australians already crossing the collapsed trenches, some already scaling the rampart walls.
+The attack had begun.
+
+The officers and soldiers jolted awake by the sentry's cry peered into the gloom and saw dozens of Australians already crossing the collapsed trenches, some already scaling the rampart walls.
 
 "Grab your weapons! They're on us!"
 
-Amid a chorus of screams, the entire garrison was roused. Commanders shouted at the top of their lungs, leading their retainers to drive soldiers up the ramparts to fight.
+Amid panicked screams, the entire garrison roused. Commanders bellowed themselves hoarse, leading their personal retainers in driving soldiers up onto the ramparts.
 
-At that moment, the artillerymen who had been waiting for this instant shoved friction primers into the touchholes, hooked on the lanyards, and with a twist of their bodies, the guns shuddered and spat forth red-hot shells, arcing toward Dayun Gate.
+At precisely that moment, artillerymen who had been waiting hours for this instant shoved friction primers into touchholes, hooked lanyards to the igniters, and with a sharp yank their guns roared, hurling red-hot shells in high arcs toward Dayun Gate.
 
-The first salvo landed inside the fortifications, shattering the officers and soldiers just scrambling to their feet—bones snapping, limbs flying. The camp dissolved into screams and chaos.
+The opening salvo plunged into the fortifications, shredding officers and soldiers just scrambling to their feet—bones splintered, limbs torn free. The encampment dissolved into screaming chaos.
 
-To avoid friendly fire, the covering barrage was limited to one volley. Originally, Zhang Dapao had planned to bombard targets on the Dayun Gate walls, but there was nothing left—the gate tower had been collapsed and burned, and in places even the battlements had been shot away. With nothing left to hit, they had to hold fire.
+To avoid friendly casualties, covering fire was limited to a single volley. Originally, Zhang Dapao had intended to bombard targets atop Dayun Gate's walls, but there was nothing left to hit—the gate tower had been collapsed and burned, and in places even the crenellations had been blown away. With no viable targets remaining, the guns fell silent.
 
-Under cover of the barrage, the lead platoon of light infantry surged into the fortification in an instant. The combat engineers attached to them wielded axes and grappling hooks, swiftly hacking apart or pulling down the knife-carts and baskets blocking the gaps, clearing several breaches. An artillery section dragged two 12-pound mountain howitzers across the gap via planks laid by the engineers.
+Under cover of that barrage, the light infantry's lead platoon surged into the fortification in seconds. Combat engineers attached to the assault wielded axes and grappling hooks, swiftly hacking apart or dragging aside the knife-carts and baskets blocking the breaches, clearing multiple entry points. An artillery section manhandled two 12-pound mountain howitzers across the gap via planks laid down by the engineers.
 
-Behind them, the remaining light infantry, covered by the vanguard, crossed the Ming trenches in under a minute and charged into the fortifications. Except for a few sentries, most of the Ming soldiers garrisoning the position had been asleep; caught off guard, many died to bullets or bayonets before they could even pick up a weapon. The commander defending Wuzhou's northern wall had also been awakened by the gunfire. Realizing the Australians were attacking, he steadied himself and began organizing a counterattack.
+Behind them, the remaining light infantry, covered by the vanguard, crossed the Ming trenches in under a minute and poured into the fortifications. Apart from a handful of sentries, most Ming soldiers garrisoning the position had been asleep. Caught utterly unprepared, many fell to bullets or bayonets before they could even reach for weapons.
 
-This commander was an old adversary of the Fubo Army: none other than Li Modao, the former Firearms Battalion garrison commander who had fought at Chengmai. After fleeing back, Li Modao hadn't been politically adept enough to advance; he had managed only, through connections, to become a firearms battalion company-grade officer under the Dongshan anti-Yao Regional Commander, scraping by. When the Dongshan Regional Commander's forces retreated to Wuzhou, he had suddenly found his "career taking off"—promoted, and placed in command of the newly formed "Wuzhou Firearms Battalion."
+The commander defending Wuzhou's northern wall had also been awakened by the thunderous gunfire. Realizing the Australians were attacking in force, he steadied himself and began organizing a counterattack.
 
-Yet this "Wuzhou Firearms Battalion" had been stationed, from the moment of its creation, in the most dangerous position: the fortifications outside the city gate. Over the past few days of heavy bombardment, half the fortifications had been destroyed, and between casualties and desertions, he had lost half his men.
+This commander was an old adversary of the Fubo Army: Li Modao, formerly the Firearms Battalion garrison commander who had fought at Chengmai. After his flight back to the mainland, Li Modao had lacked the political acumen to advance his career. Through connections, he had managed only to secure a company-grade position in a firearms battalion under the Dongshan anti-Yao Regional Commander, barely scraping by. When the Dongshan Regional Commander's forces withdrew to Wuzhou, fate had smiled on him—he was suddenly promoted and placed in command of the newly formed "Wuzhou Firearms Battalion."
 
-Li Modao was no paragon of loyalty, but he at least knew whose rice he ate and for whom he should fight. He had no thought of fleeing, and he kept his men from joining the looting—not out of love for the people, but because letting soldiers loose to plunder would quickly cause the unit to disintegrate.
+Yet this "Wuzhou Firearms Battalion" had occupied, from its inception, the most exposed position: the fortifications outside the city gate. After days of relentless bombardment, half the fortifications lay in ruins, and between casualties and desertion, he had lost half his men.
 
-From the sparse gunfire, Li Modao knew the Australians who had infiltrated the position couldn't be many. But if he didn't drive them out immediately, once the Australian main force arrived, they'd be lambs to the slaughter.
+Li Modao was no paragon of loyalty, but he at least understood whose rice bowl he ate from and for whom he should fight. He had no intention of fleeing, and he kept his men from joining the looting spree—not from love of the common people, but because allowing soldiers to pillage would rapidly dissolve unit cohesion.
 
-So he immediately mustered his personal retainers and a group of able-bodied soldiers—a force of about a hundred men, armed with swords, spears, and rattan shields. Pushing several Frankish cannons already loaded with powder and shot, they charged out through the opened gap at Dayun Gate. Without hesitation, they fired several of the Frankish guns and then surged forward with a battle cry.
+From the sparse gunfire, Li Modao judged that the Australians who had penetrated the fortifications couldn't be numerous. But if he didn't drive them out immediately, once the Australian main force arrived, his men would be slaughtered like sheep.
 
-The Frankish cannon volley knocked down a few Fubo Army soldiers in front. But by now the artillery had already dragged two 12-pound mountain howitzers through the breach in the fortifications. Li Modao's hundred-odd counterattacking men ran straight into the muzzles. The howitzers spewed fire; canister shot swept the gateway. Amid smoke and screams, the counterattack collapsed instantly. Li Modao himself took a ball in the right arm, blood gushing; he passed out on the spot.
+He immediately rallied his personal retainers and a group of able-bodied soldiers—roughly a hundred men, armed with swords, spears, and rattan shields. Pushing several Frankish cannons already loaded with powder and shot, they charged through the opened gap at Dayun Gate. Without hesitation they fired the cannons, then surged forward with a battle cry.
 
-After the light infantry company seized the gate, the combat engineers found they had nothing left to do. The dirt blocking the gateway had been dug away; the gate itself had long since been destroyed by gunfire. All they could do was use their axes to clear away the knife-carts and barricades.
+The Frankish volley dropped several Fubo Army soldiers. But by now the artillery had already dragged two 12-pound mountain howitzers through the breach. Li Modao's hundred-odd counterattacking troops ran straight into the muzzles. The howitzers erupted. Canister shot scythed through the gateway. Through smoke and screaming, the counterattack shattered instantly. Li Modao himself took a ball through the right arm, blood fountaining. He collapsed unconscious on the spot.
 
-The light infantry used bayonets to disperse the defenders clustered in the sally ports and atop the walls. In some places, fierce hand-to-hand fighting broke out, but in most cases the garrison either scattered or dropped to their knees to surrender. The militia at the north gate had displayed a white flag from the start, every man with a white cloth strip tied around his left arm.
+After the light infantry company secured the gate, the combat engineers discovered their services were unnecessary. The earth blocking the gateway had already been excavated; the gate itself had long since been demolished by gunfire. They contented themselves with using axes to clear away knife-carts and barricades.
 
-"Dayun Gate is taken!" The news reached Zhu Quanxing, and he immediately ordered: "All companies proceed according to plan—with maximum speed!"
+The light infantry used bayonets to disperse defenders clustered in the sally ports and atop the walls. Fierce hand-to-hand fighting erupted in some locations, but in most cases the garrison either scattered or dropped to their knees in surrender. The militia at the north gate had displayed white flags from the outset, every man sporting a white cloth strip tied around his left arm.
 
-At that moment, inside the Rice Guild hall, Luo Yangming—who hadn't slept all night—perched on the roof ridge, red-eyed, gazing toward the booming northern sector of the city. He didn't know from which direction the Fubo Army would attack, but the sound of guns from Dayun Gate told him the chiefs had begun their assault. It brought some relief: once the Fubo Army attacked, the officials and soldiers were nothing but clay chickens and pottery dogs!
+"Dayun Gate is taken!" When the news reached Zhu Quanxing, he immediately ordered: "All companies proceed as planned—maximum speed!"
 
-But he also worried: would the rampaging soldiers inside the city go completely mad? Last night had been harrowing. Rioters had looted and set fires everywhere. Even the Rice Guild's compound had been attacked by a mob of soldiers; fortunately, local garrison troops were present, and the guild's masters had been willing to spend silver. After a vicious battle that left dozens of corpses and blood all over the ground, the masters and their families had narrowly avoided being trussed up as "fat pigs."
+---
 
-But not many places had armed protection. The local troops' strength was limited, enough only to guard key locations. Many neighborhoods had held off rioters with militia and street barricades and put out fires. But many other places had been ravaged—murder, rape, robbery... Some areas burned before help could arrive, consuming hundreds of households. From the rooftop of the Rice Guild, Luo Yangming watched the flickering flames across the city, heard the crying and cursing, and his heart ached like a knife—when would this man-made disaster ever end?
+Inside the Rice Guild hall, Luo Yangming—who hadn't slept all night—perched atop the roof ridge, eyes bloodshot, gazing toward the booming northern quarter of the city. He hadn't known from which direction the Fubo Army would strike, but the thunder of guns from Dayun Gate told him the chiefs had launched their assault. It brought a measure of relief: once the Fubo Army attacked, the officials and their soldiers would prove nothing but clay chickens and pottery dogs.
+
+Yet worry gnawed at him. Would the rampaging soldiers inside the city descend into complete madness? Last night had been harrowing. Rioters had looted and torched buildings everywhere. Even the Rice Guild compound had been attacked by a mob of soldiers. Fortunately, local garrison troops had been present, and the guild's masters had been willing to spend silver lavishly. After a vicious battle that left dozens of corpses and blood pooling on the ground, the masters and their families had narrowly avoided being trussed up as "fat pigs" for ransom.
+
+But few places possessed such armed protection. The local troops' strength was finite, sufficient only to guard key installations. Many neighborhoods had held off rioters with militia formations and street barricades, managing to extinguish fires. But many other areas had been ravaged—murder, rape, robbery running unchecked. Some districts had burned before help could arrive, consuming hundreds of households. From his rooftop vantage at the Rice Guild, Luo Yangming watched flames flickering across the cityscape, heard the weeping and cursing echoing through the streets, and his heart ached as though pierced by knives. When would this man-made catastrophe finally end?
 
 *(End of Chapter)*

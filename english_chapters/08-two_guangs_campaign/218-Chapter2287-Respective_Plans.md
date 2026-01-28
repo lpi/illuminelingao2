@@ -1,102 +1,104 @@
 # Chapter 2287: Respective Plans
 
-Luo Yangming was busy until people leaning horses turning over; hard easily handled this grain purchasing matter properly. Also no time to pay attention to external check anymore. until various affairs handled finished, only waiting for grain arriving. He then breathed a sigh of relief, went to City Government to ask Zhao Fengtian if there was reply coming back.
+Luo Yangming worked himself ragged until everything was finally in order. He barely had time to think about the external verification. Only after all affairs were settled and he was simply waiting for the grain to arrive did he finally catch his breath. He went to the City Government to ask Zhao Fengtian whether any reply had come back.
 
-"No reply letter." Zhao Fengtian checked incoming mail record said.
+"No reply letter," Zhao Fengtian said after checking the incoming mail records.
 
-"This front and back already half a month..."
+"It's been half a month already..."
 
-"Hard to say ah," Zhao Fengtian said, "Teng County side our regime organization just established; people few matters many. The person you want to check although has specific name address, yet not in Teng County city. At this juncture still have to dispatch people to countryside to query specially; military chaos horse confusion can't be fast."
+"Hard to say," Zhao Fengtian replied. "Our regime organization in Teng County was just established—few personnel, many tasks. The person you want to check has a specific name and address, but he's not in Teng County city proper. At this point, they'd have to dispatch someone to the countryside specifically to make inquiries. With all the chaos, it can't be fast."
 
-"Then wait more." Luo Yangming thought he usually observing Yi Haoran coldly had no suspicious things either. Either teaching children reading in room, or amusing self with poetry and books; from time to time going to dock helping Wen Iron Head calculate accounts. Even if he was Ming Kingdom remnant evil, couldn't stir up how big wind and waves either.
+"We'll wait longer, then." Luo Yangming reflected that in his cold observation of Yi Haoran, he hadn't noticed anything suspicious. The man spent his time teaching children to read in his room, or amusing himself with poetry and books, occasionally going to the docks to help Wen Iron Head with accounts. Even if he was a Ming remnant, he couldn't stir up much trouble.
 
-"This matter not anxious; at worst after finishing matters arrest person letting you interrogate personally," Zhao Fengtian picked up an official document, "This is notice list Joint Logistics sent us; Dachang’s grain starts shipping tomorrow; expected to arrive Wuzhou on August 5th. Want us to prepare for receiving goods."
+"This matter isn't urgent. At worst, after things settle down, we can arrest him and let you interrogate him personally," Zhao Fengtian said, picking up an official document. "This is the notification list from Joint Logistics. Dachang's grain starts shipping tomorrow; it's expected to arrive in Wuzhou on August 5th. They want us to prepare for receiving the goods."
 
-"So fast? Our silver just sent..." Luo Yangming somewhat surprised.
+"So soon? We only just sent the silver..." Luo Yangming was somewhat surprised.
 
-"This is policy nature grain transfer," Zhao Fengtian said, "Even if Wuzhou didn't send one tael silver over would ship too. But words said so, now High Level is also very difficult..."
+"This is a policy-driven grain transfer," Zhao Fengtian explained. "Even if Wuzhou hadn't sent a single tael of silver, they would still ship it. But that said, the higher-ups are in a difficult position too..."
 
-Zhao Fengtian’s eyes red; since he became this City Government Secretary, worked until late night every day, sometimes even working overnight—administrative work too much.
+Zhao Fengtian's eyes were red. Since becoming City Government Secretary, he'd been working until late every night, sometimes pulling all-nighters—there was simply too much administrative work.
 
-"High Level difficult, we also difficult." Luo Yangming sighed, "Although is good thing, not long term plan either. This situation don't know when can turn better; I feel recently Aftermath Bureau many things doing became not as easy as before."
+"The higher-ups are struggling, and so are we," Luo Yangming sighed. "Though it's good news, it's not a long-term solution. Who knows when the situation will improve? Lately, many things at the Aftermath Bureau have become harder to accomplish than before."
 
-"Old Moneybags all unreliable." Zhao Fengtian extremely exhausted, "Happened now still have to rely on Old Moneybags to maintain situation. Who teaches us poor? Wait autumn grain comes up, hand has money and grain situation can look better."
+"The old moneybags are all unreliable," Zhao Fengtian said wearily. "And yet we still have to rely on them to hold things together. Curse our poverty! Once the autumn grain comes in and we have money and grain in hand, things should look better."
 
-"If can fight a few big victories again can cut off this gang of people’s longing."
+"If we could just win a few more major victories, it might crush their lingering hopes."
 
-"Fighting victory easy, just troops eating wearing hard to handle." Zhao Fengtian suppressed voice said, "Now front line hardest is supply; otherwise, Guangxi would have finished earlier. More walking towards Guangxi, boats used smaller, transport more strenuous. Guangxi’s Lang people, Yao people also don't stop; troops are walking one road fighting one road, also have to expand army on spot. Victories fought not few, consumption also shockingly big..."
+"Winning victories is the easy part. Feeding and clothing the troops is the hard part." Zhao Fengtian lowered his voice. "Right now, the biggest challenge at the front is supply. Otherwise, Guangxi would have been finished long ago. The farther we push into Guangxi, the smaller the boats we can use and the harder the transport. The Lang and Yao people there won't stay quiet either—our troops are fighting their way along every road, and expanding the army on the spot. We've won plenty of battles, but the consumption is staggeringly high..."
 
-"You look, to year end can this war finish?"
+"In your estimation, can this war be finished by year's end?"
 
-"Year end always should be about there; I looking at reports coming from North Guangdong side, Senator Huang side progress counts smooth; situation turned better; passing some days probably can settle down..."
+"Year's end should be about right. Looking at the reports from North Guangdong, things on Senator Huang's front are going reasonably smoothly. The situation is turning around. Give it a bit more time and things should settle down..."
 
-"Right now people heart thinks settling; as long as not fighting, Two Guangs side once circulating, market recover. Common people’s days become better; our work also easy to develop..."
+"What people want now is stability. As long as the fighting stops, once the Two Guangs start circulating again and the market recovers, ordinary people's lives will improve. Our work will be easier to carry out too..."
 
-"Ten thousand matters beginning hard; back then I followed Chief to South Qiong opening New Area was even harder—no road on land, all relied on sea ship transport supply; coming once a month; county city even smaller than Guangdong’s village, also broken and rotten..."
+"All beginnings are hard. Back when I followed the Chief to South Qiong to establish the New Area, it was even harder—no roads on land, everything had to come by sea. Ships arrived once a month. The county seat was smaller than a Guangdong village, and falling apart..."
 
-Zhao Fengtian qualification old; words said many unavoidably would brag his "Glorious History." Luo Yangming naturally also could only wash ears respectfully listen.
+Zhao Fengtian's seniority was considerable, and when he talked at length, he inevitably boasted about his "glorious history." Luo Yangming could only listen respectfully.
 
-"...No matter how difficult situation later also overcame; having Chief, Senate here, need fear nothing." Zhao Fengtian said full of confidence.
+"...No matter how difficult things got, we always overcame them. With the Chief and the Senate behind us, there's nothing to fear." Zhao Fengtian spoke with utter confidence.
 
-Luo Yangming spoken by him, emotion originally more or less having some anxiety dissipated clean. Thinking ten thousand *dan* grain coming; to market and people heart would have huge stabilizing effect; mood couldn't help relaxed much.
+Luo Yangming listened to him talk, and his original vague anxieties dissipated entirely. Ten thousand *dan* of grain was coming—it would have an enormous stabilizing effect on both the market and public morale. He couldn't help but feel considerably relieved.
 
-"...We better talk about security work." Zhao Fengtian took out a document, "This is grain security plan Qian Duo drafted. You look first."
+"...We should discuss security arrangements," Zhao Fengtian said, producing a document. "This is the grain security plan that Qian Duo drafted. Have a look first."
 
-"I look this not appropriate right." Luo Yangming uneasy said.
+"Is it really appropriate for me to read this?" Luo Yangming asked uneasily.
 
-"According to duty indeed not appropriate, but you are local person. Familiar than all of us. Maybe have some loopholes..."
+"Strictly speaking, no. But you're a local. You know the area better than any of us. You might spot some loopholes..."
 
-Words said to this extent, Luo Yangming also inconvenient to decline; took over flipping reading. According to current relay escort mode, Wuzhou Battalion 1st Squadron responsible for river surface patrol work would arrive Fengchuan County one day in advance waiting for boat fleet arrival; second day dawn escorted by 1st Squadron and Navy of Inland River Fleet boat fleet arrive Wuzhou.
+Put that way, Luo Yangming couldn't very well refuse. He took the document and read through it. According to the current relay escort protocol, the Wuzhou Battalion's 1st Squadron—responsible for river patrol—would arrive at Fengchuan County one day in advance to await the fleet's arrival. At dawn the following day, escorted by both the 1st Squadron and the Inland River Fleet Navy, the boat fleet would proceed to Wuzhou.
 
-After arriving Wuzhou, 1st Squadron responsible for dock alert; Line Infantry Company one platoon responsible for route alert entering city; other two platoons stay in city holding city key point alert work. 3rd Squadron stationed in Sanheui also had to prepare for battle, reinforcing dock anytime.
+Upon arrival in Wuzhou, the 1st Squadron would handle dock security. One platoon of the Line Infantry Company would secure the route into the city; the other two platoons would remain inside, holding key points. The 3rd Squadron stationed at Sanheui would also be on standby, ready to reinforce the docks at any moment.
 
-At that time Wuzhou would assume full martial law; common people not allowed on street; various city gates closed; only opening Nanxun Gate and Dezheng Gate near unloading dock.
+During this time, Wuzhou would be under full martial law. No civilians would be allowed on the streets; all city gates would be closed except for Nanxun Gate and Dezheng Gate near the unloading docks.
 
-"This way counts ten thousand without one loss." Beihua Yangming laid after reading said, "Just moving 1st Squadron away one day in advance, this city becomes empty."
+"This is practically foolproof," Luo Yangming said after reading. "But moving the 1st Squadron away a day in advance does leave the city rather empty."
 
-"Company Commander Qian said problem not big; at worst closing city gate is fine. Moreover we have 3rd Squadron outside city can echo. Emergency situation let them come aid is fine." Zhao Fengtian didn't mind, "Recently Wuzhou surroundings also no big group bandits or Ming Army activity signs."
+"Company Commander Qian says it's not a major concern—we can just close the city gates. Besides, we have the 3rd Squadron outside the city as backup. In an emergency, they can come to our aid," Zhao Fengtian said dismissively. "There's been no sign of any large bandit groups or Ming Army activity around Wuzhou recently."
 
-"Then no problem."
+"Then there's no problem."
 
-"I then send document to Director Xie place, asking him to circle read." Saying he put document in envelope, stamped seal wax, giving communicator, "Send to Chief Xie office immediately!"
+"I'll send the document to Director Xie for his review and signature." He placed the document in an envelope, stamped it with sealing wax, and handed it to a courier. "Deliver this to Chief Xie's office immediately!"
 
-"Chief today not in office, working at Three Headquarters side..." Communicator said, "He said not emergency document send over together after lunch."
+"The Chief isn't in his office today—he's working at the Three Headquarters..." the courier said. "He said unless it's an emergency document, just send everything together after lunch."
 
-Zhao Fengtian slightly frowned; Luo Yangming knew, this was worry and aversion to Chief Xie "Indulging Female Sex." But naturalized citizen cadres generally wouldn't express this emotion publicly or discuss with each other. To them, absolute trust and respect to Chief were already engraved in their bone marrow.
+Zhao Fengtian frowned slightly. Luo Yangming understood: this was concern and disapproval over Chief Xie "indulging in feminine charms." But naturalized citizen cadres generally didn't express such sentiments publicly or discuss them with each other. For them, absolute trust and respect for the Chief were ingrained to the bone.
 
-"Okay, you send together at noon." Zhao Fengtian said.
+"Very well. Send everything together at noon," Zhao Fengtian said.
 
-Night color shrouded group mountains; stars blinking cold light. Flowing clouds in sky blocked moon light from time to time. Deep mountain inside even dimmer. Mountain forest inside quiet.
+---
 
-Although mountain high forest dense, human track rare to reach, this place distance Wuzhou still less than ten *li*. Standing on mountain, could see Wuzhou’s city tower.
+Night shrouded the mountain ranges; stars glimmered with cold light. Drifting clouds blocked the moonlight from time to time. The deep mountains were even darker. The forest was silent.
 
-Inside mountain forest, a stream of bandits was gathering here, exactly Gou Second Master and Hu Rotten Eye’s bandit gang.
+Though the mountains were high and the forests dense, with few human traces, this place was less than ten *li* from Wuzhou. Standing on the mountainside, one could see Wuzhou's city towers.
 
-Gou Er wearing a tattered scholar robe, using rope binding waist, hanging a government soldier war saber. These years he always followed bandit gang living in caves, drilling forests. Original master appearance basically wore down completely; completely was appearance of a messy beard hair bandit chief.
+Inside the forest, a band of outlaws was gathering—precisely Second Master Gou's and Hu Rotten Eye's bandit gang.
 
-He stared with cunning eyes, vigilantly observing surroundings. Group bandits one by one hair disheveled face dirty, face feature ferocious, carrying various weapons gathering around him in threes and twos.
+Gou Er wore a tattered scholar's robe cinched at the waist with rope, a government soldier's saber hanging from his belt. After years of cave-dwelling and forest-roaming with the bandit gang, his original cultivated appearance had worn away completely. He now looked every inch the wild-haired, unkempt bandit chief.
 
-Australians coming north created large quantity of scattered soldiers and wandering braves; war fire along road also made many common people displaced, life helpless, joining bandit rank. Original small bandit gang suddenly expanded to more than two hundred people—truth to tell, Gou Er himself didn't know specifically how many people under hand: died in battle, died of illness, fled people every three five days had; but also continuously people joining. Rather than saying for making fortune, better saying purely for mixing a mouthful rice to eat.
+He surveyed his surroundings with cunning, vigilant eyes. The bandits around him were disheveled and filthy, their features fierce, carrying an assortment of weapons as they gathered in clusters of two and three.
 
-But this mouthful rice also wasn't easy to eat; following Australian security strength continuously increasing and fully pushing various villages joint security measures, bandit’s maneuvering room more and more small; and they also faced Fubo Army’s continuous crusade. Fortunately Gou Er and Hu Rotten Eye back then were people eaten Fubo Army loss; more or less had some coping methods; considered not caught. Called one of countless bandit gangs whirling rising whirling extinguishing.
+The Australians' northern advance had created masses of scattered soldiers and wandering fighters. The flames of war had also displaced countless common people, leaving them destitute and pushing them into the ranks of outlaws. The originally small bandit gang had suddenly swelled to over two hundred men—though in truth, Gou Er himself didn't know exactly how many he commanded. Men died in battle, died of illness, or fled every few days; but new ones kept joining. Rather than seeking fortune, they were simply looking for a mouthful of rice.
 
-Earlier when Xiong Wencan sent people to Guangdong distributing various appointment certificates in large quantity, Gou Er and Hu Rotten Eye also each got one, counted as "Court Appointed Officer"; but time long they knew, this stuff useless not to say, also big tree attracting wind—Fubo Army specially picked bandit gangs raising government army big flag to fight.
+But even that rice wasn't easy to come by. As Australian security forces expanded and various villages implemented joint defense measures, the bandits' room to maneuver shrank steadily. They also faced continuous campaigns from the Fubo Army. Fortunately, Gou Er and Hu Rotten Eye had tasted the Fubo Army's wrath before and had learned some coping methods; they'd managed to avoid capture so far. They were one of countless bandit gangs that rose and fell like sparks.
 
-A figure walked over, whispered a few words with him; Gou Er nodded, waved hand summoning everyone over, said: "Brothers! Chief Jiang came back from Wuzhou!"
+Earlier, when Xiong Wencan had sent agents throughout Guangdong distributing appointment certificates wholesale, Gou Er and Hu Rotten Eye had each received one, technically becoming "Court-Appointed Officers." But as time passed, they realized these titles were useless—worse than useless, actually. They attracted attention like a tall tree catching wind. The Fubo Army specifically targeted bandit gangs flying the government army banner.
 
-Bandits had small commotion for a while. Although Jiang Suo joined gang time not long, but his matter leading Xiong Wencan’s house servants fighting Hair thieves bravely at Bangshan everyone knew more or less—facing insufferably arrogant Hair thieves not only dared fight, also could fight a come and go. So once he joined gang became a chief; happened this young man not interested in being chief, only knew burying head exerting force fighting; when charging killing even fear not death; in bandit gang immediately had very high prestige.
+A figure approached and whispered a few words. Gou Er nodded, waved everyone over, and announced: "Brothers! Chief Jiang has returned from Wuzhou!"
 
-Not long ago, Jiang Suo mysteriously disappeared; in bandit gang someone guessed if Gou Er and Hu Rotten Eye couldn't tolerate him, driving him away or assassinated.
+The bandits stirred with commotion. Though Jiang Suo had only joined recently, everyone knew something of how he had led Xiong Wencan's household guards in a fierce battle against the Hair thieves at Bangshan. Against those arrogant Hair thieves, he had not only dared to fight but could hold his own. So upon joining the gang, he was made a chief. As it happened, this young man had no interest in leadership—he just kept his head down and fought hard. When charging into battle, he seemed to fear nothing. His prestige among the bandits rose quickly.
 
-"Chief Jiang this time going out, was contacting with Court people. We brothers want to do a big business in Wuzhou! This business done, reward silver can't lack; playing well, can even gamble a proper future on body!"
+Not long ago, Jiang Suo had mysteriously disappeared. Some in the gang speculated that Gou Er and Hu Rotten Eye couldn't tolerate him and had driven him away or assassinated him.
 
-He complacently swept glance at group bandits; these bandits mostly were government army soldier scoundrels. Used to eating grain, loving leisure hating labor; regarding future, reward silver these looked tighter than anything.
+"Chief Jiang went out this time to make contact with Court people. We brothers are going to pull off a big job in Wuzhou! If we pull it off, there'll be plenty of reward silver. Play it well, and we might even gamble our way to a proper future!"
 
-Hearing among bandits someone discussing in low voice, Gou Er knew his set played role; even more vigorously said: "This time Hair thief transported a huge batch of grain and pay silver from Guangzhou; let's go do him a fierce one; is a piece of Great Merit..."
+He swept a self-satisfied glance over the assembled bandits. Most were former government soldiers—army men accustomed to drawing pay, lazy by nature, but with keen eyes for things like "futures" and "reward silver."
 
-This time, group bandits’ discussion wasn't so warm; instantly cooled down. Grain and silver all were good stuff; Hair thief needless to say would protect with heavy troops—these days bandit gangs attacking Hair thief boat fleet on West River were many; although had individual successful ones, majority were wasting human lives in vain only; half bit benefit couldn't fish either.
+When he heard the low murmur of discussion among the bandits, Gou Er knew his pitch was working. He pressed on with even more vigor: "This time, the Hair thieves are shipping a massive load of grain and payroll silver from Guangzhou. We're going to hit them hard. This is a chance for great merit!"
 
-Gou Er hurriedly said: "Everyone rest assured! We going to do boat fleet is not fake, but threshold of promoting official getting rich isn't on boat—Since Australians want heavy troops escorting boats, Wuzhou city inevitably empty. We just take this opportunity, hit into Wuzhou!"
+This time, the discussion wasn't so enthusiastic—the crowd fell quiet. Grain and silver were good things, certainly, but the Hair thieves would undoubtedly guard them with heavy troops. Recently, many bandit gangs had attacked Hair thief boat fleets on the West River. Though a few had succeeded, the vast majority had only thrown their lives away with nothing to show for it.
+
+Gou Er hastily added: "Rest easy! We are going after the boat fleet, that's true—but the real prize isn't on the boats. Since the Australians are sending heavy escorts for their ships, Wuzhou city will be left hollow. We'll seize that moment and strike into Wuzhou!"
 
 ---
 **Next Update:** Volume 7 - Guangzhou Governance Part 491

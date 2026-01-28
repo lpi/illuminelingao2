@@ -2,7 +2,7 @@
 
 Several bandits brandished their weapons and tried to storm the guard chamber. A chaotic close-quarters melee erupted at the entrance—but in the end, the bandits were outmatched by the soldiers' bayonets and driven back. Amid the confusion, the soldiers inside the chamber opened fire. Smoke filled the gateway; the bandits screamed and scrambled out in disorder, huddling in the blind spots where rifles could not reach. The cramped space inside and the soldiers' small numbers meant they could not sally forth either. Both sides were deadlocked.
 
-Zhang Tianbo was frantic. If the gate could not be taken, the reinforcements waiting outside could not enter. The "brilliant plan" to seize the county seat would collapse. He knew the strength inside the city: Luo Yiming had fewer than a hundred men. Add the civilian naturalized cadres and the "turncoat" retained personnel, and the total was only one hundred forty or fifty. They were scattered throughout the county seat—hardly a threat.
+Zhang Tianbo was frantic. If the gate could not be taken, the reinforcements waiting outside could not enter. The "brilliant plan" to seize the county seat would collapse. He knew the strength inside the city: Luo Yiming had fewer than a hundred men. Add the civilian naturalized cadres and the "turncoat" retained personnel, and the total was only a hundred forty or fifty. They were scattered throughout the county seat—hardly a threat.
 
 That had been precisely why he had agreed to serve as the "inside man" and "act according to plan."
 
@@ -18,7 +18,7 @@ They formed triangular three-man teams, fixed bayonets, and endured the acrid sm
 
 Seeing things going badly, Zhang Tianbo sprinted out of the gate and lit a smoke signal—the gate was still open and no reinforcements from the city had arrived. If the main force waiting outside reached them in time, there was still hope.
 
-But though he fired off three smoke signals in succession, the road outside the city remained silent—not a soul in sight! Zhang Tianbo was beside himself: had the timing gone awry?! This was a matter of life and death! Drenched in cold sweat, he was about to turn back and check the situation when a volley of gunfire erupted inside the city. Four or five bandits came running out of the gateway, faces pale with terror. The leader spotted him still standing there in a daze and shouted: "Master Zhang, run! The Hair-Clippers are coming!"
+But though he fired off three smoke signals in succession, the road outside the city remained silent—not a soul in sight. Zhang Tianbo was beside himself: had the timing gone awry? This was a matter of life and death! Drenched in cold sweat, he was about to turn back and check the situation when a volley of gunfire erupted inside the city. Four or five bandits came running out of the gateway, faces pale with terror. The leader spotted him still standing there in a daze and shouted: "Master Zhang, run! The Hair-Clippers are coming!"
 
 Zhang Tianbo knew the game was up. He turned and fled.
 
@@ -46,7 +46,7 @@ His warning came just in time. As the guards pushed Wang Chuyi to the ground, tw
 
 Wang Chuyi was badly wounded by something—blood poured from him.
 
-"Quick—protect the County Magistrate—break out!" You Ciren now understood completely: this was a trap! No one had imagined Sun Dabiao would dare, in his own stronghold, to strike at the county government!
+"Quick—protect the County Magistrate—break out!" You Ciren now understood completely: this was a trap. No one had imagined Sun Dabiao would dare, in his own stronghold, to strike at the county government.
 
 Staring at the bleeding County Magistrate, You Ciren's eyes blazed. He commanded the Yao squadron to hold the stage and prevent the enemy from scattering them in the chaos.
 
@@ -58,13 +58,13 @@ Pan Tianshun led the Yao in desperate battle. Many had not worn the armor they h
 
 You Ciren had two guards carry Wang Chuyi down from the stage. The area below had become a battlefield—not only were bandits charging in, but archers on surrounding rooftops were raining arrows on the stage. Fires were being set. After more than half a month without rain, the air was bone-dry; the bamboo-and-wood buildings ignited like kindling, flames roaring, smoke billowing.
 
-Looking around, You Ciren saw flames and smoke rising all over Dalang Market. He understood now: this was catastrophic! Sun Dabiao had set fire to his own stronghold—he was clearly resolved to fight the Council of Elders to the bitter end. With fires burning throughout the town, the deployments You Ciren had made in advance were useless. The Second Squadron, scattered at various points, could not quickly regroup and engage through this inferno. Their plan had been to control the four gates and key roads, enabling them to suppress any unrest. But Sun Dabiao's move was scorched-earth—mutual annihilation. He cared nothing for the Second Squadron soldiers dispersed throughout the town; instead, he was concentrating all his strength on storming the stage, bent on capturing or killing the Australian magistrate in one blow.
+Looking around, You Ciren saw flames and smoke rising all over Dalang Market. He understood now: this was catastrophic. Sun Dabiao had set fire to his own stronghold—he was clearly resolved to fight the Council of Elders to the bitter end. With fires burning throughout the town, the deployments You Ciren had made in advance were useless. The Second Squadron, scattered at various points, could not quickly regroup and engage through this inferno. Their plan had been to control the four gates and key roads, enabling them to suppress any unrest. But Sun Dabiao's move was scorched-earth—mutual annihilation. He cared nothing for the Second Squadron soldiers dispersed throughout the town; instead, he was concentrating all his strength on storming the stage, bent on capturing or killing the Australian magistrate in one blow.
 
 "County Magistrate Wang—we have no choice but to fight our way out!" You Ciren shouted.
 
 The situation was unclear; there was no telling how much strength the enemy had or what other moves he had prepared. The only prudent course was to fall back to the county seat.
 
-Wang Chuyi felt weak, dizzy, head spinning—he knew his wounds were serious. But what consumed him was the collapse of his pacification plan, his betrayal of Elder Huang's trust, the comrades he had dragged into disaster. His heart felt as if it were being carved with a knife; for a long moment he could not speak. For an instant, he wished he were dead.
+Wang Chuyi felt weak, dizzy, his head spinning—he knew his wounds were serious. But what consumed him was the collapse of his pacification plan, his betrayal of Elder Huang's trust, the comrades he had dragged into disaster. His heart felt as if it were being carved with a knife; for a long moment he could not speak. For an instant, he wished he were dead.
 
 "County Magistrate! County Magistrate! County Magistrate?!"
 

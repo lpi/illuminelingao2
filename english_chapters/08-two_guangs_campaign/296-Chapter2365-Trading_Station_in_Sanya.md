@@ -1,83 +1,83 @@
 # Chapter 2365: Trading Station in Sanya
 
-The last stop of Xu Yanliang's trip to Sanya was the trading station of the Southeast Asia Company. There were few ships of the Southeast Asia Company with Sanya as their home port. In winter, there was almost no business, so only a dozen or so staff members stayed behind, responsible for guarding the warehouse, ships, and offices. Business activities had basically come to a halt. Most of the clerks had been temporarily transferred to terminals in other places.
+The last stop of Xu Yanliang's Sanya tour was the Southeast Asia Company's trading station. Few of the company's ships were based in Sanya, and during winter, business virtually ceased. Only a dozen or so staff remained, responsible for guarding the warehouse, ships, and offices. Business activities had ground to a halt, and most clerks had been temporarily reassigned to terminals elsewhere.
 
-The expense management of this Southeast Asia Company is quite strict. Xu Yanliang thought.
+*The Southeast Asia Company runs a tight ship with its expenses,* Xu Yanliang thought.
 
-The person in charge staying at the trading station was named Tang Zheng. He was neither a captain nor a shareholder, but a genuine "cadre" appointed by the Senate. Xu Yanliang knew that the naturalized cadres serving in such companies were not just "one of us" so simple; they were very likely also hidden cadres of the Political Security Bureau. He could trust him completely.
+The person in charge of the trading station was named Tang Zheng. He was neither a captain nor a shareholder, but a genuine "cadre" appointed by the Senate. Xu Yanliang knew that naturalized cadres serving in such companies weren't merely "one of us"—they were very likely also covert operatives of the Political Security Bureau. He could trust this man completely.
 
-After simply asking about the company's operation, he asked seemingly casually: "Where is your hometown?"
+After briefly inquiring about the company's operations, he asked with studied casualness: "Where is your hometown?"
 
-"My hometown is in Gaozhou Prefecture, Guangdong." Tang Zheng said, "That year I went to Nanyang (Southeast Asia) to do business and encountered pirates in the Qiongzhou Strait. Fortunately, I was saved by the Senate. But I lost my capital and couldn't do business anymore, so I simply stayed."
+"I'm from Gaozhou Prefecture in Guangdong," Tang Zheng replied. "Years ago, I was sailing to Nanyang on business when we encountered pirates in the Qiongzhou Strait. Fortunately, the Senate rescued us. But I lost my capital and couldn't continue as a merchant, so I simply stayed."
 
-"No wonder you came here to take office; so you were also a merchant who went to Nanyang."
+"No wonder you ended up here—so you were a Nanyang trader yourself."
 
-"Chief, you are laughing at me. For a merchant like me, the goods I carried were only a few bundles—a business that couldn't be smaller. Going to Nanyang is small capital and big profit. As long as nothing happens, one trip can feed the whole family for a year. But if natural or man-made disasters are encountered, the family is ruined immediately. That's how I stayed in Lingao." Tang Zheng was quite emotional. He followed the Hai family's ship to Nanyang back then and was robbed by pirates before leaving the Qiongzhou Strait. Although he was rescued in the end and saved his life, the goods were soaked by water and severely damaged.
+"You flatter me, Chief. For a merchant like me, my entire cargo amounted to a few bundles—about as small as business gets. Going to Nanyang was small capital, big profits. If nothing went wrong, one trip could feed the family for a year. But if disaster struck—natural or otherwise—ruin came instantly. That's how I ended up staying in Lingao." Tang Zheng grew emotional. He had traveled with the Hai family's ship to Nanyang that year and was robbed by pirates before even leaving the Qiongzhou Strait. Though rescued and alive, his goods had been soaked and severely damaged.
 
-"So that's how it is." Xu Yanliang nodded, "How many times have you been to Nanyang? What goods did you sell? Silk?"
+"I see." Xu Yanliang nodded. "How many times did you travel to Nanyang? What goods did you trade? Silk?"
 
-"Five or six times in total. Silk requires too much capital; what I sold were food and daily necessities. Everything is lacking over there; something worth one wen can be sold for twenty or thirty wen."
+"Five or six times altogether. Silk requires too much capital. I dealt in food and daily necessities. Everything is scarce over there—something worth one wen here sells for twenty or thirty there."
 
-Tang Zheng was a small merchant, so the places he went to were not the major Southeast Asian ports Xu Yanliang often heard of, such as Manila and Batavia, but some ports unfamiliar to him. Compared with the major ports where merchants gathered, business in relatively remote small and medium-sized ports was easier to do, and profits were higher. The downside was that safety was lower.
+As a small merchant, Tang Zheng hadn't visited the major Southeast Asian ports Xu Yanliang often heard mentioned—Manila, Batavia, and the like—but rather unfamiliar smaller harbors. Compared to the major ports where merchants congregated, business in relatively remote small and medium-sized ports was easier and more profitable. The downside was greater danger.
 
-He was a merchant by origin and was very talkative. Xu Yanliang originally knew very little about maritime trade and basically got information from reading books and materials. Now listening to him talk about practical affairs and examples, it was vivid and interesting. Unknowingly, they talked for a long time. They also talked about the current operation of the Southeast Asia Company.
+A merchant by background, Tang Zheng proved an engaging conversationalist. Xu Yanliang's knowledge of maritime trade had been largely theoretical, derived from books and documents. Now, listening to firsthand accounts and practical examples, the subject came alive. Before he knew it, they had talked for hours, eventually turning to the Southeast Asia Company's current operations.
 
-Xu Yanliang knew that the operation of the Southeast Asia Company was similar to taxi companies in the old spacetime. The company did not manage specific operations but was only responsible for management, taxation, personnel, and logistics. Specific operations were the responsibility of the captain. And this captain was either hired by the shareholder or was the shareholder himself.
+Xu Yanliang learned that the company operated similarly to taxi companies in the old spacetime. It didn't manage specific operations but handled management, taxation, personnel, and logistics. Actual trading was the responsibility of individual captains, who were either hired by shareholders or were shareholders themselves.
 
-He asked about the operation of the Southeast Asia Company's ships and how the operating costs were calculated. Tang Zheng said that the Southeast Asia Company now adopted a route license system. Ships subordinate to the company, if engaging in trade and not acting as carriers, needed to apply for a license from the company.
+He inquired about shipping operations and cost calculations. Tang Zheng explained that the Southeast Asia Company now employed a route license system. Ships affiliated with the company that engaged in trade—rather than serving as carriers—needed to apply for a license.
 
-"It's the Command Flag of the past, right?"
+"That's the Command Flag from the old days, isn't it?"
 
-"Yes, some call it that—speaking of which, it is indeed a flag." Tang Zheng said that this kind of license had two calculation methods: annual package and per voyage. The annual package was expensive but had unlimited voyages, suitable for routes run all year round; buying per voyage alone was cheaper, suitable for routes not run very often.
+"Yes, some call it that—and it literally is a flag." Tang Zheng explained that these licenses came in two pricing structures: annual packages and per-voyage fees. Annual packages were expensive but allowed unlimited voyages, suitable for year-round routes. Per-voyage purchases were cheaper, ideal for routes traveled infrequently.
 
-"I remember that merchant ships going to Nanyang usually could only make one round trip a year; can they make several trips now?"
+"I recall that merchant ships going to Nanyang could usually only make one round trip per year. Can they make several now?"
 
-"That's the old almanac." Tang Zheng said, "Now there are specialized navigation charts. As long as the captains run according to the navigation charts and run different routes according to the wind direction and ocean currents in each season, they don't need to wait on the pier for half a year and sail only when the monsoon rises. Besides, the sail rigging has also been improved, and they can sail against the wind, only slower. The problem now is that there are not enough competent navigators; most captains can't learn the new navigation technology..."
+"That's old thinking." Tang Zheng said. "Now there are specialized navigation charts. As long as captains follow them and adjust routes according to seasonal wind patterns and ocean currents, they don't need to idle at the docks for half a year waiting for the monsoon. Besides, sail rigging has been improved—they can sail against the wind now, just more slowly. The current bottleneck is a shortage of competent navigators. Most captains can't master the new navigation technology..."
 
-So that's how it is, Xu Yanliang thought. The new technology brought by the Senate had greatly promoted traditional maritime trade. Having been in the office for a long time, he had no concept of these progresses at all—and he still mingled in the Age of Discovery Club...
+*I see,* Xu Yanliang thought. The new technology the Senate had introduced had dramatically advanced traditional maritime trade. Confined to his office for so long, he had been completely unaware of these developments—and he had fancied himself part of the Age of Discovery Club...
 
-Thinking of this, his face couldn't help but burn slightly. He asked again:
+At this realization, his face flushed slightly with embarrassment. He asked:
 
-"Then what is the price of this flag? If paid annually."
+"What's the price of this flag? For an annual license."
 
-"Originally, it was two thousand taels of silver for large ships going to Nanyang, one thousand for medium ships, and five hundred for small ships. After changing to silver coins, it is calculated in yuan."
+"Originally, it was two thousand taels of silver for large ships going to Nanyang, one thousand for medium ships, and five hundred for small ones. After switching to silver coins, it's calculated in yuan."
 
-"That's quite a lot of money!" Xu Yanliang was a bit surprised. According to the data provided by Wang You, there are currently forty-three trading merchant ships running the Nanyang route. Even if calculated entirely according to the median, the income from "license fees" alone is 43,000 yuan per year. In fact, very few small ships run Nanyang trade; most are large ships. From this item alone, the Southeast Asia Company can sit and collect almost sixty or seventy thousand yuan.
+"That's considerable money!" Xu Yanliang was somewhat surprised. According to data Wang You had provided, there were currently forty-three trading merchant ships plying the Nanyang route. Even using the median price, "license fees" alone would bring in 43,000 yuan annually. In reality, few small ships engaged in Nanyang trade—most were large vessels. From this single revenue stream, the Southeast Asia Company could collect roughly sixty to seventy thousand yuan without lifting a finger.
 
-With so much money, the net profit reported was only 27,000, and dividends to shareholders were over 10,000. This Planning Committee is really quite something.
+With such income, the reported net profit was only 27,000, and shareholder dividends exceeded 10,000. The Planning Committee certainly had some explaining to do.
 
-"This money doesn't belong to the company." Seeing his surprise, Tang Zheng explained that the proceeds from shipping licenses had to be turned over to the fiscal and tax department, "...Our company can extract 20% of it."
+"This money doesn't belong to the company," Tang Zheng explained, noticing his surprise. The proceeds from shipping licenses had to be turned over to the fiscal and tax department. "...Our company can extract twenty percent."
 
-"So that's how it is." Xu Yanliang thought that was more like it! Otherwise, the heart would be too black! He asked: "Are there other incomes?"
+"I see." Xu Yanliang thought that made more sense! Otherwise, the markup would be outrageous. He asked: "Are there other income sources?"
 
-"That would be many, all bits and pieces." Tang Zheng enumerated them as if listing his family valuables. Besides various miscellaneous fees, another important income was the fee for the shipping operation certificate paid by captains acting as carriers. This was much cheaper, calculated annually. It also included the "vehicle and vessel tax" collected on behalf of the government. This also amounted to tens of thousands of yuan a year. The company's commission in it was 50%.
+"Many, but they're all bits and pieces." Tang Zheng enumerated them like counting family treasures. Besides various miscellaneous fees, another important income source was the fee for shipping operation certificates paid by captains working as carriers. These were much cheaper, calculated annually. The company also collected a "vehicle and vessel tax" on behalf of the government. This amounted to tens of thousands of yuan annually, with the company retaining a fifty percent commission.
 
-Xu Yanliang added and subtracted in his mind, knowing that the net profit on the Southeast Asia Company's statements was normal and didn't hide much. He couldn't help feeling a bit disappointed—he originally planned to challenge the fiscal and tax department to see if he could retain more money. Now it seemed impossible.
+Xu Yanliang mentally added and subtracted, concluding that the net profit shown on the Southeast Asia Company's statements was legitimate—nothing significant was hidden. He felt a twinge of disappointment. He had originally planned to challenge the fiscal and tax department to see if more funds could be retained. Now that seemed impossible.
 
-"Are these all the incomes? Are there any channels to tap more potential?" Xu Yanliang asked.
+"Is that everything? Are there any channels for generating additional revenue?" he asked.
 
-Tang Zheng laughed: "Chief, if talking about tapping potential, it can still be tapped. Those shipowners, which trip of Nanyang business doesn't earn thousands or tens of thousands. If you really want to get more money, just come up with some unconventional charging items. But Minister Si said in the past that the company was originally used to 'placate people from afar.' As long as it doesn't lose money in operation, it's fine. Don't be stingy and ask for money for everything—if they earn a lot, let the Tax Bureau go to them to collect income tax."
+Tang Zheng laughed. "If we're talking about tapping potential, there's always room. Those shipowners earn thousands or tens of thousands on every Nanyang voyage. If you really want more money, just invent some unconventional fees. But Minister Si said in the past that the company was originally meant to 'win over distant peoples.' As long as it doesn't operate at a loss, that's sufficient. Don't be stingy and charge for everything—if they earn well, let the Tax Bureau go after them for income tax."
 
-"Minister Si is right." Xu Yanliang didn't know whether to laugh or cry. Thinking, your words are light! Indeed, the Tax Bureau has a hundred thousand ways to "adjust income," and he did not doubt that the Senate could obtain a huge amount of tax revenue from these people every year. The problem was that this money wouldn't go into the pocket of the Southeast Asia Company.
+"Minister Si makes a fair point." Xu Yanliang didn't know whether to laugh or cry. *Easy for you to say!* Indeed, the Tax Bureau had a hundred methods to "adjust income," and he had no doubt the Senate extracted enormous tax revenue from these traders every year. The problem was that this money wouldn't flow into the Southeast Asia Company's coffers.
 
-But this also reminded him that there was not much potential to be tapped on the Senate's current Nanyang route. It was difficult for the newly established Nanyang Company to get rich just by relying on traditional China-Nanyang trade; it had to find another way. Not just routes, but also commodities.
+But the conversation had given him something to consider. There was limited potential to be tapped on the Senate's existing Nanyang routes. The newly established Nanyang Company would struggle to prosper by relying solely on traditional China-Nanyang trade. It needed to find new paths—not just new routes, but new commodities.
 
-He thought of bone china. Since this thing was developed, someone proposed to export it. However, export kilns in Fujian and other places had ample supply sources. Neither foreign trade companies nor the later established China Merchants Bureau had enough interest in this new product. After all, the production cost of bone china was much higher, and the output was not high enough. Except for a small amount exported as high-end porcelain, it did not occupy a large export share.
+He thought of bone china. Since its development, someone had proposed exporting it. However, export kilns in Fujian and elsewhere had ample supplies. Neither the foreign trade companies nor the later-established China Merchants Bureau had shown much interest in this new product. After all, bone china's production costs were much higher and output remained low. Except for small quantities exported as high-end porcelain, it hadn't captured a significant export share.
 
-However, recently Engineer Qi developed a new process for bone china, which should be able to significantly increase output and reduce costs. The Nanyang Company could promote this product as a future main product.
+However, Engineer Qi had recently developed a new bone china production process that should significantly increase output while reducing costs. The Nanyang Company could promote this product as a future flagship commodity.
 
-Another commodity he thought of was "ice blocks." This business was not unconventional, but an old business in the old spacetime. In the 19th century, merchant ships from Europe and America trading in East Asia, having no goods to transport, were often stuffed with sawdust for insulation to transport ice blocks from Europe and America to India, East Asia, and Southeast Asia for sale, profiting handsomely.
+Another commodity came to mind: ice. This wasn't novel—it had been a thriving business in the old spacetime. In the nineteenth century, European and American merchant ships trading in East Asia, lacking cargo for return voyages, often stuffed their holds with sawdust-insulated ice from Europe and America to sell in India, East Asia, and Southeast Asia for handsome profits.
 
-In May 1833, American merchant Tudor sent the "Tuscany" carrying 180 tons of ice from Boston, sailing directly to Calcutta, crossing the equator twice along the way. The loaded ice had to remain unmelted for four months. The Tuscany arrived at the destination as expected. The people there saw natural ice as rare and a delicacy, so this first ship of ice made a huge profit, also making Tudor famous, and the ice transportation business between Boston and the Far East developed rapidly. Based on the experience gained in the Caribbean, Tudor built an icehouse in Calcutta and urged local Anglo-Indian mixed-race people to buy household refrigerators, cold drink makers, and the like; he took out apples, butter, and cheese refrigerated on the ship to share with everyone, trying to influence their eating habits.
+In May 1833, American merchant Frederic Tudor dispatched the *Tuscany* carrying 180 tons of ice from Boston directly to Calcutta, crossing the equator twice en route. The loaded ice had to remain frozen for four months. The *Tuscany* arrived on schedule. The locals regarded natural ice as a rare delicacy, and this first shipment made huge profits, catapulting Tudor to fame. The ice trade between Boston and the Far East expanded rapidly. Drawing on experience gained in the Caribbean, Tudor built an icehouse in Calcutta and encouraged local Anglo-Indians to purchase household refrigerators and cold drink makers. He shared refrigerated apples, butter, and cheese from his ships with everyone, seeking to transform their eating habits.
 
-Soon, Boston's ice reached everywhere and was successful everywhere. In 1846, Boston exported 65,000 tons of ice; ten years later, the total amount more than doubled, with 400 ship voyages, selling to more than 50 places including the United States, the Caribbean, South America, and India, China, the Philippines, and Australia in the East. Ice became an important commodity and a major cargo of New England in the world market.
+Soon, Boston's ice was reaching everywhere—and succeeding everywhere. In 1846, Boston exported 65,000 tons of ice; ten years later, the total had more than doubled, with 400 ship voyages selling to over fifty destinations including the United States, the Caribbean, South America, and in the East—India, China, the Philippines, and Australia. Ice had become a major commodity and a significant export of New England in world markets.
 
-Guangzhou, China's foreign port at that time, was also an important sales market for European and American ice blocks. Now the business in Guangdong was not for the Nanyang Company to do, but in places like India and Southeast Asia, the ice business was still completely blank.
+Guangzhou, China's foreign port at the time, had also been an important market for European and American ice. Now, the Guangdong business was outside the Nanyang Company's purview, but in India and Southeast Asia, the ice trade remained completely untapped.
 
-Thinking of this, he suddenly felt like he had discovered a new continent and asked: "Is there a cold storage here?"
+Struck by this realization, he suddenly felt he had discovered a new continent. "Is there a cold storage facility here?"
 
-"Yes. There are several." Tang Zheng was stunned, thinking why the Chief asked about cold storage; this was only used by fishery cooperatives and food processing factories. They only bought some ice in summer to cool down, "If Chief wants ice blocks, I'll send people to buy them right away..."
+"Yes. Several of them." Tang Zheng was puzzled—why was the Chief asking about cold storage? These were only used by fishery cooperatives and food processing factories. They just purchased some ice in summer for cooling. "If you want ice blocks, Chief, I'll send people to buy some right away..."
 
-"No need, just send someone to ask each ice house what their maximum output is and what the local demand is."
+"No need. Just send someone to inquire at each ice house about their maximum output and the local demand."
 
 **(End of Chapter)**

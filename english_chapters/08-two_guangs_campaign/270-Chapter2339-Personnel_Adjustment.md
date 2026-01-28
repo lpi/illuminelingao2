@@ -1,105 +1,105 @@
 # Chapter 2339 - Personnel Adjustment
 
-Zhao Manxiong narrowed his eyes, saying after a half while: "I see we have no choice, must do it in one step: Let key figures fully understand our goodwill, know the benefits of mutual cooperation. Other people with ulterior motives sowing dissension can't stir up waves anymore."
+Zhao Manxiong narrowed his eyes. After a long moment, he said: "As I see it, we have no choice but to take a decisive step: ensure that key figures fully understand our goodwill and recognize the benefits of mutual cooperation. Then others with ulterior motives who try to sow dissension won't be able to stir up waves."
 
-His subordinates looked at him with surprise, seeming not to believe.
+His subordinates stared at him in surprise, as if unable to believe what they were hearing.
 
-"You are asking a tiger for its skin." You Guotuan shouted.
+"You're asking a tiger for its skin," You Guotuan exclaimed.
 
-"Not so far, at most can be counted as a pinch of fur." Zhao Manxiong said, "Giving a reminder at critical moment is beneficial to us all."
+"Not quite that extreme—at most, perhaps a pinch of fur." Zhao Manxiong said. "Providing a reminder at a critical moment benefits everyone."
 
-"Director Zhao, is this matter reliable?"
+"Director Zhao, is this approach reliable?"
 
-"To me it's very simple. I," he looked around, "am also a Senator. Not Hoover, nor Beria. And him? Neither Roosevelt, Truman nor Stalin or Khrushchev. If he is smart enough, should understand my meaning."
+"To me, it's very simple. I"—he looked around at them—"am also a Senator. Not Hoover, not Beria. And him? He's neither Roosevelt, Truman, Stalin, nor Khrushchev. If he's smart enough, he'll understand my meaning."
 
-Zhou Botao immediately understood his meaning. He was slightly excited: "I understand. If really tearing face skin to knock down Pol-Sec Bureau, we can also go the opposite way. NND (Damn it), you know how to manipulate public opinion, we don't?"
+Zhou Botao grasped his intention immediately. He grew slightly excited. "I understand. If they really tear off all pretense and try to destroy the Pol-Sec Bureau, we can turn the tables. Damn it—you know how to manipulate public opinion? So do we."
 
-"Sacred power entrusted to Senators by the Senate, isn't it a pity not to use?" You Guotuan laughed, "We are staying in Lushan for long, eyes blinded (cannot see the true face of mountain)!"
+"The sacred power entrusted to Senators by the Senate—what a waste not to use it?" You Guotuan laughed. "We've been on the mountain so long we can't see the mountain anymore!"
 
-"Our Director Zhao still sees very clearly." Wu Fo threw a flatter, but he was still relatively prudent, "But our power isn't big enough."
+"Our Director Zhao still sees clearly." Wu Fo offered the flattery, though he remained relatively cautious. "But our strength isn't that great."
 
-"Strong and weak can be transformed. After all things are in constant development and change." Zhao Manxiong said, "Of course, I personally extremely don't wish to walk to this step. After all we are riding on the same boat, doing the common cause, just different views and political opinions. Some contradictions better not be expanded."
+"Strength can be transformed. After all, things are in constant flux." Zhao Manxiong said. "Of course, I personally have absolutely no wish to go that far. We're all in the same boat, working toward the same cause—just with different views and political opinions. Some contradictions are better left unexpanded."
 
-He muttered to himself for a moment and said: "I have one more thing, want to notify everyone. Considering current situation, our personnel needs an adjustment."
+He muttered to himself for a moment, then said: "There's one more thing I need to inform everyone about. Considering the current situation, our personnel needs adjustment."
 
-Three Section Chiefs looked at him somewhat nervously.
+The three Section Chiefs looked at him somewhat nervously.
 
-"I consider, my personal resume is probably the object of some people's dread. Although I never worked in strong power organs. But my major and research direction probably make people generate many associations. I didn't consider this point in the past." He smiled slightly, "They all call us Cosplay Masters, but in heart don't think so."
+"I've been thinking—my personal background is probably what causes certain people to feel uneasy. Although I never worked in any strong-arm agency, my academic major and research focus likely generate many associations. I hadn't considered this point before." He smiled slightly. "They call us Cosplay Masters, but in their hearts they don't believe it for a second."
 
-"You want to resign?" Several people shouted out simultaneously. Wu Fo rushed to say: "You are the core of our department!"
+"You want to resign?" Several voices spoke at once. Wu Fo rushed to add, "You're the core of this department!"
 
-For a time the conference room was full of voices of "The King cannot leave".
+For a moment the conference room filled with cries of "The King cannot leave."
 
-"No, no, I don't intend to resign, nor will leave Pol-Sec Bureau." Zhao Manxiong said, "I just consider our current situation, still have to do some things making Senators reassured. So I consider doing some, adjustment, to the Bureau's personnel."
+"No, no—I don't intend to resign, nor will I leave the Pol-Sec Bureau." Zhao Manxiong said. "I'm merely considering that given our current situation, we need to do something to reassure the Senators. So I'm considering making some adjustments to the Bureau's personnel."
 
-"We absolutely support any adjustment you make." Three people immediately stated stance.
+"We absolutely support any adjustment you make," the three stated immediately.
 
-"Fine. Considering outside has an impression of 'monolithic block' on our department. I personally also feel there is such a trend. Now since there is a decision to strengthen local branches of Pol-Sec system. Preparing to arrange comrades to go to local sub-bureaus to serve as Directors—Wu Fo stay, you do technology, going to local place has no big space to display, better stay in General Bureau. Of course I am also asking for opinions."
+"Good. Considering that outsiders view our department as a 'monolithic block'—and I personally sense that tendency developing—now that there's been a decision to strengthen local branches of the Pol-Sec system, I'm preparing to assign comrades to serve as Directors of local sub-bureaus. Wu Fo, you stay—you do technical work, and going local wouldn't give you much room to excel. Better to remain at headquarters. Of course, I'm asking for your opinions."
 
-"I have no opinion." Wu Fo wasn't interested in being dispatched to be Director, answering immediately.
+"I have no objection." Wu Fo had no interest in being dispatched as a Director and answered immediately.
 
-"We have no opinion either."
+"Nor do we."
 
-"Fine, You Guotuan, you are counted as the youngest in our bureau besides Comrade Wu Mu. The Senate prepares to designate Foshan as experimental field, letting kids (2nd gen/young Senators) toss about..." Zhao Manxiong said, "Originally Pol-Sec system prepared to hand over to a certain one among them, but the Senate thought doing so was too assuming (trusting/risky). So want us to select and dispatch a Senator to serve as Foshan Sub-Bureau Director. I looked, You Guotuan you are the youngest among us, and have rich experience. Suitable for this position."
+"Good. You Guotuan—you're among the youngest in our Bureau besides Comrade Wu Mu. The Senate is preparing to designate Foshan as an experimental field and let the young ones have a go at things..." Zhao Manxiong said. "Originally the Pol-Sec system was going to be handed over to one of them, but the Senate felt that was too risky. So they want us to select and dispatch a Senator to serve as Foshan Sub-Bureau Director. Looking at our options, You Guotuan, you're the youngest among us and have rich experience. You're suitable for this position."
 
-"This is a good job of carrying sedan chair." You Guotuan laughed.
+"This is a good sedan-chair-carrying job," You Guotuan laughed.
 
-"Good if say good, bad if say bad. Foshan's situation is second only to Guangzhou in complexity in whole Guangdong. The Senate has great expectations for there; kids themselves also have political opinion divergences. Probably there will be many contradictions in specific administration." Zhao Manxiong said, "You must remember, you go for escorting (protecting), first must guarantee kids' absolute safety; second give more suggestions on business, handing decisive things to the other party to do. This is training for them. Third must act according to regulations!"
+"Good if done well, bad if done poorly. Foshan's complexity is second only to Guangzhou in all of Guangdong. The Senate has high expectations for the place, and the young ones themselves have political disagreements among them. There will probably be many contradictions in actual administration." Zhao Manxiong said. "You must remember: you're going there as an escort. First, you must guarantee their absolute safety. Second, offer professional advice, but leave the decision-making to them—this is their training. Third, you must act according to regulations."
 
-"I understand." You Guotuan nodded solemnly.
+"Understood." You Guotuan nodded solemnly.
 
-"As for Comrade Zhou Botao, your task is going to Wuzhou, later also responsible for managing Pol-Sec work in Guangxi aspect. To be honest, your difficulty is biggest. Because that place Guangxi, even extensive management like Great Ming had great deficiency. You going to take charge of Guangxi work, probably will have great difficulty."
+"As for Comrade Zhou Botao, your assignment is Wuzhou. Later you'll also be responsible for managing Pol-Sec work throughout Guangxi. Honestly speaking, your difficulty is the greatest. Guangxi—even under the loose management of the Great Ming—was severely deficient. Going there to take charge of Guangxi work will probably be enormously challenging."
 
-Although he said difficulty, this also meant he was promoted to a Regional Level Pol-Sec position. Zhou Botao naturally understood Zhao Manxiong's meaning; going to Wuzhou had heavy responsibility, but boundless prospects. Whether able to master it depended entirely on his ability.
+Though he spoke of difficulty, this also meant promotion to a Regional-Level Pol-Sec position. Zhou Botao naturally understood Zhao Manxiong's meaning: going to Wuzhou carried heavy responsibility but boundless prospects. Whether he could master the situation depended entirely on his ability.
 
-Zhou Botao was steady by nature, nodding silently.
+Zhou Botao was steady by nature; he nodded silently.
 
-"Then is adjustment inside our Bureau. Obviously, we have to introduce some outsiders who won't make comrades feel unsteady when sleeping to serve important positions..."
+"Then there's the adjustment within our Bureau. Obviously, we need to bring in some outsiders who won't make comrades uneasy when they sleep, to fill important positions..."
 
-"Whom do you plan to choose? Not a Senator in the Bureau?" You Guotuan was very worried about the Bureau's future; hearing about introducing outsider, asked immediately.
+"Whom do you plan to choose? Someone outside the Bureau?" You Guotuan was deeply concerned about the Bureau's future; hearing about bringing in an outsider, he asked immediately.
 
 "Comrade Guo Yi."
 
-Zhao Manxiong had been calculating this abacus for a stage—precisely speaking, before Liangguang Strategy started, after learning news that Guo Yi wouldn't stay in Guangzhou but would have other appointment, he had such a plan.
+Zhao Manxiong had been calculating this move for some time—precisely speaking, since before the Liangguang Strategy began, when he learned that Guo Yi wouldn't be staying in Guangzhou but would receive another assignment.
 
-Senators' certain dread of him personally, this was a problem he couldn't solve. The only way was introducing people who could make them feel at ease to the Bureau to serve positions. This was a very hard to choose candidate. First, he must make all sides at ease; second, he must have certain professional ability, at least behaving "capable", to make others produce the feeling that this person could "check and balance" him.
+The Senators' wariness of him personally was a problem he couldn't solve. The only solution was to bring people into the Bureau who could put them at ease. This was an extremely difficult candidate to find. First, the person had to reassure all parties. Second, they needed certain professional abilities—at minimum, they had to appear "capable" enough to create the impression that this person could "check and balance" him.
 
-The first candidate in his heart originally was Ji Xin. His "indisputable with the world" and detached attitude having no entanglement with all aspects had deep impression among Senators, a candidate acceptable to all sides. He was responsible for thorny case investigation work many times, himself from legal background, could be counted as "professional personnel". And he had private conversations with Ji Xin many times, believing this person had sufficient public heart, completely could cooperate.
+His first choice had actually been Ji Xin. Ji Xin's "indifferent to worldly affairs" and detached attitude, free from entanglements with any faction, had left a deep impression among Senators—a candidate acceptable to all sides. He had handled thorny case investigations many times and came from a legal background; he could be considered "professional personnel." And through private conversations, Zhao Manxiong believed this person possessed sufficient public spirit; cooperation was entirely possible.
 
-He considered asking Ma Jia to resign, yielding the position of Chief Director to Ji Xin to serve. But he considered once Ma Jia left office, his most direct supporter in high level would lose pivot point. Ma Jia was a very good leader, not only holding powerful political resources sufficient to shelter Pol-Sec Bureau from wind and rain, but also important intermediary for his contact with high level. If he lost the title of "Director", many things in the future would be hard to open mouth.
+He had considered asking Ma Jia to resign, yielding the Chief Director position to Ji Xin. But he realized that once Ma Jia left office, he would lose his most direct supporter at the highest levels. Ma Jia was an excellent leader—not only commanding political resources sufficient to shelter the Pol-Sec Bureau from storms, but also serving as a crucial intermediary for his contacts with the upper echelon. If Ma Jia lost the Director title, many future matters would become difficult to broach.
 
-After thinking again and again, he gave up the candidate Ji Xin. Turned gaze to Guo Yi.
+After much deliberation, he abandoned Ji Xin as a candidate and turned his attention to Guo Yi.
 
-If speaking of profession solely, then in whole Senate Guo Yi was the most professional Senator. However, after D-Day, he consistently did business work irrelevant to his own profession.
+Speaking purely of profession, Guo Yi was the most professionally qualified Senator in the entire Senate. Yet since D-Day, he had consistently done business work unrelated to his specialty.
 
-First he was professional enough, absolutely would leave deep impression on people; second, he was an independent person, like Ming Lang, a thorough outsider; and in Guangzhou for many years, having no power in Lingao. Cautious and timid usually, impression left on everyone was quite good. In other words, a person acceptable by all sides.
+First, he was professional enough to leave a deep impression on everyone. Second, he was an independent figure—like Ming Lang, a thoroughgoing outsider. Having spent many years in Guangzhou, he had no power base in Lingao. Usually cautious and timid, the impression he left on everyone was quite favorable. In other words, a person acceptable to all sides.
 
-"He is a suitable person, surely nothing to say on profession." Wu Fo said somewhat worriedly, "But haven't given him contact with profession for many years, now we propose, Senate public opinion..."
+"He's a suitable person—certainly nothing to fault on the professional side," Wu Fo said somewhat worriedly. "But he hasn't touched his specialty for many years. If we nominate him now, Senate opinion..."
 
-"Comrade Guo Yi has been in Guangzhou for many years, proved his loyalty long ago." Zhao Manxiong said, "Impression he left on everyone is also quite good. So I nominate him to succeed Pol-Sec Bureau serving as Second Deputy Director concurrent Reconnaissance Section Chief, high probability can get passed."
+"Comrade Guo Yi has been in Guangzhou for many years and has long since proven his loyalty." Zhao Manxiong said. "The impression he's left on everyone is quite good. So if I nominate him to serve as Second Deputy Director of the Pol-Sec Bureau, concurrently serving as Reconnaissance Section Chief, there's a high probability it will pass."
 
-"Letting him be Second Deputy Director?" Zhou Botao was somewhat uneasy, "Is this rising too fast?! Can the Senate agree?"
+"Making him Second Deputy Director?" Zhou Botao was somewhat uneasy. "Isn't that rising too fast? Will the Senate agree?"
 
-"His rank and seniority in the Senate are completely enough. Besides, if he cannot be Deputy Director, it won't play the function of making some people reassured."
+"His rank and seniority in the Senate are completely sufficient. Besides, if he can't be Deputy Director, he won't serve the function of reassuring certain people."
 
 "I understand."
 
-"As for Action Section Chief, I consider asking Comrade Zhou Dongtian to serve. He actually counts as a professional too. Of course direction is not quite same as ours. Has long-term cooperative relationship with us and National Police."
+"As for Action Section Chief, I'm considering asking Comrade Zhou Dongtian to serve. He's actually somewhat professional too—though his focus isn't quite the same as ours. He has a long-standing cooperative relationship with both us and the National Police."
 
-This candidate could be accepted by all sides, and also played the role of contacting National Police. Key was he had long-term cooperative relatinoship with Pol-Sec Bureau; after joining there wouldn't be obstacles in cooperation. Everyone had no objection.
+This candidate could be accepted by all sides and would also serve as a liaison with the National Police. Critically, he had a long-term cooperative relationship with the Pol-Sec Bureau; joining wouldn't create obstacles in cooperation. No one objected.
 
-"Finally, our Office Director post has been vacant ever since Comrade Wu Mu went to Guangzhou. This post shouldn't be vacant for long, so I consider letting Comrade Chen Baibin serve. He performed very outstandingly in Wuzhou Incident investigation work recently."
+"Finally, our Office Director position has been vacant ever since Comrade Wu Mu went to Guangzhou. This post shouldn't remain empty for long, so I'm considering asking Comrade Chen Baibin to serve. He performed very impressively in the recent Wuzhou Incident investigation work."
 
-Chen Baibin actually participated in investigation work many times. This time going to investigate Wuzhou Incident with Ji Xin, established friendship with Ji Xin, joined Indigenous Protection Association after returning. Although he counted as "old person" of Pol-Sec Bureau too, Zhao Manxiong's flaire was little, instead Ji Xin's color was relatively more. Having him serve this key post was equivalent to indirectly establishing certain association with Ji Xin.
+Chen Baibin had actually participated in investigations many times. Going to Wuzhou with Ji Xin for this investigation, he had formed a friendship with Ji Xin and joined the Indigenous Protection Association after returning. Though he was also an "old person" of the Pol-Sec Bureau, Zhao Manxiong's influence on him was slight—Ji Xin's influence was much greater. Having him serve this key post was equivalent to indirectly establishing a connection with Ji Xin.
 
-Next he made some "oral arrangements" regarding next step work. After everything arranged properly and attendees dispersed, he picked up the handset, cranked a few times:
+Next, Zhao Manxiong made some "oral arrangements" regarding the next phase of work. After everything was properly arranged and the attendees had dispersed, he picked up the telephone handset and cranked it several times:
 
-"I am Zhao Manxiong, please connect Comrade Xiao Zishan of Senate General Office."
+"This is Zhao Manxiong. Please connect me to Comrade Xiao Zishan at the Senate General Office."
 
-He waited silently for a few minutes; call connected.
+He waited silently for a few minutes until the call connected.
 
-"Comrade Director, I am Zhao Manxiong, I have a matter needing your help."
+"Comrade Director, this is Zhao Manxiong. I have a matter requiring your assistance."
 
-Unknown what Xiao Zishan said in the phone, Zhao Manxiong smiled slightly, saying: "You worried too much. It is like this, I want to ask you to help me arrange a meeting..."
+Whatever Xiao Zishan said on the other end, Zhao Manxiong smiled slightly. "You worry too much. It's like this—I'd like you to help me arrange a meeting..."
 
 **(End of Chapter)**

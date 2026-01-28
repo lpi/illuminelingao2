@@ -1,127 +1,129 @@
 # Chapter 2115 - Three Siege Strategies
 
-Yi Haoran had barely stepped out the door when he saw the courtyard filled with kneeling civilians.
+Yi Haoran had barely crossed the threshold when he beheld his courtyard transformed into a tableau of supplication—kneeling civilians packed every available space.
 
-Though they were all commoners without official rank, these were the "prominent figures" among the populace: mostly prosperous merchants, along with some "venerable elderly" of advanced age.
+Though none possessed official rank, these were "prominent figures" among the merchant class: mostly prosperous traders, along with several "venerable elders" whose advanced years commanded respect.
 
-At their head was none other than Guild-master Qiao of the Rice Guild.
+At their head knelt none other than Guild-master Qiao of the Rice Merchants' Guild.
 
-In ordinary times, Guild-master Qiao was the picture of a well-fed, dough-faced rich man. Now he wore simple cotton clothes and knelt at the foot of the steps, wailing as if in mourning. The moment he saw Yi Haoran emerge, he immediately raised his voice in lamentation.
+In ordinary circumstances, Guild-master Qiao presented the picture of a well-fed, dough-faced merchant prince. Now he wore plain cotton garments and knelt at the foot of the entrance steps, wailing as though attending a funeral. The moment Yi Haoran emerged, the guild-master raised his voice in theatrical lamentation.
 
-"Master Yi, you must save the people of this city…"
+"Master Yi, you must save the people of this city..."
 
-At his cry, the crowd kneeling behind him burst into wailing as well, making Yi Haoran's courtyard sound like a funeral.
+At his cry, the mob kneeling behind him erupted in collective wailing, transforming Yi Haoran's courtyard into a cemetery of living mourners.
 
-Yi Haoran hastily bowed and clasped his fists. "I dare not accept such courtesy! Elders, please rise and speak. This is too much—I cannot bear such honor!"
+Yi Haoran hastily returned a respectful bow. "I dare not accept such courtesy! Elders, please rise and speak plainly. This is excessive—I cannot bear such honor!"
 
-Inwardly he was puzzled: these visitors were mostly local merchants, along with a few neighborhood headmen. Though they weren't "gentry," they were people of standing in the city—folk whom the prefectural and county yamen took seriously. Why had they all come running to his place to weep and wail?
+Inwardly he puzzled over this unexpected delegation. These visitors comprised mostly local merchants, supplemented by several neighborhood headmen. Though they didn't qualify as "gentry" in the strict sense, they represented individuals of genuine standing—folk whom the prefectural and county yamen treated with considerable deference. Why had they all converged on his modest quarters to weep and wail?
 
-He held no high position in the Governor's staff—originally just a "rice-stealer" taking up space. His status was lower even than the entertaining jesters who made jokes for the great man's amusement. Only because of the new army training had he become a "favorite"—nominally in charge of the staff's "military desk." But precisely because he dealt with military matters, his social contacts were mostly officers, soldiers, and local civil officials. Local gentry and magnates rarely called on him.
+His position within the Governor's staff hardly merited such attention. Originally he had been merely a "rice-stealer"—occupying space without purpose. His status ranked lower than the entertaining jesters who made jokes for the great man's amusement. Only the new army training program had elevated him to "favorite" status, with nominal responsibility for the staff's "military desk." But precisely because he dealt with military affairs, his social network consisted primarily of officers, soldiers, and civil officials. Local gentry and magnates rarely sought his counsel.
 
-Now this crowd of "people's representatives" had come looking for him—obviously it was about the city's defense.
+Now this delegation of "people's representatives" had sought him out specifically—obviously concerning Wuzhou's defense.
 
-Guild-master Qiao refused to rise. He continued to wail at the ground: "Master Yi, you must save the people of Wuzhou…"
+Guild-master Qiao refused to rise. He continued prostrating himself, wailing: "Master Yi, you must save the people of Wuzhou..."
 
-"What exactly is the matter? Guild-master Qiao, please rise and explain. Whatever is in my power, I'll do my best."
+"What exactly troubles you? Guild-master Qiao, please stand and explain. Whatever lies within my power, I shall exert my utmost effort."
 
-Qiao seemed to judge the moment was right. Only then did he struggle to his feet, wiping his tears as he spoke: "Since Governor Xiong arrived with the officials and officers from Guangdong, Wuzhou has done everything possible to support them. The wine, meat, and silver to reward the troops, the grain and fodder the army needs—every time, we've delivered promptly. Take me, for example: I'm just a rice dealer, but I donated five hundred taels of silver and five hundred *shi* of rice. On top of that, three thousand *shi* were requisitioned at only a third of the market price—and I didn't dare say a word."
+Qiao apparently judged the theatrical moment sufficient. He struggled to his feet, wiping theatrical tears as he spoke: "Since Governor Xiong arrived with his Guangdong officials and officers, Wuzhou has exhausted itself in support. The wine, meat, and silver to reward troops, the grain and fodder the army requires—each time, we've delivered promptly without complaint. Take my humble self as example: I'm merely a rice dealer, yet I donated five hundred taels of silver and five hundred *shi* of rice. Beyond that, three thousand *shi* were requisitioned at merely one-third market value—and I dared not voice the slightest objection."
 
-At this, the others chimed in with their own complaints. Some said soldiers came to their shops demanding goods without payment, and they dared not ask for money. Others lamented the endless requisitions—things they didn't have, they had to buy and deliver, and they didn't dare fall short. Still others sobbed that soldiers had demanded women to "wash clothes"; handing over maidservants wasn't enough—they wanted household women too; only silver had finally bought a reprieve.
+This sparked a chorus of grievances from the others. Some complained that soldiers had raided their shops demanding goods without payment, leaving them too terrified to request compensation. Others lamented the relentless requisitions—forced to acquire and deliver goods they didn't possess, daring not to fall short on any demand. Still others sobbed that soldiers had demanded women to "wash clothes"—offering maidservants proved insufficient, they wanted household women; only substantial silver bribes had finally bought reprieve.
 
-This chorus of grievances left Yi Haoran impatient—he had heard such stories countless times. Of course, the "notables" were establishing that they had "done right" by the government and the army, laying the groundwork for whatever request would follow.
+This litany of complaints left Yi Haoran impatient—he had heard identical stories countless times. Obviously, these "notables" were establishing that they had "fulfilled their obligations" to government and army, laying groundwork for whatever request would follow.
 
-He quickly spoke up: "All these matters are known to Governor Xiong. It's simply that military affairs are urgent and discipline has slipped. The brothers have marched a long way and live on a knife's edge—a little inconvenience is inevitable. Please, elders, bear with it." Then, lowering his voice to Guild-master Qiao, he asked: "What exactly is the pressing matter?"
+He quickly interjected: "All these matters are known to Governor Xiong. Military affairs demand urgency; discipline has naturally suffered some degradation. The brothers have marched great distances and live perpetually on the knife's edge—minor inconveniences are inevitable. Please, elders, exercise patience." Then, lowering his voice to address Guild-master Qiao directly: "What constitutes the pressing matter?"
 
-"Today the Governor's yamen sent Master Chang around distributing invitations—the Governor wants to host a banquet for the city's merchants and discuss the city's defense."
+"Today the Governor's yamen dispatched Master Chang distributing invitations throughout the city—the Governor wishes to host a banquet for merchants and discuss the city's defense."
 
-Yi Haoran nodded. "I've heard about this."
+Yi Haoran nodded. "I've heard of this."
 
-"If it's for the city's defense, we'd certainly attend. But there's a rumor that Master Chang has offered Governor Xiong three poisonous stratagems—stratagems that may harm the Hair-Bandits but will devastate the people of this city, killing a thousand to wound five hundred—a ruinous, line-ending scheme!"
+"If truly concerning the city's defense, we would certainly attend. But rumor suggests Master Chang has proposed three poisonous stratagems to Governor Xiong—measures that may harm the Hair-Bandits but will devastate Wuzhou's people. These are tactics that kill a thousand to wound five hundred—a ruinous, lineage-ending scheme!"
 
-Yi Haoran was startled: the arson plan had been secret. Few knew about it. Even though most of the gentry had fled to the countryside or the mountains, many with official degrees remained in the city. A great fire would certainly kill not a few of them. If anyone raised a fuss afterward, it wouldn't be easy to manage, even if they tried to blame the Hair-Bandits or the Wolf Soldiers.
+Yi Haoran's blood froze. The arson contingency had been maintained in strict secrecy. Few possessed knowledge of it. Even though most gentry had fled to countryside estates or mountain retreats, many officials holding examination degrees remained trapped within the walls. A great conflagration would certainly kill substantial numbers among them. Should anyone raise formal complaints afterward, managing the political consequences—even attempting to blame the Hair-Bandits or Wolf Soldiers—would prove extraordinarily difficult.
 
-He quickly said: "There's no such thing…"
+He hastily protested: "No such thing exists..."
 
-Even as he spoke, he realized he had slipped: Guild-master Qiao hadn't yet said what the "three poisonous stratagems" were!
+Even as the denial escaped his lips, he realized his catastrophic error. Guild-master Qiao hadn't yet specified what the "three poisonous stratagems" *were*!
 
-Sure enough, he saw a glint of shrewdness flash in the old man's tear-reddened eyes.
+Sure enough, he detected a flash of cunning shrewdness in the old merchant's tear-reddened eyes.
 
-Bad! The old fox caught that!
+Disaster! The fox caught that slip!
 
-Yi Haoran hurried to add: "Master Chang is an upright man; he wouldn't propose such ruinous schemes. It's only a rumor…"
+Yi Haoran scrambled to recover: "Master Chang is upright by nature—he would never propose such destructive schemes. This is merely rumor..."
 
-Even as he said it, his face burned.
+Even as he spoke, his face burned with shame.
 
-Guild-master Qiao said: "It's rumored that Master Chang advised Governor Xiong to seize all the stored grain in the city, conscript every able-bodied man into militia, and expel all women, children, and the elderly outside the walls—we humble folk find all three of these unwise!"
+Guild-master Qiao said: "Rumor claims Master Chang advised Governor Xiong to seize all stored grain citywide, conscript every able-bodied man into militia, and expel all women, children, and elderly beyond the walls. We humble merchants find all three measures profoundly unwise!"
 
-Hearing that the arson plan wasn't mentioned, Yi Haoran let out a breath of relief. These three measures might well be real.
+Hearing no mention of the arson plot, Yi Haoran exhaled quietly in relief. These three measures might indeed be genuine proposals.
 
-As long as they weren't burning the city, Wuzhou could at least preserve some vitality. Expelling the women and elderly was cruel, but it gave them a chance at survival—the Hair-Bandits were famously "benevolent" and wouldn't slaughter civilians. They might even provide relief.
+As long as they weren't incinerating Wuzhou, the city could at least preserve some vitality. Expelling women and elderly was cruel, but offered them survival opportunities—the Hair-Bandits were famously "benevolent" and wouldn't slaughter civilians indiscriminately. They might even provide relief grain.
 
-Still, since the "elders" had come, he had to offer them some reassurance.
+Still, since the "elders" had come seeking reassurance, he needed to offer some response.
 
-Before he could open his mouth, Guild-master Qiao continued: "Master Qiao speaks truly. Yet if grain is seized, the city's morale will certainly collapse. Conscripting every man for defense is all well and good, but most are untrained—on the battlefield, they'd simply fill the ditches. And if women, children, and the elderly are expelled, what man inside the walls would risk his life to hold it?"
+Before he could formulate words, Guild-master Qiao continued: "What I say is true. Yet if grain is forcibly seized, the city's morale will certainly collapse entirely. Conscripting every man for defense sounds admirable, but most lack any training—on battlefields, they would simply fill mass graves. And if women, children, and elderly are expelled, which man inside these walls would risk his life defending them?"
 
-"What Master Qiao says is true. But these are only rumors after all." Yi Haoran thought: as long as you have no evidence, I'll just insist it's a rumor—what can you do about it?
+"Master Qiao speaks with wisdom. But these remain merely rumors after all." Yi Haoran calculated: as long as you possess no concrete evidence, I'll simply insist it's unfounded rumor—what recourse do you possess?
 
-"How can Master Yi still call them rumors!" Guild-master Qiao said. "Right now, soldiers are going door to door searching for grain—so-called 'searching,' but actually looting!"
+"How can Master Yi still characterize them as rumors!" Guild-master Qiao's voice rose. "Right now, soldiers are conducting door-to-door searches for grain—so-called 'searching,' but actually looting!"
 
-As if to prove his point, a shrill scream suddenly came from the distance, then cut off abruptly. Everyone flinched.
+As if choreographed to validate his claim, a shrill scream suddenly echoed from the distance, then cut off with unnatural abruptness. Everyone collectively flinched.
 
-"Master Yi! The Hair-Bandits haven't even entered the city, and Wuzhou is already becoming a living hell."
+"Master Yi! The Hair-Bandits haven't even breached the walls, yet Wuzhou is already transforming into a living hell."
 
-Yi Haoran's eyes nearly shot fire. He hadn't expected things to spiral so completely out of control. He bellowed: "Jiang Suo!"
+Yi Haoran's eyes practically shot flames. He hadn't anticipated the situation spiraling this catastrophically beyond control. He bellowed: "Jiang Suo!"
 
-Jiang Suo answered instantly.
+Jiang Suo materialized instantly.
 
-"Take the men here and go out to restore order at once! No soldiers may plunder! The Governor's command token is in my study—fetch it!"
+"Take your men and restore order immediately! No soldier may engage in plunder! The Governor's command token is in my study—fetch it now!"
 
-Orders given, he turned to Guild-master Qiao: "I knew nothing of this. As for the soldiers looting outside, I don't know whether they were acting under orders or not. Please remain calm. I'm going to the Governor's yamen immediately to demand an explanation from Governor Xiong!"
+Orders issued, he turned to Guild-master Qiao: "I knew nothing of this. Regarding the soldiers looting outside, I cannot determine whether they act under orders or purely as rioters. Please remain calm. I'm proceeding to the Governor's yamen immediately to demand explanation from Governor Xiong personally!"
 
-"We thank Master Yi." They all began to kneel again. Yi Haoran had no patience left for their courtesies. He waved them off and told his people to saddle his horse.
+"We thank Master Yi with profound gratitude." They all began prostrating themselves again. Yi Haoran had exhausted his patience for courtesies. He waved them off dismissively and commanded his people to saddle his horse.
 
-Watching Yi Haoran and a dozen servants and guards gallop away, the "notables" who had come to "plead" also hurried home—who knew what shape their own houses were in by now? Only Guild-master Qiao and Luo Yangming, hidden in the crowd, were in no hurry.
+Watching Yi Haoran and a dozen servants and guards thunder away at full gallop, the "notables" who had come to "plead" also hurried homeward—who knew what condition their own residences might be in by now? Only Guild-master Qiao and Luo Yangming, hidden within the crowd, demonstrated no urgency.
 
-"Brother Luo, you were right." Guild-master Qiao's face showed a mix of fear and venom. "These officials are no good! Honey words, hearts of stone!"
+"Brother Luo, your assessment proved entirely accurate." Guild-master Qiao's expression carried equal parts fear and venomous hatred. "These officials are devoid of honor! Honey words masking hearts of stone!"
 
-Luo Yangming felt both relieved and anxious—relieved that Guild-master Qiao now fully believed him; anxious because time was running short. He put on a worried expression: "Things have come to this. I wonder…"
+Luo Yangming felt simultaneous relief and anxiety—relief that Guild-master Qiao now fully believed him;anxiety because time was evaporating rapidly. He assumed a worried expression: "Circumstances have deteriorated to this extreme. I wonder..."
 
-"If he is without honor, then I am without loyalty," Guild-master Qiao said. "If the Australians come to be emperor, what of it?"
+"If he possesses no honor, then I owe no loyalty," Guild-master Qiao declared flatly. "Should the Australians choose to become Emperor, what concern is that of mine?"
 
-"Whether the Australians become emperor doesn't matter. Right now, the situation is…"
+"Whether the Australians assume the dragon throne is irrelevant. At present, the situation demands..."
 
-"Come with me. Let's go back and discuss."
+"Come with me. Let us return and deliberate in private."
 
-Yi Haoran rode at a gallop toward the Governor-General's yamen. The streets were in far worse disorder than before. Everywhere, soldiers were carrying off loot on their shoulders or under their arms—bags and bales of grain, but also all manner of valuables. Some were dragging women by the hair, beaten and bloodied.
+---
 
-On any other day, Yi Haoran would have stopped to reprimand them. Now he had no time. He rode straight to the yamen, leaped from his horse, threw the reins aside, and charged inside.
+Yi Haoran rode at breakneck gallop toward the Governor-General's yamen. The streets exhibited far worse disorder than previously observed. Everywhere, soldiers carried looted goods on shoulders or tucked under arms—sacks and bales of grain predominating, but also every conceivable variety of valuables. Some dragged women by their hair, victims beaten and bloodied.
 
-As a "favorite" of the staff, the servants and guards didn't stop him. Yi Haoran burst into the inner signing room. The Governor-General wasn't there; only Chang Qingyun sat in the flower hall outside, sipping tea with perfect composure.
+On any other day, Yi Haoran would have halted to reprimand them. Now he possessed no time. He rode directly to the yamen compound, leaped from his mount, threw the reins aside carelessly, and charged inside.
 
-Yi Haoran had no patience for pleasantries. He demanded:
+As a recognized "favorite" within the staff hierarchy, servants and guards didn't impede him. Yi Haoran burst into the inner signing chamber. The Governor-General was absent; only Chang Qingyun sat in the exterior flower pavilion, sipping tea with perfect composure.
+
+Yi Haoran dispensed with all pleasantries. He demanded sharply:
 
 "Where is Governor Xiong? I must see him at once."
 
-"Governor Xiong is indisposed and resting," Chang Qingyun replied. "Whatever matter it is, you may tell me. It's all the same."
+"Governor Xiong is indisposed and resting," Chang Qingyun replied evenly. "Whatever matter concerns you, you may communicate it to me. The effect is identical."
 
-Chang Qingyun had always been at odds with Yi Haoran, but his position in the staff was considerably higher. To see Xiong Wencan, Yi Haoran really did have to go through him.
+Chang Qingyun had maintained persistent friction with Yi Haoran, but his position within the staff hierarchy ranked considerably higher. To access Xiong Wencan, Yi Haoran genuinely required Chang Qingyun's intercession.
 
-Suppressing his impatience, he asked: "Is it true that tonight there will be a banquet inviting the city's magnates to discuss the city's defense?"
+Suppressing his volcanic impatience, he asked: "Is it accurate that tonight will feature a banquet inviting the city's magnates to discuss defense measures?"
 
 "It is."
 
-"And that the banquet will announce three siege strategies to be implemented by the magnates and headmen…"
+"And that this banquet will announce three siege strategies to be implemented via the magnates and headmen..."
 
-"Also true."
+"Also accurate."
 
-"Then seizing all stored grain, conscripting all able-bodied men, and expelling women, children, and the elderly outside the walls—all true?"
+"Then seizing all stored grain, conscripting all able-bodied men, and expelling women, children, and elderly beyond the walls—all true?"
 
-Chang Qingyun paused, then nodded: "That too is true."
+Chang Qingyun paused fractionally, then nodded: "That too is accurate."
 
-"So the plan proposed by County Magistrate Chang Pu of Enping is no longer in use?"
+"So the plan proposed by Enping County Magistrate Chang Pu is no longer under consideration?"
 
-Chang Qingyun set down his teacup. "Master Yi, these three strategies are for defending the city to the death. Isn't that exactly what you wanted?"
+Chang Qingyun set down his teacup with deliberate care. "Master Yi, these three strategies constitute defensive measures for fighting to the death. Isn't that precisely your desired outcome?"
 
-Yi Haoran was momentarily taken aback—this was true. Only a siege to the death would require these three measures. Otherwise, why bother with any of it when you could simply set fires?
+Yi Haoran found himself momentarily stunned into silence—this observation was undeniably true. Only a siege prosecuted to total annihilation would necessitate these three measures. Otherwise, why implement any of this when simple arson would suffice?
 
 *(End of Chapter)*

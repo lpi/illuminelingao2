@@ -1,87 +1,85 @@
 # Chapter 2181 - Shijian (Part 1)
 
-On the front, Li Gangsheng withstood the "pig rush" (human wave attack) of the regiment braves, and on the flank, the "surprise attack" by the small squad of bird-gunners led by Ma Huliang was also beaten back by a volley from Squad 9. Ma Huliang didn't possess the "fearless bravery" of Yang Xiaodong; as soon as the blood of the people around him splattered on his face, he immediately ran away.
+At the front, Li Gangsheng held firm against the swarming regiment braves, while on the flank, Squad 9's devastating volley shattered Ma Huliang's attempted pincer attack before it could gain purchase. Unlike Yang Xiaodong's reckless courage, Ma Huliang possessed the survival instinct common to lesser men. The moment his comrades' blood sprayed across his face, he broke and ran.
 
-When the soldiers of the 1st Platoon began to pursue with fixed bayonets, the Yang Family Village regiment braves collapsed instantly. Hundreds of people disbanded in a hubbub. Provincial Graduate Yang was almost trampled to death by the fleeing militia; fortunately, Yang Erhu still remembered his uncle and led a few personal guards to save him from the scattering crowd at the risk of their lives.
+The 1st Platoon's bayonet charge proved the final straw. Yang Family Village's regiment militia disintegrated like smoke. Hundreds of men scattered in chaotic terror—Provincial Graduate Yang himself nearly perished beneath the stampede of his own fleeing forces. Only Yang Erhu's desperate intervention, fighting through the panicked mob with a handful of loyal guards, saved his uncle from trampling.
 
-Seeing the complete defeat, Yang Jinghui was disheartened. Feeling he had no face to see the "village elders" upon return, he drew his sword to slit his throat. Yang Erhu was sharp-eyed and quick-handed, snatching the sword away and saying: "Master, do not lose heart! Losing a battle here doesn't matter. The Hair Rebels are strong but few in number; we just need to avoid their momentum for a while!" With that, he hurriedly ordered a few servants to carry Master Yang and fled in panic.
+Confronted with total defeat, Yang Jinghui's despair overwhelmed him. Unable to face the village elders in disgrace, he drew his sword to end his life. Yang Erhu, quick as lightning, seized the blade from his hands. "Master, steel your heart! This battle means nothing. The Hair Rebels may be formidable, but they are few. We need only weather their momentum!" Without waiting for a response, he ordered servants to bear the provincial graduate away from the killing ground.
 
-By the time the follow-up troops of the 2nd Company arrived, the ambushing village braves had been driven from the battlefield, leaving only a mess of corpses and wounded.
+When the 2nd Company's reinforcements reached the field, they found only the dead and dying—the ambushers long scattered.
 
-However, Li Gangsheng couldn't feel happy at all. It looked like a complete victory, but his platoon actually had three killed on the spot and another ten wounded to varying degrees, two of whom had severe injuries—which were almost synonymous with death.
+Li Gangsheng felt no triumph. Though superficially decisive, the engagement had cost his platoon three dead outright and ten wounded, two critically—which in field conditions meant death merely delayed.
 
-Among the slightly wounded, several also belonged to the category of "unsuitable for combat duty," meaning although they didn't need to be evacuated to the field hospital, they had to leave the company to go to the accompanying "Convalescent Team" to perform some simple field service tasks.
+Several of the lightly wounded fell into the grim category of "unfit for combat duty." While spared evacuation to the field hospital, they would still leave the company for the Convalescent Team, reduced to menial tasks behind the lines.
 
-Calculated this way, out of thirty-four people, the net attrition reached eight, almost one-quarter. Although the enemy abandoned over a hundred corpses on the battlefield and there wouldn't be few captives, no amount of kills and captures could offset his own net attrition.
+The mathematics were brutal: eight casualties from thirty-four effectives—nearly a quarter of his strength gone. The hundred-odd enemy corpses littering the battlefield and the coming tally of prisoners meant nothing against such attrition.
 
-Li Dong led men to search for and arrest captives in the grass. There were militia and village braves everywhere in the bushes who hadn't managed to escape, many of them wounded. Some were actually not seriously injured, but since collecting captives was difficult at the moment, captives who couldn't walk on their own were all unwanted, left in place to survive or die on their own.
+Li Dong led the prisoner sweep through the brush-choked fields. Wounded militia and village braves huddled everywhere among the undergrowth, too injured or terrified to flee. Those unable to walk were abandoned where they lay—the army had no resources to waste on the immobile. They would survive or die as heaven willed.
 
-In total, over fifty captives were caught. Urgent interrogation of the captives revealed that the enemy were village braves from Yang Family Village. This sparked a debate among the commanders.
+The sweep netted fifty-three prisoners. Under urgent interrogation, they confirmed what the commanders had suspected: Yang Family Village militia. The revelation sparked immediate debate.
 
-Because they had encountered an ambush, Wu Baliu, commander of the 2nd Company, worried that the communication line was threatened and strongly advocated sweeping Yang Family Village first. Wu Baliu had been abruptly promoted to company commander in the 10th Battalion shortly after entering Guangzhou; his rank was even one grade lower than a senior captain, so he was very unreconciled to this "victory" that wasn't crisp enough.
+Wu Baliu, commander of the 2nd Company, pressed for an immediate punitive strike against the village. The ambush had endangered their entire line of communication, he argued—a threat that demanded immediate response. Wu Baliu bore the chip on his shoulder common to rapid promotions; his elevation to company command in the 10th Battalion shortly after the Guangzhou offensive had come with a rank still one grade below senior captain. This unsatisfying "victory" stung his pride.
 
-But Yang Zeng, commander of the Sui River Detachment and also battalion commander of the 8th Battalion, believed that their primary objective was to lift the siege of Shijian and ensure the safety of Guangning County seat's gateway.
+Yang Zeng, commanding both the Sui River Detachment and the 8th Battalion, held firm to their original mission: break the siege at Shijian and secure the gateway to Guangning County.
 
-"Our army is currently advancing by both water and land with the purpose of rushing to Shijian as quickly as possible. If we split forces to suppress bandits now and rush into the mountainous area with unclear circumstances, the probability of suffering a loss is high. Moreover, the village braves cannot threaten the water transport on the Sui River."
+"We advance by water and land with a single purpose—reaching Shijian with all speed," he stated flatly. "Dividing our forces for bandit suppression in unmapped mountain country courts disaster. Besides, village militia pose no threat to our river transport."
 
-Although Huang Chao was present, he felt it was better to speak less on military issues and let the commander be responsible.
+Though Huang Chao stood among them, he held his tongue on military matters, deferring to the field commander's judgment.
 
-Thus, it was decided that the plan remained unchanged. The 2nd Company and the Wuzhou Composite Squadron would continue to double-time forward by land to lift the siege of Shijian.
+The plan held. The 2nd Company and Wuzhou Composite Squadron would press forward overland at double-time to lift the siege.
 
-Unlike the West River with its busy shipping, the banks of the Sui River were covered with vast mountains. The narrow roads stretched the troops out very long. Plus, this was a "non-security area" where enemy forces could appear from all directions. The losses from the ambush just now were heavy. Although the two severely wounded were immediately sent back by boat, everyone knew they boded ill. If it happened again, his platoon would be written off. The heavy responsibility made 2nd Company Commander Wu Baliu and Li Dong's nerves very taught, and the subordinate officers and NCOs became tense along with them.
+Unlike the West River's commercial bustle, the Sui River cut through wilderness. Vast mountains hemmed the narrow trails, forcing the column into dangerously extended files through hostile territory. The recent ambush weighed heavily on every mind—though the two critically wounded had been evacuated downriver by boat, everyone understood their grim prognosis. Another such encounter would shatter the platoon entirely. The weight of command drew Wu Baliu's and Li Dong's nerves taut as bowstrings, a tension that radiated through their subordinate officers and NCOs.
 
-However, the subsequent journey was safe and sound. The villagers in the villages they passed all fled far away. Occasionally encountering a village that fortified its walls and guarded strictly, they only sent people with tea and water to "welcome the Great Army passing through," showing no hostility.
+Yet the march continued without incident. Villages emptied at their approach, inhabitants fled to the hills. Those communities that stood their ground behind fortified walls sent out delegations with tea and refreshments, professing welcome for "the Great Army" while carefully displaying no hostility.
 
-Wu Baliu questioned people at every such village encountered. From the mouths of local commoners, they learned that those besieging Shijian were indeed the Yang Family Village braves who had ambushed them—many villages were angry but dared not speak out against Yang Family Village. As for the Yao movements that the battalion commander and the Head of State wanted to know most about, there was very little information. They only knew that local Yao people were following bandits to cause chaos, and a few villages had united to come out and plunder, but there were no large-scale troop movements. It seemed Director Huang's judgment that the Yao people were only "looting a burning house" was correct—they had no intention of large-scale rebellion.
+Wu Baliu interrogated locals at every opportunity. The pattern held consistent: Yang Family Village militia had indeed laid the ambush and now besieged Shijian. Many villages chafed under Yang Family Village's dominance but dared not speak openly against them. As for the Yao movements that most concerned the battalion commander and the Head of State, their intelligence proved sparse. Local Yao had joined bandit bands in opportunistic raids, a few villages banding together for plunder, but no signs of coordinated uprising. Director Huang's assessment appeared vindicated—the Yao were merely looting during the chaos, with no intention of general rebellion.
 
-Wu Baliu led the team rushing and finally arrived at a place less than 2 kilometers from Shijian. This place was known as the South Gate of Guangning. The so-called small town was just a larger village, situated on a small alluvial plain among mountains by the river, protected by a wooden stockade wall. The Yang Family Village braves besieging Shijian had set up wooden barricades at the traffic choke point, controlling the road and several villages on the nearby hillside.
+Wu Baliu drove his men hard. As dusk approached, they closed to within two kilometers of Shijian, the so-called South Gate of Guangning. The title flattered what amounted to an oversized village occupying a small alluvial plain hemmed by mountains, the river on one side, protected by wooden palisades. Yang Family Village forces besieging the town had erected barricades at the key chokepoint, controlling both the road and several hillside hamlets.
 
-Xie Wendong, the head of the village braves besieging Shijian, was originally the second-in-command of rural bandits. When the Yang Family Village braves rose to power and suppressed bandits in the surroundings, seeing the situation was bad, under Master Yang's coercion and inducement, he killed the main leader in an internal conflict and surrendered the mountain stronghold.
+Xie Wendong, commanding the besiegers, had risen through violence and opportunism. Originally second-in-command of a rural bandit gang, he'd read the signs when Yang Family Village militia began their surge to power, crushing surrounding bandit groups. Under Provincial Graduate Yang's mixture of threats and inducements, Xie had murdered his own chief in an arranged "internal conflict" and delivered his mountain stronghold intact.
 
-He originally had fifty or sixty old bandit partners under him, which was also a power within the Yang Family Stockade. Provincial Graduate Yang both guarded against him and used him. This time, to win people's hearts, he sent him to lead the team to attack Shijian, letting him make a small fortune.
+His fifty-odd surviving bandit comrades formed a faction within Yang Family Stockade—one that Provincial Graduate Yang simultaneously distrusted and exploited. Sending Xie to assault Shijian served multiple purposes: it cultivated his loyalty through opportunity for profit while keeping this dangerous element at arm's length.
 
-Xie Wendong originally thought this Shijian would inevitably open its gates and surrender like last time, obediently offering up wealth and goods. Therefore, he only brought over a hundred regiment militia; the others were able-bodied men from various villages attached to Yang Family Village, following along to "get rich" and boost morale. They wouldn't get a share of the valuables, but getting some tattered clothes, furniture, and pots would be good too.
+Xie had expected easy pickings. Shijian had capitulated during the last round of troubles, opening its gates and surrendering wealth without resistance. He'd brought barely a hundred actual militia; the rest consisted of able-bodied men from Yang Family Village's client communities, following along to "get rich" and swell his numbers. They'd claim no share of valuables, but salvaged clothing, furniture, and cookware would make the expedition worthwhile.
 
-Unexpectedly, a small squad of the National Army was stationed in the town, and they had added fortifications. He led the militia to charge for a while, but before they could climb the stockade wall, they were beaten to flowing water by firearms—besides Nanyang rifles, the National Army also had many captured Ming army firearms, fired by militia temporarily conscripted from the town. A burst of chaotic fire, and Xie Wendong's subordinates couldn't withstand the firepower and instantly withered.
+Reality proved harsher. A National Army squad garrisoned the town, and they'd strengthened the defenses. Xie's initial assault dissolved under withering fire—the defenders fielded not just Nanyang rifles but captured Ming firearms, distributed to hastily conscripted town militia. The concentrated volleys shredded his attack before it reached the palisade walls.
 
-Xie Wendong jumped with rage. He did have some desperadoes under him, but there were too few of them. The main force was ordinary commoners. Seeing Shijian was a hard nut to crack, no one was willing to risk their lives. A stalemate ensued.
+Xie raged. He commanded a core of genuine desperadoes, but too few to matter. The bulk of his force consisted of ordinary peasants. Seeing Shijian's unexpectedly hard shell, none would risk their lives for uncertain plunder. The assault devolved into stalemate.
 
-Just as he was at his wit's end, his "Strategist" Jiang Wenming offered a plan: since they couldn't take it down for a while, they might as well block the roads to prevent reinforcements from the county seat from coming to the rescue. At worst, they besiege it for a few months, forcing them to run out of food and surrender.
+At his lowest ebb, his "strategist" Jiang Wenming proposed a solution: if they couldn't storm the town quickly, blockade it instead. Cut the roads, prevent relief from the county seat, and starve them into submission over the coming months.
 
-This Jiang Wenming was originally a failed scholar who owed gambling debts and had to go up the mountain to become a bandit. Because he could read a few characters, had a vicious heart, and knew a few moves with spear and club, he was considered "talented in both civil and martial arts" and soon became the "Strategist" of the stronghold.
+Jiang Wenming embodied a familiar type—the failed scholar ruined by gambling debts, forced to the mountains to survive. His literacy, vicious cunning, and rudimentary martial skills with spear and club earned him the grandiose title of "talented in both civil and martial arts," making him the stronghold's de facto strategist.
 
-He knew that this "career" of banditry wouldn't lead anywhere, so he had hooked up with Provincial Graduate Yang very early on, often doing dirty work that was inconvenient for Master Yang to show his face for on ordinary days. Jiang Wenming had also contributed to Xie Wendong's internal conflict killing the leader and surrendering to Yang Family Village this time.
+Understanding that banditry offered no long-term future, he'd cultivated connections with Provincial Graduate Yang early on, handling the dirty work too unseemly for the master to acknowledge publicly. He'd orchestrated Xie Wendong's betrayal and submission to Yang Family Village.
 
-Xie Wendong already knew about Master Yang suffering a huge loss in the ambush. Not only had Yang Erhu sent a messenger early on telling him to withdraw troops quickly to avoid being bitten by the Hair Rebels and suffering another big loss, but Yu Heiqi, a former subordinate who fled back from the battlefield, also ran to him and told him the whole story.
+Word of Provincial Graduate Yang's catastrophic ambush had already reached Xie through multiple channels. Yang Erhu's messenger had arrived first, urging immediate withdrawal before the Hair Rebels could deliver another crushing blow. Then Yu Heiqi, one of Xie's own men who'd fled the battlefield, brought detailed confirmation.
 
-"How many people did the Hair Rebels bring?"
+"How many Hair Rebels?" Xie demanded.
 
-"Saw no more than forty-something people, and we were beaten to collapse by them." Yu Heiqi was still in shock. "Those firearms, formidable!"
+"No more than forty-something, and they routed us completely." Yu Heiqi still trembled with shock. "Their firearms—devastating!"
 
-"Cut the crap! Do I need you to tell me Hair Rebel firearms are formidable?" Xie Wendong said impatiently. "I'm asking exactly how many people are in their main force?"
+"Spare me the obvious!" Xie snapped. "I know Hair Rebel firearms are formidable. How many in their main force?"
 
-"This, the lowly one didn't see... dare not say." Yu Heiqi said, "Only know the Hair Rebel main force is by boat..."
+"This lowly one... couldn't see. Dare not say." Yu Heiqi swallowed. "Only know the Hair Rebel main force travels by boat..."
 
-"Scram!"
+"Get out!"
 
-Xie Wendong lost his ideas for a moment. Speaking of running away, that was naturally the safest best policy. But the fat meat of Shijian was right by his mouth, yet he couldn't eat it; it was inevitably a bit regrettable. Especially since last night he had just transported several hundred *jin* of gunpowder from the mountain stronghold, planning to float it over by boat to blow open the riverside stockade wall and break in during the chaos. If he ran now, these things would be wasted.
+Xie wrestled with indecision. Flight offered the safest course—but Shijian's riches lay tantalizingly close, just beyond his grasp. More critically, he'd ferried several hundred *jin* of gunpowder from the mountain stronghold just yesterday, planning to float it downstream and blow a hole in the riverside palisade for a breakthrough assault. Retreat now would waste everything.
 
-Thinking back and forth, he decided not to run for the time being, but to seize the time to do this job first—anyway, the Hair Rebels' main force was by boat; traveling upstream to get here would take until the day after tomorrow at the earliest. As for the troops coming by land, there were only a few dozen of them. He would just send some men to rely on wooden barricades to block them. Presumably, these few dozen people couldn't attack through.
+The calculation turned in his mind. The Hair Rebels' main force traveled by water—fighting the upstream current, they couldn't arrive before the day after tomorrow at earliest. The overland contingent numbered only a few dozen. He could spare men to hold the road barricades. Surely a few dozen couldn't break through proper fortifications.
 
-Immediately he discussed with Jiang Wenming. The two split the men and horses in two. Jiang Wenming took half the men to block the intersection, and he took the other half to attack Shijian.
+He conferred with Jiang Wenming. They divided their forces: Jiang would hold the intersection with half the men while Xie prosecuted the assault on Shijian with the remainder.
 
-"...You seize the time to act. Even if you don't succeed, you have to leave." Jiang Wenming instructed him.
+"Press the attack, but withdraw if it fails," Jiang instructed. "Don't linger."
 
-"I know this." Xie Wendong said carelessly. "You just guard against the Hair Rebel land scouts rushing over—heard they are all very capable troops."
+"I understand," Xie replied carelessly. "You just keep those Hair Rebel land scouts from breaking through. I hear they're elite troops."
 
-"No matter how capable, it's just a few dozen people. I'll just hold fast here without going out. They don't have cannons; they can't attack it easily."
+"Elite or not, a few dozen men matter little. I'll hold fast behind the barricades without sallying. Without artillery, they cannot dislodge us."
 
-Jiang Wenming spoke with some confidence. For storming fortifications, besides gunpowder, they had also transported quite a few firearms like Lychee Cannons from the stronghold, plus a Ming army iron cannon—this was old stock in the stronghold. To hit Shijian, Xie Wendong had brought out all his old capital.
+Jiang spoke with genuine confidence. Beyond gunpowder, they'd hauled considerable firepower from the stronghold—multiple lychee cannons and even an old Ming army iron gun, ancient stock dragged from storage. To take Shijian, Xie had committed his entire arsenal. Combined with the wooden barricades and hastily improved earthworks, holding against a few dozen attackers posed minimal risk.
 
-With these firearms, plus wooden barricades and hastily repaired batteries, resisting a few dozen people should be no problem.
+Wu Baliu's vanguard reached the position before nightfall. His scouts reported enemy fortifications across the road, complete with artillery emplacements. Suspecting heavy forces, Wu refused to underestimate the threat. With darkness falling and the terrain unfamiliar, he elected to wait for dawn rather than risk a night assault.
 
-Wu Baliu's advance party arrived before dark. Hearing the report from the point men ahead that the enemy had actually built fortifications on the road and set up cannons, he thought heavy troops were gathered and dared not underestimate them. Because it was late and the surrounding environment was complex, he decided not to attack that night but to wait until daybreak the next day to handle it.
+"Tomorrow the 2nd Company takes the main attack. Your squadron provides support." Wu gestured at the crude topographic sketch. "The terrain constrains our deployment..."
 
-"Tomorrow our 2nd Company will take the main attack; you follow behind." Wu Baliu gestured on the roughly drawn topographic map. "The terrain here is narrow; troops cannot spread out easily..."
-
-"I request that the main attack mission tomorrow be executed by our squadron," Li Dong said. "Please have the Fubo Army support us with firepower."
+"I request our squadron execute the main attack," Li Dong interjected. "Let the Fubo Army provide fire support."

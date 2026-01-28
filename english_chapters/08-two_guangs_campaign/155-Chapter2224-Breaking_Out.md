@@ -6,13 +6,13 @@ After more than ten minutes of close combat, everyone was drenched in blood. Pan
 
 The attacking bandits were numerous but accustomed to easy victories; when they met stiff resistance, their will to fight collapsed. After suffering repeated casualties, those who had charged began to fall back. They retreated to a distance and fired muskets and arrows.
 
-The bandits momentarily beaten off, the party reached the crossroads. The street was littered with corpses and debris. A short distance farther, they encountered a squad from the Second Squadron that had been holding the intersection. The fires had not brought an attack here, but construction sites filled the town—bamboo, timber, rush mats, and straw everywhere—and the flames were spreading fast. Forced to abandon the intersection, the squad had clashed with scattered bandits on the way and, in the chaos of fleeing townspeople, killed more than a few.
+With the bandits momentarily beaten off, the party reached the crossroads. The street was littered with corpses and debris. A short distance farther, they encountered a squad from the Second Squadron that had been holding the intersection. The fires had not brought an attack here, but construction sites filled the town—bamboo, timber, rush mats, and straw everywhere—and the flames were spreading fast. Forced to abandon the intersection, the squad had clashed with scattered bandits on the way and, in the chaos of fleeing townspeople, killed more than a few.
 
-"Even with all the construction sites and dry materials, it shouldn't burn this fast!" said the squad leader, his face blackened by smoke. "I smelled burning tung oil! They must have planned this."
+"Even with all the construction sites and dry materials, it shouldn't burn this fast!" said the squad leader, his face blackened by smoke. "I smelled burning tung oil. They must have planned this."
 
 "Casualties?"
 
-"Five wounded—all minor. They can still move." The squad leader said.
+"Five wounded—all minor. They can still move."
 
 "Fall in with us," You Ciren said. "Have you seen anyone else?"
 
@@ -20,7 +20,7 @@ The bandits momentarily beaten off, the party reached the crossroads. The street
 
 "You did right!" You Ciren's spirits lifted—thanks to this squad's hesitation, he now had ten more combat-ready troops. A quick glance told him the Yao squadron had lost heavily: between killed, wounded, and scattered, nearly a third were gone.
 
-During the brief respite, You Ciren ordered: "All squads—check the wounded. Anyone who can't walk, make a stretcher immediately! Move!"
+During the brief respite, You Ciren ordered: "All squads—check the wounded. Anyone who can't walk, make a stretcher immediately. Move!"
 
 "Sir! The County Magistrate's wounds are critical!" The medic tugged at his shirt. "He won't last like this!"
 
@@ -28,13 +28,13 @@ During the brief respite, You Ciren ordered: "All squads—check the wounded. An
 
 "Why haven't you stopped the bleeding?"
 
-"I can't!" The medic was frantic. "I just bandaged him—two major wounds: one in the right chest, depth unknown, not bleeding much; the other in the thigh, bleeding nonstop! The Elder said this might be a femoral artery injury—but it doesn't quite fit..."
+"I can't!" The medic was frantic. "I just bandaged him—two major wounds: one in the right chest, depth unknown, not bleeding much; the other in the thigh, bleeding nonstop. The Elder said this might be a femoral artery injury—but it doesn't quite fit..."
 
-"Don't recite your TM textbook at me!" You Ciren snapped. "Can he still be saved?"
+"Don't recite your damned textbook at me!" You Ciren snapped. "Can he still be saved?"
 
 "I applied a tourniquet—slowed it temporarily, but it's not completely stopped." The medic stammered. "If we get him back in time, maybe—the Mobile Medical Team arrived in the county seat just yesterday."
 
-You Ciren moved close to Wang Chuyi. His face was deathly pale, his hands ice-cold. The prognosis was grim. You Ciren waved: "Four men—carry him. Move!"
+You Ciren moved close to Wang Chuyi. His face was deathly pale, his hands ice-cold. The prognosis was grim. You Ciren waved. "Four men—carry him. Move!"
 
 They found two bamboo poles from a nearby building, threaded two jackets through them, and fashioned a crude stretcher.
 
@@ -42,7 +42,7 @@ The pause lasted no more than five minutes before the column resumed its march t
 
 Outside the gate, corpses lay strewn about. You Ciren spotted five or six headless bodies in National Army uniforms and felt a chill. Clearly, the enemy had attacked here and successfully driven off the defenders. Looking at the dead, it was obvious the enemy was far more numerous than he had estimated. Multiple intelligence sources had indicated Sun Dabiao commanded about two hundred men—his core force had been mauled by the Eight Pai Yao uprising and now numbered at most forty or fifty veteran bandits.
 
-*So many!* You Ciren thought bitterly. *I was careless!*
+*So many!* You Ciren thought bitterly. *I was careless.*
 
 "Sir, what do we do now?"
 
@@ -60,7 +60,7 @@ He had no time to scold them for their wretched state. "What happened at the sou
 
 Afterward, they dared neither re-enter the town nor head back to the county seat alone. They hid in the roadside woods, hoping to wait for the main force.
 
-"You're soldiers—how could you lose your weapons? Is this any way to act?!" In truth, You Ciren had little regard for these National Army troops who had only a few months' training. "Help carry the stretchers!"
+"You're soldiers—how could you lose your weapons? Is this any way to act?" In truth, You Ciren had little regard for these National Army troops who had only a few months' training. "Help carry the stretchers!"
 
 Wang Chuyi had fainted along the way but was jolted awake by the rough road. The column was constantly harassed by bandits; every so often they had to stop and fight a skirmish.
 
@@ -70,11 +70,11 @@ Wang Chuyi had fainted along the way but was jolted awake by the rough road. The
 
 "Where... are we..." Wang Chuyi murmured.
 
-"Hold on, County Magistrate—we're almost at the county seat! There's a Mobile Medical Team there, with Elder doctors!" The medic tried to reassure him. "Don't worry."
+"Hold on, County Magistrate—we're almost at the county seat. There's a Mobile Medical Team there, with Elder doctors!" The medic tried to reassure him. "Don't worry."
 
 "Tell... You Section Chief... he was right... I was wrong..." Wang Chuyi sensed his life slipping away. Yet he felt neither grief nor fear—only overwhelming regret. "Tell him... this is a fight... to the death..."
 
-"Stop talking, sir." The medic said. "Once we get you to the city and bandaged up, you can tell Section Chief You yourself."
+"Stop talking, sir," the medic said. "Once we get you to the city and bandaged up, you can tell Section Chief You yourself."
 
 Wang Chuyi slowly shook his head. He wanted to say more, but the dizziness grew worse; not a word would come. He closed his eyes and soon lapsed back into unconsciousness.
 

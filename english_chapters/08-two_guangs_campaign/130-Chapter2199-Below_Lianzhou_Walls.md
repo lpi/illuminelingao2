@@ -1,36 +1,36 @@
 # Chapter 2199 - Below Lianzhou Walls
 
-The loss of so many able-bodied men would have consequences that needed no elaboration. Not only would it severely impact production, but their security situation would become perilous. Neither the hostile Zhuang settlements nor the Hakka villages in the lowlands would let such an opportunity pass. To guarantee their safety, they had no choice but to throw in their lot with the Council of Elders.
+The loss of so many able-bodied men would bear consequences requiring no elaboration. Not only would it severely impact production, but their security situation would become perilous. Neither hostile Zhuang settlements nor Hakka villages in the lowlands would permit such opportunities to pass. To guarantee their safety, they possessed no choice but throwing in their lot with the Council of Elders.
 
-"...Besides, what would we do with them if we kept them? More mouths to feed. Kill them all as Zhou Liangchen suggests? That creates a blood feud—and we still have to win them over. We can't go to extremes."
+"...Besides, what would we do retaining them? More mouths to feed. Slaughter them all as Zhou Liangchen proposes? That creates blood feuds—and we still must win them over. We cannot resort to extremes."
 
-The Mo brothers—Mo Songling and Mo Hongling—and the Ma brothers—Ma Tianju, Ma Mingju, Ma Junju, and Ma Yunju—stood on Lianzhou's walls, gazing with great interest across the moat at the Australian army drilling outside.
+The Mo brothers—Mo Songling and Mo Hongling—and the Ma brothers—Ma Tianju, Ma Mingju, Ma Junju, and Ma Yunju—stood on Lianzhou's walls, gazing with keen interest across the moat at Australian army drills outside.
 
-Though the Yao besiegers had retreated, the siege of Lianzhou was not truly lifted. The city remained encircled—only now the besiegers were the self-proclaimed Song dynasty Australians.
+Though Yao besiegers had retreated, Lianzhou's siege was not truly lifted. The city remained encircled—solely now the besiegers were the self-proclaimed Song dynasty Australians.
 
-Yet the Australians' siege was far more lenient than the Yao's. Apart from establishing camps at each gate and barring anyone carrying weapons from passing, they left the rest unguarded. Commoners could leave the city to gather firewood or draw water without hindrance, free to come and go. The tension inside and outside the walls had eased considerably.
+Yet the Australian siege proved far more lenient than the Yao's. Apart from establishing camps at each gate and barring weapon-bearing individuals from passing, they left the rest unguarded. Commoners could leave the city gathering firewood or drawing water without hindrance, free to come and go. Tension inside and outside walls had eased considerably.
 
-It was in this relaxed atmosphere that these children had clambered onto the walls to "observe the troops."
+It was within this relaxed atmosphere that these children had clambered onto walls "observing the troops."
 
-In the past, they had watched the local garrison "drill" on the eastern parade ground. Given Lianzhou's location in Yao territory and the constant Han-Yao conflicts, the local garrison maintained a higher standard of readiness than most and could actually fight. But compared to the Australian soldiers drilling below the walls, the gap was vast. Though the Australians wore no armor, every piece of their equipment radiated lethal efficiency—the unmistakable appearance of "crack troops."
+Previously, they had watched local garrison "drill" on the eastern parade ground. Given Lianzhou's location in Yao territory and constant Han-Yao conflicts, the local garrison maintained higher readiness standards than most and could actually fight. Yet compared to Australian soldiers drilling below walls, the gap proved vast. Though Australians wore no armor, every equipment piece radiated lethal efficiency—the unmistakable appearance of "crack troops."
 
-"The Australian soldiers truly live up to their reputation," said Mo Songling, the eldest at fourteen.
+"The Australian soldiers truly live up to their reputation," stated Mo Songling, the eldest at fourteen.
 
-The Mo brothers' grandfather, Mo Yuqi, and the Ma brothers' grandfather, Ma Chonghai, had been close friends. Both the Mo and Ma families were prominent gentry in Lianzhou. Though both patriarchs had passed away, the families remained linked by old ties, and the brothers had grown up together. Though they were still children—fourteen-year-old Mo Songling being the eldest and the youngest, Ma Yunju, not yet nine—they were already known as "sons of great houses" in the city. The soldiers and militiamen on the walls dared not stop them, allowing them to play as they pleased.
+The Mo brothers' grandfather, Mo Yuqi, and the Ma brothers' grandfather, Ma Chonghai, had been close friends. Both the Mo and Ma families were prominent Lianzhou gentry. Though both patriarchs had passed away, the families remained linked by old ties, and the brothers had grown up together. Though they were still children—fourteen-year-old Mo Songling being the eldest and the youngest, Ma Yunju, not yet nine—they were already known as "sons of great houses" in the city. The soldiers and militiamen on walls dared not stop them, allowing them to play as they pleased.
 
-The heads of both families had been away from home since the Yao siege began, spending their days at the prefectural yamen deliberating strategies, with no time to supervise the children or check on their studies. These youngsters had become wild horses without bridles. When fighting was intense, the garrison had kept them off the walls, but now that the situation had calmed, the guards were happy to accept a few coins in return for letting the "young masters" sightsee.
+Heads of both families had been away from home since the Yao siege began, spending days at the prefectural yamen deliberating strategies, with no time supervising children or checking on studies. These youngsters had become wild horses without bridles. When fighting was intense, the garrison had kept them off walls, but now that the situation had calmed, guards were happy accepting a few coins in return for letting "young masters" sightsee.
 
-"Yesterday the cannons thundered for quite a while, and then the Yao retreated. The Australians' artillery is formidable indeed."
+"Yesterday cannons thundered for quite a while, and then Yao retreated. The Australians' artillery is formidable indeed."
 
-"What's so interesting about cannons? We have them on the walls too. It's the self-propelled boats on the river that I really want to see up close."
+"What's so interesting about cannons? We have them on walls too. It's the self-propelled boats on the river that I really want to see up close."
 
 ...
 
 They chattered as they gazed at the Fubo Army outside, their curiosity piqued by every novelty—big guns, motorized launches, and other marvels.
 
-Outside the walls, Yang Zeng had largely completed the encirclement of Lianzhou. Besides the camps at each gate, one National Army squadron was deployed north of the city, another to the northeast, and a third to the east. The artillery, the Fubo Army company, and the Li-Miao Company were all positioned on Yanxi Mountain; the Yonghua Yao were encamped on the west bank of the Lian River; and patrol boats cruised the river day and night. What appeared to be a loose perimeter was, in reality, an airtight blockade.
+Outside walls, Yang Zeng had largely completed Lianzhou's encirclement. Besides camps at each gate, one National Army squadron was deployed north of the city, another to the northeast, and a third to the east. The artillery, the Fubo Army company, and the Li-Miao Company were all positioned on Yanxi Mountain; the Yonghua Yao were encamped on the west bank of the Lian River; and patrol boats cruised the river day and night. What appeared to be a loose perimeter was, in reality, an airtight blockade.
 
-Neither Yang Zeng nor Huang Chao wished to storm Lianzhou. First, their forces—already spread thin—were inadequate for an assault; reinforcements would have to come from elsewhere. But the regions where they had dispersed units were essential to controlling the entire Lianyang area; withdrawing troops might destabilize everything. Second, Lianzhou was the foundation of their future rule. Huang Chao did not want to leave the city's defenders and civilians with the impression of "foreign conquerors."
+Neither Yang Zeng nor Huang Chao wished to storm Lianzhou. First, their forces—already spread thin—were inadequate for assault; reinforcements would have to come from elsewhere. But regions where they had dispersed units were essential to controlling the entire Lianyang area; withdrawing troops might destabilize everything. Second, Lianzhou was the foundation of their future rule. Huang Chao did not want to leave the city's defenders and civilians with impressions of "foreign conquerors."
 
 In the flower hall of Lianzhou's prefectural yamen, Prefect Cui Shizhao was conferring with the city's gentry on strategy. The Eight Pai Yao had retreated, but one crisis had given way to another—Lianzhou was still besieged. The Australians who had replaced the Yao were far more fearsome. In the old timeline, the *Lianzhou Gazetteer* recorded that during Cui Shizhao's tenure, his moral influence had reformed the rebellious Yao and peacefully resolved the Chongzhen 8th Year uprising. But in this timeline, with the Liangguang Campaign as an additional variable, Cui Shizhao had had no chance to reform the Eight Pai before encountering the Australian Elders—and his virtue could certainly not reform these crude brutes.
 

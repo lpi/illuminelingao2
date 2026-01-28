@@ -1,14 +1,14 @@
 # Chapter 2214 - The Supply Convoy
 
-Even if Sun Dabiao did not move against him, once he accepted the Hair-Clipper pacification, he would certainly never cross swords with the Hair-Clippers again. That freed the Hair-Clippers to attack at their leisure. When Feng found himself on the brink, his "Elder Brother" standing by and watching would already be an act of great mercy—more likely, he would kick him while he was down.
+Even if Sun Dabiao didn't move against him, once he accepted the Hair-Clipper pacification, he would certainly never cross swords with the Hair-Clippers again. That freed them to attack at their leisure. When Feng found himself on the brink, his "Elder Brother" standing by and watching would already be an act of great mercy—more likely, he would kick him while he was down.
 
 Such fears tormented Feng Haijiao. He began to wonder if accepting this *bazong* title had been a mistake—perhaps it would have been better to surrender to the Australians from the start. After much anguished deliberation, he went to ask Bi Xuansheng for advice.
 
-Bi Xuansheng, of course, could not tolerate Sun Dabiao straddling two boats. The Yang family had sent him here to stir up trouble for the Hair-Clippers and bog them down in Yangshan. If Sun Dabiao played both sides and locked horns with Feng Haijiao in a stalemate, Yangshan would not erupt into chaos—and in time, even Feng Haijiao might waver.
+Bi Xuansheng, of course, couldn't tolerate Sun Dabiao straddling two boats. The Yang family had sent him here to stir up trouble for the Hair-Clippers and bog them down in Yangshan. If Sun Dabiao played both sides and locked horns with Feng Haijiao in a stalemate, Yangshan wouldn't erupt into chaos—and in time, even Feng Haijiao might waver.
 
-He fancied himself a "little Zhuge Liang"—if only his father had not kept him underfoot, he would have achieved great things long ago. Now, handling affairs on his own, he was determined to strategize brilliantly.
+He fancied himself a "little Zhuge Liang"—if only his father hadn't kept him underfoot, he would have achieved great things long ago. Now, handling affairs on his own, he was determined to strategize brilliantly.
 
-Seeing Feng Haijiao come seeking counsel, Bi Xuansheng knew his moment had arrived. He lowered his voice: "Your suspicions are well-founded, Master! Old Sun may say he has sworn a blood oath and promised non-aggression. But who can see into another's heart? What if..."
+Seeing Feng Haijiao come seeking counsel, Bi Xuansheng knew his moment had arrived. He lowered his voice. "Your suspicions are well-founded, Master! Old Sun may say he has sworn a blood oath and promised non-aggression. But who can see into another's heart? What if..."
 
 "I know that! Do I need you to tell me?" Feng Haijiao snapped. "I've boarded Ming's boat. Alone and outnumbered, if the Australians attack, none of us will escape! MD, where are the firearms he promised? And that surname-Zhan, selling his backside—said he'd send silver. So far I haven't seen a hair! Bullshit!"
 
@@ -18,7 +18,7 @@ Bi Xuansheng felt a twinge of embarrassment. Those empty promises were naturally
 
 "Act? How? Spit it out!" Feng Haijiao glared, his small eyes flashing with menace.
 
-Bi Xuansheng felt his heart quiver. *This fellow really is a veteran river pirate!* His contempt evaporated; he became properly deferential: "Please calm yourself, Master. This student has a plan..."
+Bi Xuansheng felt his heart quiver. *This fellow really is a veteran river pirate!* His contempt evaporated; he became properly deferential. "Please calm yourself, Master. This student has a plan..."
 
 ---
 
@@ -36,9 +36,9 @@ Rebuffed, the sergeant slunk off to chivvy the laborers.
 
 The laborers straightened the ropes on the *Zidian* handcarts and lashed everything down securely. There were ten carts in all, loaded with sacks of grain and an assortment of uniform bags and boxes of varying sizes, each stamped with a red Iron Fist military insignia and a blue serial number. These were standard-issue packing materials produced by the Joint Logistics Department.
 
-This was the supply convoy heading to Yonghua—one run per week. The main cargo was grain plus certain provisions that could not be procured locally. Each cart carried three hundred *jin*, hauled by two laborers—one pulling, one pushing. Under normal conditions, it was not too strenuous; but in this heat, the laborers found it doubly exhausting.
+This was the supply convoy heading to Yonghua—one run per week. The main cargo was grain plus certain provisions that couldn't be procured locally. Each cart carried three hundred *jin*, hauled by two laborers—one pulling, one pushing. Under normal conditions, it wasn't too strenuous; but in this heat, the laborers found it doubly exhausting.
 
-Besides the twenty laborers, a squad of National Army soldiers escorted the convoy. Normally, a junior officer like You Ciren would not be assigned to this duty. But with the situation growing complex and rumblings of unrest among the Yonghua Yao, Luo Yiming had sent him to Yonghua to investigate—You Ciren was one of the few National Army officers with a classical education, literate and capable of handling affairs systematically.
+Besides the twenty laborers, a squad of National Army soldiers escorted the convoy. Normally, a junior officer like You Ciren wouldn't be assigned to this duty. But with the situation growing complex and rumblings of unrest among the Yonghua Yao, Luo Yiming had sent him to Yonghua to investigate—You Ciren was one of the few National Army officers with a classical education, literate and capable of handling affairs systematically.
 
 Originally, You Ciren had had a bright future in the Fubo Army. Six months ago, however, he was diagnosed with a condition that made him unfit for line duty. He was slated for discharge, but unwilling to be sent to the rear, he had been posted to Yangshan as Deputy Security Section Chief. For convenience in his work, he wore the National Army uniform with lieutenant's insignia—the same rank he had held in the Fubo Army.
 
@@ -48,9 +48,9 @@ Within minutes, the column was assembled. As usual, You Ciren inspected the conv
 
 The soldiers and laborers looked miserable. When You Ciren finally announced "Move out," everyone actually breathed a sigh of relief.
 
-You Ciren called the sergeant to his side and asked quietly: "Dalang Market lies ahead. What's the situation there?"
+You Ciren called the sergeant to his side and asked quietly, "Dalang Market lies ahead. What's the situation there?"
 
-This was his first time leading a supply run. He knew about Dalang Market—though Sun Dabiao had accepted pacification, his men had not been reorganized or reformed. Passing through his turf made him uneasy.
+This was his first time leading a supply run. He knew about Dalang Market—though Sun Dabiao had accepted pacification, his men hadn't been reorganized or reformed. Passing through his turf made him uneasy.
 
 "No worries—Sun Dabiao knows his place," the sergeant said casually. "Since he returned to Dalang Market, we pass through his territory all the time. Whether it's a supply convoy or individuals, he never dares make trouble. Each time, he escorts us courteously out of his domain. He even refuses our money when we stop for a meal..."
 
@@ -70,7 +70,7 @@ The moment they entered the market, one of Sun Dabiao's stewards hurried over, b
 
 "Yes, yes, sir. We keep ready provisions for passing merchants—plain but clean."
 
-He called for the food to be brought out. You Ciren glanced at it: cold rice porridge and pickled melons, plus a big jar of mung-bean soup. The utensils and food were clean enough and quite suitable. He nodded. The sergeant whispered: "Lieutenant, we stop here often. It's safe. Eat in peace."
+He called for the food to be brought out. You Ciren glanced at it: cold rice porridge and pickled melons, plus a big jar of mung-bean soup. The utensils and food were clean enough and quite suitable. He nodded. The sergeant whispered, "Lieutenant, we stop here often. It's safe. Eat in peace."
 
 "Are the carts being watched?"
 
@@ -80,9 +80,9 @@ You Ciren disapproved of this complacency, but judging by appearances, Sun Dabia
 
 While eating, he noticed a group of Yao sitting in a nearby shelter, gnawing on taro and such. He saw no proper food in front of them—only a stack of large bowls and a big pot of tea.
 
-They looked sallow and weak, their every movement listless. You Ciren found it odd: "These Yao came here for a rest stop—why aren't they eating?"
+They looked sallow and weak, their every movement listless. You Ciren found it odd. "These Yao came here for a rest stop—why aren't they eating?"
 
-The steward smiled apologetically: "They come to trade mountain goods for salt. Once they've got their salt, they rest here before heading back. The master is kind-hearted—he pities their poverty, lets them sit in this shelter, eat their own provisions, and takes no money for the tea."
+The steward smiled apologetically. "They come to trade mountain goods for salt. Once they've got their salt, they rest here before heading back. The master is kind-hearted—he pities their poverty, lets them sit in this shelter, eat their own provisions, and takes no money for the tea."
 
 "I see." You Ciren nodded. Clearly, these Yao had gone without salt for a long time. He looked at their belongings—the bamboo tubes for salt were light and nearly empty.
 

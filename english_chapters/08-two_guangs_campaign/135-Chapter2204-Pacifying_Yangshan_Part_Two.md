@@ -46,7 +46,7 @@ One squadron was stationed at Yonghua and could not easily be moved—it not onl
 
 The other was the county squadron. Together with the militia of locally conscripted laborers, the county squadron had some mobility. Wang Chuyi's plan was to use this squadron for targeted strikes against Sun Dabiao and Feng Haijiao.
 
-Naturally, this force was insufficient to encircle two gangs, each capable of mustering two or three hundred. Both gangs occupied long-established strongholds; a direct assault by the undermanned and outgunned county squadron would probably win but suffer crippling losses.
+Naturally, this force was insufficient to encircle two gangs, each capable of mustering two or three hundred men. Both gangs occupied long-established strongholds; a direct assault by the undermanned and outgunned county squadron would probably win but suffer crippling losses.
 
 So Wang Chuyi proposed a plan of "guile over force": using an offer of "pacification" as bait, lure the two chiefs out of their lairs, seize and kill them in one stroke, then exploit the resulting chaos to raid their strongholds and wipe them out.
 
@@ -70,7 +70,7 @@ Using "pacification" as bait to lure and capture a bandit chief was a time-honor
 
 "That's why we're using a surprise attack," Wang Chuyi said. "We take out the chiefs in one blow, and their men are leaderless. Then we strike while they're confused. Besides, Commander Huang is sending the Mountain Company to support us—you needn't worry about manpower."
 
-Hearing that regular troops would reinforce them, the squadron commander visibly relaxed: "I have no further questions. I'll arrange reconnaissance at once."
+Hearing that regular troops would reinforce them, the squadron commander visibly relaxed. "I have no further questions. I'll arrange reconnaissance at once."
 
 "I don't think your squadron is suited for reconnaissance," another naturalized cadre said. "We all have outsider accents—one word and we're exposed. A sudden stranger showing up is bound to arouse suspicion. Better to use locals."
 

@@ -1,97 +1,97 @@
 # Chapter 2183 - Shijian (Part 3)
 
-"Since when was I from the Fubo Army? I'm authentic National Army origin. A few months ago, I was just like you, an ordinary big-head soldier—didn't even have a Nanyang rifle! Held a spear."
+"Since when was I Fubo Army? I'm authentic National Army stock. A few months ago, I stood exactly where you are—an ordinary big-head soldier without even a Nanyang rifle. I carried a spear."
 
-"That fast?" The new recruits didn't believe it.
+"That fast?" The new recruits' skepticism showed.
 
-"What's rare about that? Fighting wars with the Senate, there are plenty of chances to make contributions and establish careers. What's promoting to NCO count for? If you fight well, you enter the Training Team after the battle, and come out as an officer with stars on your shoulders and a command sword!"
+"What's rare about it? Fighting under the Senate offers countless chances for merit and advancement. What's an NCO promotion? Fight well, enter the Training Team after battle, and emerge with officer stars on your shoulders and a command sword at your side!"
 
-To big-head soldiers, "promotion" was always the most attractive topic. Whether in the old Ming army or under the Senate's command, officers were always "high-class people" above, and this future was somewhat visible and tangible. So these few words immediately stirred everyone's ambition for fame and gain.
+To common soldiers, "promotion" remained the most magnetic topic. Whether in the old Ming army or under Senate command, officers belonged to a higher class—but here, that future seemed visible and attainable. These few words immediately kindled everyone's ambition for fame and fortune.
 
-Becoming an officer might be a bit hard, but becoming an NCO—head of soldiers, tail of generals—was probably easy. It was nothing more than fighting and selling one's life with sword and gun. They had fought several battles; to be honest, they hadn't fought any particularly tough ones yet. The enemy largely couldn't resist them, let alone enter bayonet combat.
+Becoming an officer might require effort, but NCO rank—head of soldiers, tail of generals—seemed within reach. It amounted to selling one's life with sword and gun in combat. They'd fought several engagements already, none particularly ferocious. The enemy largely crumbled before them, rarely reaching bayonet range.
 
-"The Chiefs are Sages vying for the world; there will be plenty of times to use soldiers in the future. As long as you fight bravely and obey commands, are you worried about not being promoted? Hmph, but looking at your bird-like appearances today, you have a share in dying, but promotion will be hard! Remember, the first to die in battle are the soft eggs. The two today are examples!"
+"The Chiefs are Sages contending for the world. There will be countless battles ahead. Fight bravely, follow orders, and promotion is inevitable. But looking at your miserable performance today, dying is easy—advancement will be hard! Remember this: the first to die in battle are the cowards. Those two today proved it."
 
-"Speaking of which, it was really miserable; they were shot directly!" Someone whispered an injustice.
+"Speaking of which, it was brutal—shot down directly!" someone whispered indignantly.
 
-"Can't blame anyone for that. Fighting a battle, you can't disorder the ranks—even in the Great Ming, this is the rule! When I went on campaign as a government soldier back then, there were House Retainers supervising the battle right behind us. Not to mention retreating, anyone who even looked back would be beheaded directly..." The old soldier slicker started bragging.
+"No one else to blame. In battle, you maintain formation—even in the Great Ming, this was law! When I marched as a government soldier back then, House Retainers supervised from behind. Not just retreating—anyone who even looked back was beheaded on the spot..." The old campaigner started his familiar bragging.
 
-"That breaks it down clearly. Being a soldier fighting a war, no matter which country or dynasty you serve, the first thing is neat ranks, the second is strict discipline! Without a command, even if a sword chops on your head, you are not allowed to fire, understood?! Next time, if anyone dares to move a finger, I'll chop you up on behalf of the supervising team!"
+"Let me make this crystal clear. Being a soldier in any country, any dynasty, means two things above all: neat ranks and strict discipline! Without orders, even if a blade falls on your head, you do not fire. Understood?! Next time someone moves a finger without orders, I'll cut you down myself on behalf of the supervising team!"
 
-Yang Erdong cursed a few more sentences. Logistics sent supplies over, and Yang Erdong took the Quartermaster to receive them. Once the officer left, although the soldiers' hands didn't stop working, their mouths started chatting. The topic started from scolding officers for treating people like livestock, unknowingly fell back to "who was the first to chicken out and fire the first shot when attacking the wall," and finally no one could distinguish clearly, only able to prove their innocence by swearing cynically.
+Yang Erdong cursed them thoroughly. When logistics delivered supplies and he left to receive them with the quartermaster, the soldiers' hands kept working but their mouths found new entertainment. The topic drifted from cursing officers for treating them like livestock, meandering to "who panicked first and fired that initial shot during the wall assault," until finally no one could distinguish truth from fiction, proving innocence only through cynical oaths.
 
-Ai Buyi buried his head in digging earth, not participating in the bragging contest routinely carried out by his comrades. Someone suddenly mentioned: "Luckily we won in the end. If we hadn't taken it down, messing it up, they might have shot a few of us when we retreated tonight."
+Ai Buyi kept his head down, digging earth, avoiding his comrades' routine bragging contests. Someone suddenly remarked, "Lucky we won eventually. If we'd failed to take that wall, they might have shot a few of us tonight when we retreated."
 
-Hearing a matter concerning life, everyone present pricked up their ears.
+The matter touched on survival. Every ear perked up.
 
-"Don't talk nonsense; the Chiefs don't kill people indiscriminately," someone said quickly.
+"Don't talk nonsense. The Chiefs don't kill people indiscriminately," someone said quickly.
 
-That person hmphed, nodding towards Malay, who was sewing clothes for relief: "What do you think Luo Mao's direct control squad does? They kill those who don't advance at the drum beat and fear the enemy. Malay, isn't that right?"
+The speaker snorted, nodding toward Malay, who sat mending clothes nearby. "What do you think Luo Mao's direct control squad does? They execute those who don't advance on the drum beat and fear the enemy. Malay, isn't that right?"
 
-Malay was a new recruit; of course, he dared not fail to respond when asked by an old soldier. He shook his head: "I dare not say that. But Sergeant Luo certainly has the Squadron Leader's trust; he always stays by his side..."
+Malay, a new recruit, dared not refuse an old soldier's question. He shook his head. "I dare not say. But Sergeant Luo certainly has the squadron leader's trust. He always stays close..."
 
-"So that's it. Squadron Leader Li trusts Sergeant Luo most. When fighting, his squad always stays by his side, and he sends them up at critical moments—what is this? Isn't it just House Retainers?" The speaker was Gou Shangtian. He was also of Ming army origin, but had been a combat soldier, better than these replacement soldiers who had only been miscellaneous soldiers. He loved bragging and talking big on ordinary days.
+"Exactly. Squadron Leader Li trusts Sergeant Luo most. In battle, his squad stays at his side, deployed at critical moments—what is that if not House Retainers?" The speaker was Gou Shangtian, a Ming army veteran who'd served as a combat soldier rather than mere replacement fodder. He loved to brag on ordinary days.
 
-Ai Buyi followed the crowd to look at him. Gou Shangtian got even more excited: "Didn't we sit on the main street to eat lunch the second day we came to Zhaoqing? I saw with my own eyes Luo Mao taking people into a government office courtyard, then closing the door and chopping down the hundred or so captives inside. Tsk tsk, that blood, flowing like a small stream. It's said they were all captured bandits and local landlords who refused to pay levies..."
+Ai Buyi followed the crowd's gaze. Gou Shangtian grew more animated. "Didn't we eat lunch on the main street our second day in Zhaoqing? I saw with my own eyes Luo Mao taking men into a government courtyard, closing the gates, and cutting down over a hundred prisoners inside. The blood ran like streams. They say it was captured bandits and local landlords who refused levies..."
 
-"Is there such a thing?" Everyone was a bit skeptical. Killing people in this time wasn't rare, but killing hundreds in the city at once without any noise before or after was too magical.
+"Is this true?" Everyone showed skepticism. Killing people in this era wasn't rare, but executing hundreds in the city without any public notice seemed too fantastical.
 
-"If you don't believe it, forget it. Anyway, that night their squad had extra dishes specifically, while other squads didn't. Isn't that eating the meal after an execution?" Gou Shangtian spoke vividly. "Look at those people under him, every one of them... tsk tsk, that murderous aura—I've seen it; only people who kill often have it..."
+"Believe it or don't. That night their squad alone got extra dishes while other squads didn't. Isn't that the executioner's meal?" Gou Shangtian spoke vividly. "Look at his men—every one of them carries that aura... Only people who kill regularly have it..."
 
-At these words, everyone shuddered, turning to rejoice endlessly about today's events.
+At these words, everyone shuddered, turning to rejoice endlessly about today's outcome.
 
 ...
 
-Yang Erdong finished receiving and counting supplies and came back to start inspecting weapons according to orders. Li Dong worried that the soldiers hadn't learned to use rifles for long and feared problems, so he ordered squad leaders of every squad to personally inspect every soldier's weapon integrity every night.
+Yang Erdong finished receiving and counting supplies, then began weapons inspection per orders. Li Dong worried that soldiers new to rifles might develop problems, so he ordered every squad leader to personally inspect every weapon's condition nightly.
 
-He inspected the soldiers' rifles one by one to see if they cleaned their guns according to regulations. Old soldiers were better; basically, they all had the habit of cleaning guns. New soldiers were uneven; some forgot while being busy. Yang Erdong unavoidably cursed them out again and ordered those who didn't clean guns to stand night watch today.
+He examined each soldier's rifle, checking if they'd cleaned their weapons properly. Old soldiers proved reliable—most had developed the habit. New soldiers showed inconsistency; some forgot amid their tasks. Yang Erdong cursed them out again and ordered those with uncleaned weapons to stand watch tonight.
 
-Weapon inspection finished, Yang Erdong frowned and called:
+Inspection finished, Yang Erdong frowned and called out.
 
 "Ai Buyi, come here!"
 
-Ai Buyi handed over his gun and it hadn't been returned to him; his heart had been trembling. Hearing Yang Erdong call his name, his head buzzed. Walking up shakily, he saw Yang Erdong holding exactly his rifle. Knowing the matter couldn't be covered up, he flopped down on his knees.
+Ai Buyi's rifle had been taken for inspection and not returned—his heart had been trembling ever since. Hearing his name, his head buzzed. Walking up unsteadily, he saw Yang Erdong holding precisely his rifle. Knowing the matter couldn't be hidden, he dropped to his knees.
 
-Yang Erdong said nothing, raising his hand to slap him twice, then raised his foot and kicked Ai Buyi, making him howl in pain. At this time, Luo Mao was leading a squad of the direct control team on night patrol. Hearing the commotion, he came over to ask what was happening, scaring Ai Buyi pale.
+Yang Erdong said nothing, raising his hand to slap him twice, then kicking him hard enough to make him howl. At that moment, Luo Mao was leading his direct control squad on night patrol. Hearing the commotion, he came to investigate, terrifying Ai Buyi.
 
 Yang Erdong handed Ai Buyi's rifle to Luo Mao.
 
-"Take a look!"
+"Take a look."
 
-As an old soldier of Fubo Army origin, Luo Mao was thoroughly familiar with the work of handling guns. Once the gun was in hand, a slight check revealed the problem. He immediately tilted the barrel, and surprisingly poured out four bullets. The two looked up at each other and sighed.
+As an old Fubo Army soldier, Luo Mao knew weapons intimately. Taking the rifle, a quick check revealed the problem. He tilted the barrel—four bullets poured out. The two NCOs looked at each other and sighed.
 
-Ai Buyi felt he was dead for sure. Not collapsing on the ground was entirely due to the military discipline drilled into him over the past few months. He didn't even realize he was begging with a crying tone: "Officer, beg you to let me return to my hometown. I really dare not shoot at people..."
+Ai Buyi felt death was certain. That he didn't collapse entirely was due only to months of drilled military discipline. He didn't even realize he was begging with a tearful voice. "Officer, please let me go home. I truly can't shoot at people..."
 
-The two NCOs also knew that other squadrons of the National Army, and even the Fubo Army, had had such cases. Looking robust and bold, with good obedience and not bad training scores, but just dared not kill people, fainting as soon as they went onto the battlefield. Not only failing to fight themselves but also dragging down comrades.
+Both NCOs knew such cases had occurred in other National Army squadrons, even in the Fubo Army. Men who looked robust and bold, with good obedience and decent training scores, but simply couldn't kill. They fainted on the battlefield, failing to fight themselves while dragging down comrades.
 
-Now his own squadron had discovered such a good-for-nothing! Luo Mao was somewhat in a difficult position. Beating him up in public would treat the symptoms but not the root cause; shooting him wasn't that serious. If it were ordinary times without war, dismissing him would be fine. But now they were in combat; if a sound, strong man could go home just because of cowardice—this war couldn't be fought anymore.
+Now their squadron had discovered such a liability! Luo Mao found himself in a difficult position. Beating him publicly would treat symptoms, not the root. Shooting him seemed excessive. In peacetime without combat, dismissal would suffice. But now they were engaged—if a healthy, strong man could go home simply from cowardice, this war couldn't be fought.
 
-In the end, Luo Mao took the matter on: "I'll talk to him; you busy yourself with your stuff."
+In the end, Luo Mao took responsibility. "I'll talk to him. You handle your business."
 
-Luo Mao sat on the breastwork, lit a cigarette, beckoned Ai Buyi closer, and asked him: "What are you afraid of? Tell me."
+Luo Mao sat on the breastwork, lit a cigarette, beckoned Ai Buyi closer, and asked, "What frightens you? Tell me."
 
-Ai Buyi answered hesitantly: "I'm really scared; I dare not shoot at people. And I can't beat the enemy. I followed the unit for a few battles; standing in the back I saw clearly. My little skill isn't enough to fight the Ming army... I have an old mother at home; I'm afraid if I die no one will take care of her. Beg you to speak to Squad Leader Li and let me go home." Saying this, he was about to burst into tears.
+Ai Buyi answered haltingly. "I'm terrified. I can't shoot at people. And I can't beat the enemy in combat. I've followed the unit through several battles, standing in back watching clearly. My meager skills aren't enough to fight the Ming army... I have an old mother at home. I'm afraid if I die, no one will care for her. Please speak to Squadron Leader Li and let me go home." Tears threatened.
 
-"Everyone is afraid of death; who isn't? But will you not die if you are afraid? Fighting a war isn't your personal business; there are over a hundred brothers standing with you. If you want to leave because you are afraid, what about the brothers of the whole squadron? Now we are in combat; your conduct today counts as desertion in the face of battle, enough to be shot as a deserter! Do you remember the two brothers who were shot?!"
+"Everyone fears death. Who doesn't? But will fear save you? War isn't your personal affair—over a hundred brothers stand with you. If you leave because you're afraid, what about the squadron? We're in combat now. Your conduct today counts as desertion before the enemy—enough to be shot! Remember those two brothers executed?"
 
-"Report to Officer, I remember."
+"Report to officer, I remember."
 
-"Good that you remember!" Luo Mao paused, softening his tone. "Now I'll teach you a way to be a soldier and not die. Listen carefully: If you don't want to die, you have to win battles, win them absolutely! Understood? Tell me, how can we win battles?"
+"Good that you remember!" Luo Mao paused, softening his tone. "Now I'll teach you how to be a soldier and survive. Listen carefully: If you don't want to die, you must win battles—win them decisively! Understood? Tell me, how do we win battles?"
 
 "...Shoot to kill the enemy."
 
-"Bullsh*t! I see you've forgotten everything taught in training; the beatings back then were for nothing." Luo Mao scolded angrily, making Ai Buyi shudder. "I'll teach you once more, remember this: You are a soldier; a soldier's duty is to obey orders! Repeat it, louder! When told to line up, you line up. When told to fire, you load and shoot at the fastest speed. Without orders, stand honestly; don't move even if a knife chops on your head. You are afraid because you think too much and don't listen clearly to orders, being half-hearted. No matter what the enemy opposite does, don't think about how to kill the enemy; that's what officers should ponder. Keeping an eye on the officer's every word and action is where your duty lies. Victory doesn't lie in how many enemies are killed, but whether you can complete your duty. And as long as everyone performs their duties, we will keep winning."
+"Bullshit! I see you've forgotten everything from training. The beatings were wasted." Luo Mao's anger made Ai Buyi shudder. "I'll teach you once more—remember this: You are a soldier. A soldier's duty is to obey orders! Repeat it, louder! When ordered to form up, you form up. When ordered to fire, you load and shoot at maximum speed. Without orders, stand fast—don't move even if a blade falls on your head. You're afraid because you think too much, don't listen clearly to orders, remain half-hearted. No matter what the enemy does, don't think about killing them—that's what officers consider. Watching the officer's every word and action is your duty. Victory doesn't lie in enemy body count but in everyone completing their duty. And as long as everyone performs their duties, we keep winning."
 
 "Yes..."
 
-Luo Mao didn't know if these words were useful to him. He softened his tone: "Besides, you follow the troops to fight. Although brothers die or get injured in every battle, how does it compare to the enemy's corpses littering the field? Fighting with the Fubo Army, you won't throw your life away easily—as long as you obey orders and listen to command!"
+Luo Mao couldn't tell if these words would help. He softened further. "Besides, you follow the troops to battle. Although brothers die or get wounded every fight, how does it compare to enemy corpses littering the field? Fighting with the Fubo Army, you won't throw your life away easily—as long as you obey orders and follow commands!"
 
-Luo Mao didn't want to push too hard. After saying what needed to be said, he sent him back.
+Not wanting to push too hard, Luo Mao sent him back after saying what needed saying.
 
-"Luo Mao actually didn't shoot you? What did he say to you?" As soon as Ai Buyi returned to the trench, the brothers surrounded him. Ai Buyi just gripped the shovel handle tightly, bowing his head in silence.
+"Luo Mao didn't shoot you? What did he say?" As soon as Ai Buyi returned to the trench, the brothers swarmed him. Ai Buyi merely gripped the shovel handle tightly, head bowed in silence.
 
-"Little brother, next time fighting you'll definitely be the vanguard..." Gou Shangtian said, unknown whether with good or malicious intent.
+"Little brother, next battle you'll definitely be vanguard..." Gou Shangtian said, his intent unclear.
 
-After returning, Luo Mao reported Ai Buyi's matter to Li Dong, suggesting observing a while longer.
+After returning, Luo Mao reported Ai Buyi's case to Li Dong, suggesting continued observation.
 
-"New recruits are inevitably timid; they'll be fine after fighting a few more battles."
+"New recruits are inevitably timid. They'll be fine after a few more battles."

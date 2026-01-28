@@ -2,15 +2,15 @@
 
 "You're up now—what's the rush!" Chen Ruihe was not intimidated; he fired right back.
 
-"I'm ordering you one more time—shut your mouth! What are you blathering about!" The officer addressed as "Squadron Commander" was none other than You Ciren. His face was dark as he barked at his subordinate, then turned back to Chen Ruihe with a softened expression: "Young doctor, I'm terribly sorry. This is our vice squadron commander. Normally his temper is fine—he's never like this. It's just that we've had a lot of wounded brothers today. Even I got hit. He's anxious..."
+"I'm ordering you one more time—shut your mouth! What are you blathering about!" The officer addressed as "Squadron Commander" was none other than You Ciren. His face was dark as he barked at his subordinate, then turned back to Chen Ruihe with a softened expression. "Young doctor, I'm terribly sorry. This is our vice squadron commander. Normally his temper is fine—he's never like this. It's just that we've had a lot of wounded brothers today. Even I got hit. He's anxious..."
 
-Chen Ruihe could hardly say much to that. He spread out the registration form: "Then let me take a quick look at you first. Treatment may have to wait, though—that last patient was in serious condition. I hope you understand... How were you wounded?"
+Chen Ruihe could hardly say much to that. He spread out the registration form. "Then let me take a quick look at you first. Treatment may have to wait, though—that last patient was in serious condition. I hope you understand... How were you wounded?"
 
 "Fell into a bandit trap!" The vice squadron commander was still seething, glaring at the unconscious Wang Chuyi. "We've got a lot of casualties, and some got scattered..."
 
 A sharp glare from You Ciren cut him off—he realized he had said too much. Discussing front-line conditions in the rear without authorization was against regulations.
 
-Chen Ruihe did not mind. He examined You Ciren carefully: "Where were you hit?"
+Chen Ruihe did not mind. He examined You Ciren carefully. "Where were you hit?"
 
 "Here!" You Ciren grimaced, turning to show his back and arm. "Took a pellet. Didn't feel it at the time. Now it hurts like hell!"
 
@@ -30,13 +30,13 @@ The skin around the wound showed no bluish discoloration from lead poisoning—m
 
 Before Chen Ruihe finished, the vice squadron commander started arguing with someone again.
 
-"What's wrong with you today, you asswipe?" You Ciren was furious now, cursing as he stood up: "Son of a bitch! Making a scene here? Don't you know where you are? Embarrassing the whole unit!"
+"What's wrong with you today, you asswipe?" You Ciren was furious now, cursing as he stood up. "Son of a bitch! Making a scene here? Don't you know where you are? Embarrassing the whole unit!"
 
 "What's going on?" Xie Yao heard the commotion and came over. "Why all the noise?"
 
 "This man is being unreasonable, Doctor Xie!" Chen Ruihe jumped up and, together with You Ciren, briefly explained the situation.
 
-Xie Yao frowned: "You said just now—how were you wounded?"
+Xie Yao frowned. "You said just now—how were you wounded?"
 
 "It was... a command error, you could say. We walked into a bandit trap. Doctor, I have to apologize for him: this fellow is normally even-tempered, steady—I've never seen him fight with anyone. I don't know what's got into him today. Must be seeing so many brothers wounded..."
 
@@ -44,9 +44,9 @@ Xie Yao frowned: "You said just now—how were you wounded?"
 
 "Him, wounded?" You Ciren laughed. "He didn't bleed, didn't even scrape his skin. Just got bumped on the belly by a log when we broke out..."
 
-Xie Yao listened, studied the officer for a few seconds, then strode over and crouched down. He grabbed the man's wrist and felt his pulse; his expression turned grave. He stood up and said: "Xiao Chen, take this comrade to the observation room too!"
+Xie Yao listened, studied the officer for a few seconds, then strode over and crouched down. He grabbed the man's wrist and felt his pulse; his expression turned grave. He stood up and said, "Xiao Chen, take this comrade to the observation room too."
 
-Chen Ruihe was startled: "Him?" Xie Yao was clearly not pointing at You Ciren, but at the vice squadron commander who had been making a fuss.
+Chen Ruihe was startled. "Him?" Xie Yao was clearly not pointing at You Ciren, but at the vice squadron commander who had been making a fuss.
 
 "Doctor Xie, what's...?"
 
@@ -74,9 +74,9 @@ Chen Ruihe understood: the Medical Station had nowhere near enough stored blood.
 
 "He's clearly in hypovolemic shock, and the bleeding has gone on too long. If we don't act, he'll die... Give him the stored blood first. If you can debride and stop the bleeding, go ahead. I'll handle this one!"
 
-"Yes!" Chen Ruihe could hardly say he wasn't capable. When hands were short, interns had to be thrown in at the deep end. Better to do something—anything—than stand there helpless.
+"Yes!" Chen Ruihe could hardly say he was not capable. When hands were short, interns had to be thrown in at the deep end. Better to do something—anything—than stand there helpless.
 
-Xie Yao worked and thought furiously. They had already transfused one patient today. The station had only two or three units of whole blood left—by the Council's standard, "one unit" was 200cc. If Bi Cheng's bleeding could be stopped successfully, those two or three units plus IV fluids might just be enough. But if Bi Cheng's bleeding could not be controlled—if the suspected splenic-rupture patient needed an emergency splenectomy—it would take several thousand cc of blood to save either.
+Xie Yao worked and thought furiously. They had already transfused one patient today. The station had only two or three units of whole blood left—by the Council's standard, "one unit" was 200cc. If the bleeding could be stopped successfully, those two or three units plus IV fluids might just be enough. But if the bleeding could not be controlled—if the suspected splenic-rupture patient needed an emergency splenectomy—it would take several thousand cc of blood to save either.
 
 Now Xie Yao faced the question: which patient to save first?
 
@@ -92,7 +92,7 @@ Though he had seen countless patients die before his eyes and under his hands, X
 
 "What about this one?" The medic pointed at You Ciren, still lying on the examination table.
 
-"He won't die. Move him to the light-casualty holding area. Doctor Xie will operate when he has time." He picked up You Ciren's patient card, filled in the examination details, and said: "Hang it around his neck!"
+"He won't die. Move him to the light-casualty holding area. Doctor Xie will operate when he has time." He picked up You Ciren's patient card, filled in the examination details, and said, "Hang it around his neck!"
 
 Song Junxing was the Elder on duty at the Medical Station that day. Though the oral-surgery department had too few maxillofacial casualties to justify a dedicated service, if you drew a front-line assignment, you had to send someone. So Song Junxing rotated through with the other Elders and senior naturalized physicians, accompanying the Mobile Hospital to each county in turn.
 

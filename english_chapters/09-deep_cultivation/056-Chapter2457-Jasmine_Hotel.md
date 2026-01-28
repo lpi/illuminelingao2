@@ -2,100 +2,100 @@
 
 While Master Wu was enjoying himself in the bathtub, a small disturbance arose in Chen Lin's room.
 
-The rooms Chen Xiaobing arranged for the inspection group members were "standard rooms," one for each person, just enough to accommodate a master and a servant. Chen Ding brought Chen An, but Chen Lin brought Chen Yue.
+The rooms Chen Xiaobing had arranged for the inspection group members were "standard rooms," one per person, just enough to accommodate a master and servant. Chen Ding had brought Chen An, but Chen Lin had brought Chen Yue.
 
-Although they were siblings, they were both young adults, and living in the same room was inconvenient in many ways. As soon as the Chen siblings entered the room, they felt very awkward—should they stay or not?
+Though they were siblings, both were young adults, and sharing a room was awkward in many ways. The moment the Chen siblings entered their room, they felt the discomfort—should they stay or not?
 
-Chen Ding wanted to make adjustments, but Chen Yue was the only woman in the entire inspection group, so no matter what he did, he couldn't adjust it.
+Chen Ding wanted to make adjustments, but Chen Yue was the only woman in the entire inspection group. No matter how he tried, he couldn't work out the arrangements.
 
-"Why don't we book another room?" Chen Ding said, "At worst, we'll pay for it ourselves." He immediately went to find Chen Xiaobing.
+"Why don't we book another room?" Chen Ding said. "At worst, we'll pay for it ourselves." He immediately went to find Chen Xiaobing.
 
-"Booking another room is not difficult." Chen Xiaobing immediately took them to the front desk, but unexpectedly, the front desk clerk looked troubled after checking the reservation book: there were really no empty rooms.
+"Booking another room isn't difficult." Chen Xiaobing promptly took them to the front desk, but unexpectedly, the clerk looked troubled after checking the reservation book. There truly were no empty rooms.
 
-"Can't squeeze out even one room?" Chen Xiaobing asked closely.
+"Can't you squeeze out even one?" Chen Xiaobing pressed.
 
-"Not a single one left," the clerk said. "Reservations are full these days—if it were a few days later, we could figure something out. But wanting it tonight, there is really no way."
+"Not a single one left," the clerk said. "Reservations are full these days. A few days later, we could work something out. But tonight—there's really no way."
 
-Chen Lin said: "Why don't I find another inn to stay in. As long as it's nearby, it's fine. Anyway, it's just sleeping at night!"
+"Why don't I find another inn to stay at," Chen Lin said. "As long as it's nearby, that's fine. It's only for sleeping anyway!"
 
-Chen Xiaobing thought this was the only way. He immediately sent a rickshaw driver to take him and his luggage to settle in a hotel in Bopu Town.
+Chen Xiaobing thought this was the only option. He immediately sent a rickshaw driver to take Chen Lin and his luggage to settle at a hotel in Bopu Town.
 
-He wrote a few lines on his carry-on official notebook, stamped his seal, and said: "Take this to register at the hotel. Food and accommodation expenses incurred in the hotel can be put on the account."
+He wrote a few lines on his official notebook, stamped his seal, and handed it over. "Take this to register at the hotel. Food and accommodation expenses can be put on the account."
 
-Chen Lin took it and was about to go out. Remembering his sister, he took Chen Yue aside and pulled a long face to lecture her: "You are living alone, keep the door strictly closed, and don't go out of the room if there's nothing to do! Although this place looks prosperous, it is actually a mix of dragons and snakes (good and bad people). Don't show your face easily! Uncle and Second Uncle are next door; ask them to look after you if there is anything. Don't go to the banquet tonight—it's inconvenient."
+Chen Lin took the note and was about to leave. Remembering his sister, he pulled Chen Yue aside and spoke sternly: "You're staying alone now, so keep the door locked and don't leave the room unless necessary. This place may look prosperous, but it's a mix of all sorts. Don't show your face easily! Uncle and Second Uncle are next door—ask them if you need anything. Don't come to the banquet tonight—it's inconvenient."
 
-Unexpectedly, these words were heard by Chen Xiaobing, who immediately said seriously: "Ms. Chen Yue is also a member of the inspection group; how can she not go? Besides, it is a banquet of the Senate; what is inconvenient?"
+Chen Xiaobing overheard and immediately said seriously, "Miss Chen Yue is also a member of the inspection group. How can she not attend? Besides, it's a Senate banquet—what's inconvenient?"
 
-Chen Lin was extremely embarrassed and had to say: "Since Comrade Chen says so, you go—wait for me to come back and we'll go together!"
+Chen Lin felt extremely embarrassed and could only say, "Since Comrade Chen says so, you go—but wait for me to come back and we'll go together!"
 
-The rickshaw puller took Chen Lin and his luggage from the hotel to Bopu Town. Compared to the Seaside Avenue, this place was more "downtown." Streets crisscrossed, and crowds were bustling. It was full of market vitality. The puller took him all the way to a quiet small street near the Wenlan River, in front of a white two-story small building.
+The rickshaw puller took Chen Lin and his luggage from the hotel to Bopu Town. Compared to the Seaside Avenue, this place felt more like a real "downtown." Streets crisscrossed and crowds bustled. It was full of market vitality. The puller took him along a quiet small street near the Wenlan River, stopping before a white two-story building.
 
-"This is it at. Sir, just take the introduction letter to register." The rickshaw puller helped him unload the luggage from the back of the cart and said.
+"Here we are, sir. Just take the introduction letter to register." The rickshaw puller helped him unload the luggage from the back of the cart.
 
-"Yes, yes, thank you, little brother." Chen Lin took out a subsidiary currency coupon from his sleeve, "For little brother to buy wine."
+"Yes, thank you, little brother." Chen Lin pulled out a subsidiary currency coupon from his sleeve. "For you to buy a drink."
 
-"Many thanks, guest." The puller was not polite either, said a greeting, accepted the "tip," and was about to leave pulling the cart when he turned back and smiled: "If the journey is lonely, Master can go to Heyuan Street for a walk. I guarantee you will cheer up quickly."
+"Many thanks, guest." The puller accepted the "tip" without ceremony, said his farewell, and was about to leave when he turned back with a smile. "If the journey gets lonely, Master might take a walk down Heyuan Street. I guarantee you'll cheer up quickly."
 
-Chen Lin knew from his smile that this Heyuan Street was certainly not a good place. Turning his head to look at the hotel the driver brought him to, it was a two-story small building with walls painted snow-white, equipped with a brick-red roof. But the windows were painted blue. Looking over under the clear blue sky, it was simply dazzling to the eyes.
+Chen Lin could tell from his smile that Heyuan Street was certainly not a respectable place. He turned to look at the hotel before him—a two-story building with walls painted snow-white and topped with brick-red tiles. But the windows were painted blue. Under the clear sky, it was simply dazzling to the eyes.
 
-This was fine, but on the walls, beside the steps, on the handrails of the second-floor balcony, flower pots were everywhere, planted with flowers of various colors, blooming everywhere. Especially the two big jasmine plants beside the door were in full bloom, and the air was full of the rich fragrance of jasmine.
+That was fine, but flower pots were everywhere—on the walls, beside the steps, on the second-floor balcony railings—planted with flowers of every color, all in bloom. The two large jasmine plants beside the door were particularly profuse, filling the air with rich fragrance.
 
-"This is an inn?" If Longhao Bay Hotel completely exceeded Chen Lin's imagination of an "inn," then this "hotel" in front of him overturned his cognition of inns even more.
+"This is an inn?" If Longhao Bay Hotel had completely exceeded Chen Lin's imagination of an "inn," this "hotel" overturned his understanding of such establishments even more.
 
-While he was suspicious, the two glass lattice doors of the small building opened, and a waiter, also in white shirt and black trousers, came out to greet him:
+While he stood uncertain, the two glass-latticed doors of the building opened, and a waiter in the same white shirt and black trousers came out to greet him.
 
 "Is the guest here to stay?"
 
 "Is this... Jasmine Hotel?" Chen Lin glanced at the paper slip in his hand.
 
-"Correct, this is the small shop."
+"Correct, this is our humble establishment."
 
-"I want to stay." Hearing it was right, Chen Lin immediately handed over the paper slip.
+"I want to stay." Hearing confirmation, Chen Lin immediately handed over the slip.
 
-The waiter took the paper slip and glanced at it, immediately showing respect: "So the guest is a guest of the Senate! Disrespect, disrespect!" After speaking, he picked up Chen Lin's luggage, "Guest, please come inside."
+The waiter glanced at it and immediately showed respect. "So the guest is a guest of the Senate! My apologies for not recognizing you!" He picked up Chen Lin's luggage. "Please, come inside."
 
-Walking up the steps and entering the house, he only felt cool before his eyes. The decoration here was different from Longhao Bay Hotel. The lobby was not large, but the layout was tidy, with reduced decoration, yet very beautiful. Despite the clusters of flowers outdoors, the lobby had only green plants. The walls were simply painted white, hanging a few landscape paintings. The furniture indoors was mostly rattan woven and bamboo made, with simple and plain patterns. Bookshelves were set up along the wall, filled with various books... Although it was not the traditional Chinese study furnishings, one could still feel the owner's taste for quiet elegance.
+Walking up the steps and entering, he felt coolness before his eyes. The decoration here differed from Longhao Bay Hotel. The lobby wasn't large, but the layout was tidy, with minimal decoration yet very beautiful. Despite the clusters of flowers outdoors, the lobby held only green plants. The walls were simply painted white, hung with a few landscape paintings. The furniture was mostly rattan and bamboo, with simple, plain patterns. Bookshelves lined the walls, filled with various books... Though it wasn't traditional Chinese study furnishings, one could still sense the owner's taste for quiet elegance.
 
 Compared to the luxury of Longhao Bay, this place made him feel more at ease.
 
 "What an elegant and quiet place!"
 
-"Guest, you put it well," the waiter became spirited upon hearing his praise, "Our Jasmine Hotel is a famous elegant place locally. Scholars coming to Lingao from outside to study all like to stay here, discussing learning here at night. There are also many people who specially come here for pure talk and elegant gatherings."
+"You put it well, sir," the waiter said with spirit upon hearing the praise. "Our Jasmine Hotel is a famous elegant establishment locally. Scholars coming to Lingao from outside to study all like to stay here, discussing learning late into the night. Many people come here specially for refined conversation and elegant gatherings."
 
-"I didn't expect your owner to be so elegant!" Chen Lin nodded repeatedly.
+"I didn't expect your owner to be so cultured!" Chen Lin nodded repeatedly.
 
-"My owner was originally a local gentry in the county," speaking of this, the waiter lowered his voice, "And a *Jinshi* master!"
+"My owner was originally a local gentleman of the county," the waiter said, lowering his voice, "and a *Jinshi* master!"
 
-*Such a thing?* Chen Lin was quite surprised. Until now, at least in Guangzhou, he hadn't heard of any *Jinshi* master defecting to the 'Kun'. The remaining *Jinshi* all followed the routine of "not leaving and not surrendering," hiding in their own properties and rarely going out. He hadn't heard of anyone coming out to run a business. Moreover, why run an 'inn' of all businesses? This was not a "decent trade."
+*Such a thing?* Chen Lin was quite surprised. Until now, at least in Guangzhou, he hadn't heard of any *Jinshi* master defecting to the "Kun." The remaining *Jinshi* all followed the routine of "not leaving and not surrendering," hiding on their own properties and rarely venturing out. He'd never heard of anyone opening a business. And why an "inn" of all things? This was not a "respectable trade."
 
-This "county gentry" was needless to say Liu Dalin. According to the history of the other timeline, he would have died for more than two years by now. However, the arrival of the Senate treated his illness and nursed his body in this timeline. Jinshi Liu's body was actually stronger than on D-Day. Although he couldn't walk freely, he could walk a little with a cane.
+This "county gentleman" was none other than Liu Dalin. According to the history of the other timeline, he would have died more than two years ago by now. However, the Senate's arrival had treated his illness and restored his health in this timeline. Jinshi Liu's body was actually stronger than on D-Day. Though he couldn't walk freely, he could manage with a cane.
 
-Liu Dalin had never formally defected to the 'Kun', maintaining a "cooperative relationship" of neither too close nor too distant with the Senate, but honestly speaking, he had never caused any trouble for the Senate either. In recent years, there were many private letters from the mainland inquiring about news of the Kun thieves. He replied to every letter, speaking good words about the Senate in the letters, and ignoring all questions involving military and political affairs. Therefore, he gained much goodwill from the Elders. Although with the victory of the second counter-encirclement campaign, the Senate had gained a firm foothold in Lingao and even Hainan Island, and its power reached far into the Pearl River Delta, Liu Dalin's utility value had actually dropped significantly, but the Senate still treated this Ming Jinshi very preferentially. The Jasmine Pavilion Academy hosted by him as a "cultural salon" for Lingao traditional Confucianism also continued to exist.
+Liu Dalin had never formally defected to the "Kun," maintaining a "cooperative relationship" of neither too close nor too distant with the Senate. But honestly speaking, he had never caused them any trouble either. In recent years, many private letters from the mainland had arrived inquiring about news of the Kun thieves. He replied to every one, speaking well of the Senate in his letters, and ignoring all questions involving military and political affairs. This earned him considerable goodwill from the Elders. Though with the victory of the second counter-encirclement campaign, the Senate had gained firm footing in Lingao and even Hainan Island, and its power reached deep into the Pearl River Delta—meaning Liu Dalin's utility value had dropped significantly—the Senate still treated this Ming *Jinshi* very preferentially. The Jasmine Pavilion Academy he hosted as a "cultural salon" for Lingao's traditional Confucianism also continued to exist.
 
-Jinshi Liu was not a "rotten scholar" who was impervious to reason. He did not fully agree with the Australians' administrative actions in Lingao, but seeing the local construction progressing rapidly and the people having no hunger or cold, he also admired it. Therefore, shortly after the establishment of the County Consultative Council, he accepted the appointment letter and became a member of the Consultative Council.
+Jinshi Liu was no "rotten scholar" impervious to reason. He didn't fully agree with the Australians' administrative actions in Lingao, but seeing local construction progress rapidly and the people suffering neither hunger nor cold, he admired them. Shortly after the County Consultative Council was established, he accepted an appointment letter and became a committee member.
 
-Although a committee member, Jinshi Liu rarely went to meetings. Firstly, he didn't have as vigorous an "ambition" as other members, nor was he keen on seeking welfare for descendants and accumulating wealth. Secondly, regarding suggestions for local construction, he felt that with his disability in both legs and staying at home mostly, rarely going out, he couldn't say anything significant. Finally, he still felt some guilt towards the Great Ming in his heart.
+Though a committee member, Jinshi Liu rarely attended meetings. First, he didn't have as vigorous an "ambition" as other members, nor was he keen on seeking welfare for his descendants or accumulating wealth. Second, regarding suggestions for local construction, he felt that with his crippled legs and homebound lifestyle, rarely going out, he couldn't say anything significant. Finally, he still felt some guilt toward the Great Ming in his heart.
 
-These years, he lived quietly like this, the whole family living on the fields and his income as the Headmaster of Jasmine Pavilion. The fields at home had long been contracted to the "Tiandi Society." And the "dividends" sent by the Tiandi Society were always more than other families. Needless to say, this was an extra allowance secretly given by the Elders to take care of his self-esteem and reputation—on this point, he was quite grateful to the Senate.
+These years, he had lived quietly this way, the whole family subsisting on his fields and his income as Headmaster of Jasmine Pavilion. The family fields had long been contracted to the "Tiandi Society." And the "dividends" the Tiandi Society sent were always larger than those of other families. Needless to say, this was a secret extra allowance from the Elders to preserve his self-esteem and reputation—for which he was quite grateful to the Senate.
 
-Most of the servants at home had been dismissed, leaving only a few old servants to continue following them. The servants' children and Jinshi Liu's children all entered Fangcaodi to study. With their grades, logically they couldn't be exempted from tuition, but they were all given preferential exemption.
+Most household servants had been dismissed, leaving only a few old retainers to continue serving. The servants' children and Jinshi Liu's own children had all entered Fangcaodi school. By their grades, they logically shouldn't have been exempt from tuition, but all had received preferential exemption.
 
-Liu Dalin also talked about Confucianism, poetry, and eight-legged essays to his son. But the son was obviously not material for studying. This disappointed him greatly, but thinking about it the next year, what was the use of learning this? The Senate's rule didn't need these.
+Liu Dalin also taught his son about Confucianism, poetry, and eight-legged essays. But the son was obviously not scholarly material, which disappointed him greatly. Then again, what use was learning these things? The Senate's rule didn't need them.
 
-This originally peaceful and comfortable life was broken starting from the third year. For some reason, Jinshi Liu's relatives, friends, and old acquaintances suddenly began to visit Lingao frequently.
+This originally peaceful and comfortable life was disrupted starting in the third year. For some reason, Jinshi Liu's relatives, friends, and old acquaintances suddenly began visiting Lingao frequently.
 
-The visitors were mostly the nephews and juniors of these people. They said they came to "visit," but in reality, after a few polite words, they asked about the situation in Lingao, and then went out to purchase extensively, buying "Australian goods" wildly.
+The visitors were mostly nephews and juniors of these people. They claimed to come for "visits," but after a few polite words, they asked about conditions in Lingao, then went out to purchase wildly—buying "Australian goods" in quantity.
 
-It would be fine if they just came to purchase, but they wandered around the streets, asking about everything. Because of their suspicious behavior, they were even arrested by the police several times. Finally, Liu Dalin had to come forward to bail them out.
+If they'd just come to buy goods, that would have been fine. But they wandered the streets asking about everything. Their suspicious behavior got them arrested by police several times. Eventually, Liu Dalin had to come forward to bail them out.
 
-Liu Dalin then realized that besides buying Australian goods, visiting relatives and old friends also had the intention of purchasing property and land in Lingao—"making a retreat plan."
+Liu Dalin then realized that besides buying Australian goods, these visitors also intended to purchase property and land in Lingao—"making a retreat plan."
 
-Originally, whether buying goods or preparing a rabbit's three burrows, Liu Dalin didn't care. As long as they came to visit, he received them warmly. However, these visitors still followed old habits, mostly staying at the homes of relatives and friends when in a different place.
+Originally, whether buying goods or preparing a rabbit's three burrows, Liu Dalin didn't mind. As long as they came to visit, he received them warmly. However, these visitors still followed old customs, mostly staying at relatives' and friends' homes when traveling.
 
-Hosting guests from afar was originally a beautiful thing, but he couldn't handle the sheer number of relatives and old friends. In fact, the Liu family didn't have many relatives on the mainland, but Liu Dalin had "classmates" (Tongnian) from both the Juren and Jinshi exams—numbering several hundred.
+Hosting guests from afar was a fine thing, but he couldn't handle the sheer number of relatives and old friends. The Liu family didn't actually have many relatives on the mainland, but Liu Dalin had "classmates" (*Tongnian*) from both the *Juren* and *Jinshi* exams—numbering several hundred.
 
-Thus, the originally quiet Liu residence became busy with comings and goings. Guests had to be entertained every month. Sometimes as soon as one group left, another came.
+Thus the originally quiet Liu residence became busy with comings and goings. Guests had to be entertained every month. Sometimes as soon as one group left, another arrived.
 
-The Liu family not only had to provide food and lodging for the visitors but also send people to accompany them shopping on the street, help handle consignment at the wharf, and if they committed an offense locally, the Liu family had to help come forward to handle the aftermath... Not only was it financially unbearable, but life was also greatly affected.
+The Liu family not only had to provide food and lodging for visitors but also send people to accompany them shopping, help handle consignment at the wharf, and if they committed an offense locally, the family had to step in to handle the aftermath... Financially unbearable, their lives were also greatly disrupted.
 
 **(End of Chapter)**

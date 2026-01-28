@@ -1,88 +1,87 @@
 # Chapter 2404: Reorganizing the Family Business (I)
 
-For the Australians to suddenly wade into this muddy water, it was impossible without a powerful killer move. Just like when the Australians came to Guangzhou to sell paper back then; within a year, they beat the local paper goods into falling flowers and flowing water. Regardless of quality or price, no product on the market could compete with similar products of Australian Paper.
+For the Australians to suddenly wade into this muddy water, they must possess some powerful killer move. It was like when the Australians had come to Guangzhou selling paper years ago—within a year, they had crushed the local paper industry completely. In quality and price alike, no product on the market could compete with Australian Paper.
 
-This Australian Cloth, who knew what unique points it had?
+Who knew what unique advantages this Australian Cloth might hold?
 
-"Then Nephew will show his incompetence. First, speak of this cloth. This cloth is similar to Songjiang fine cloth, but not as exquisite as top-grade Songjiang cloth. It looks a bit loose and not thick enough. This cloth is a bit strange; the surface feels somewhat like cotton cloth, but when bent, it isn't as soft as cotton cloth, appearing stiff and somewhat like linen. I suspect the cotton was mixed and spun with something else. This one is ordinary hemp cloth, even worse than medium hemp cloth; the hairiness here is particularly high, and the weaving craftsmanship looks about the same as farm cloth, slightly distant compared to the weaving workshops on the market." Chen Lin evaluated the cloth samples one by one.
+"Then I'll venture my humble opinion. First, this cloth here—it resembles Songjiang fine cloth, but isn't as exquisite as top-grade Songjiang. It looks somewhat loose and insufficiently thick. This piece is rather strange: the surface feels like cotton, but when bent, it lacks cotton's softness—it's stiff, almost like linen. I suspect the cotton was blended with something else during spinning. This one is ordinary hemp cloth, inferior even to medium-grade hemp. The surface is particularly fuzzy, and the weaving craftsmanship looks comparable to farm cloth—noticeably below what you'd find from market workshops." Chen Lin evaluated the samples one by one.
 
-Wu Yijun stroked the beard on his chin and looked with approval, saying: "Worthy Nephew is indeed from a weaving family; I couldn't see these tricks at all." Chen Lin was a relative of his mother's family, and their silk workshop was also somewhat famous locally. He deemed pointed to the yarn on the side and said: "Come look at these yarns."
+Wu Yijun stroked his beard and nodded approvingly. "As expected from a weaving family—I couldn't spot any of these subtleties." Chen Lin was related through his mother's side, and their silk workshop had enjoyed some local renown. Wu Yijun pointed to the yarn samples nearby. "Now examine this yarn."
 
-Chen Lin picked up the yarn, twisted it in his hand, then tried to pull their fibers apart one by one, pulled a few more times, and said: "This yarn is fine and tough, a top product. Ordinary spinning women cannot make it; it requires a skilled hand of ten years to spin yarn of such quality."
+Chen Lin picked up the yarn, twisted it between his fingers, then pulled apart the fibers one by one, testing several times before speaking: "This yarn is fine yet strong—a top product. Ordinary spinning women couldn't produce this. It would take someone with at least ten years of skilled practice to spin yarn of this quality."
 
-At this time, many textile workshops integrated spinning and weaving. Cotton yarn trade was relatively small, so Chen Lin just took a general look.
+At this time, many textile workshops integrated spinning and weaving. Cotton yarn trade was relatively limited, so Chen Lin offered only a cursory assessment.
 
-Wu Yijun nodded, expressing satisfaction, and said: "Is Worthy Nephew interested in manufacturing this item?"
+Wu Yijun nodded with satisfaction. "Would you be interested in manufacturing such goods?"
 
-This time Chen Lin was confused, saying, "Could it be there are skillful craftsmen available for hire?"
+Chen Lin was confused. "Are there skilled craftsmen available for hire?"
 
-Hearing this, Wu Yijun smiled and said: "Haha, no, no. This is made by machine." He immediately explained his meaning, which was to want him to go back and reopen that textile workshop, then transform it into cotton spinning. The Short-hairs had even better machines over there that could weave even better yarn. If Chen Lin was willing, he could invest money as shares and find the Short-hairs to introduce equipment and technology. Chen Lin's village was at the border of Nanhai County and Sihui; the North River flowed through the locale. Not only were water resources abundant, but one could also reach Guangzhou by flowing downstream. Water transport was convenient.
+Wu Yijun smiled. "No, no. This is machine-made." He explained his proposal: he wanted Chen Lin to return home, reopen the textile workshop, and convert it to cotton spinning. The Short-hairs had even better machines that could spin even finer yarn. If Chen Lin was willing, Wu Yijun would invest as a shareholder and help him obtain equipment and technology from the Short-hairs. Chen Lin's village sat at the border of Nanhai County and Sihui, with the North River flowing through the area. Water resources were abundant, and traveling downstream could reach Guangzhou—water transport was convenient.
 
-"...Looking at the Australians' meaning, they want to greatly develop cotton spinning in Guangdong—and rightly so. Just going down to the South Seas, how many clothes, sails, and bedding would be needed? This is truly a heaven-sent opportunity to make money!"
+"...Judging by the Australians' intentions, they want to massively expand cotton spinning in Guangdong—and rightly so. Think of how much clothing, sails, and bedding the South Seas expeditions will need! This is truly a heaven-sent opportunity!"
 
-Chen Lin, however, was not as excited as his cousin-uncle. His family had done silk for generations and never touched cotton spinning. As the old saying goes, "Interlacing professions is like being separated by mountains." Sericulture and cotton planting were two completely different trades. The merchants handling them were different, and the thresholds were also different. Craftsmen also couldn't just switch if they said switch.
+Chen Lin, however, couldn't share his cousin-uncle's excitement. His family had worked silk for generations and never touched cotton spinning. The old saying held true: "Different trades are like mountains apart." Sericulture and cotton cultivation were completely different industries. The merchants who handled them were different; the barriers to entry were different. Craftsmen couldn't simply switch specialties on a whim.
 
-If they couldn't produce it, they couldn't deliver goods. What use was even the biggest business?
+If they couldn't produce, they couldn't deliver. What good was even the biggest opportunity?
 
-Cousin-uncle's idea was somewhat whimsical. But Chen Lin couldn't say so, so he said:
+His cousin-uncle's idea seemed somewhat fanciful. But Chen Lin couldn't say so directly, so he replied: "This is a significant matter. I must return home and discuss it with my clan relatives before making any decision."
 
-"This matter is significant. Nephew also must go back to discuss with the clan relatives at home before making a decision."
+"In that case, go home first and settle household affairs. I saw in the newspaper that the countryside has been pacified—the bandits and rogue soldiers in Northern Guangdong have retreated. Travel should be reasonably safe. After you return, focus on reorganizing the family business. Come back to Guangzhou to discuss things with me in due time. After such upheaval, I imagine there'll be many expenses. I've already had my accountant prepare one hundred silver dollars—take it home to use."
 
-"In that case, you go back to the hometown first to manage household affairs. I saw in the newspaper that the four countrysides have been pacified, and the chaotic soldiers and bandits in Northern Guangdong have retreated; there should be no major obstruction in safety. After you go back, reorganize the family business first. Come back to Guangzhou Prefecture to discuss with me in some days. After great chaos, I fear there will be many places to spend money. I have already asked the accountant to prepare one hundred silver dollars; you take it home to use."
+"How could I possibly..." Though Chen Lin was moved, he understood that money without cause wasn't easily accepted. Besides, Wu Yijun was merely his cousin-uncle—taking him in during the crisis had already been a tremendous kindness. To suddenly receive one hundred yuan now required careful consideration. He declined repeatedly, insisting it was too much.
 
-"How can this be..." Although Chen Lin was moved, he also understood that this money without cause was not so easy to take. Besides, Wu Yijun was only his cousin-uncle; taking him in back then was already great benevolence and virtue. Now suddenly giving one hundred yuan—he had to weigh it if he took it. So he declined repeatedly, saying "it's too much."
+"Don't refuse, nephew. I'm not giving this money for free. Reorganizing the family business will inevitably involve expenses—consider it a loan. If you're willing to partner with me in the future, this money counts as my share capital. If not, return it when you're back on your feet."
 
-"Worthy Nephew, you don't need to decline. Cousin-uncle isn't giving this money for free. You will inevitably have expenses reorganizing the family business—consider it Cousin-uncle lending it to you. If you are willing to partner with Cousin-uncle in the future, this money counts as Cousin-uncle's share capital. If unwilling, return it to Cousin-uncle when your hand is loose."
+With matters framed so plainly, Chen Lin could hardly refuse. Still, he insisted on writing an IOU.
 
-With words spoken to this extent, Chen Lin couldn't decline well. However, he still insisted on writing an IOU to his cousin-uncle.
+Wu Yijun saw the hesitation in his nephew's heart. This nephew had read some Confucian texts and was somewhat "blockheaded." But that was also good—though an upright gentleman might sometimes be pedantic in business, he could be trusted.
 
-Wu Yijun saw the hesitation in his nephew's heart. This nephew had read some saintly books and was somewhat "blockheaded." But this was also good; although an upright gentleman might be pedantic in business sometimes, he could be trusted.
+The next day, Chen Lin boarded a boat at Li Family Wharf under his cousin-uncle's arrangement. The vessel was a Tanka sampan that the Wu family hired year-round. The boatman had visited the Chen family before and needed no special instructions—just "Go to Master Chen's Nansha Village," and he knew the way.
 
-The next day, Chen Lin boarded a boat at the Li Family Wharf under his arrangement. The boat was a Tanka small boat that the Wu family hired year-round. The boatman had been to the Chen family before and didn't need special instructions; just telling him "Go to Master Chen's Nansha Village," the boatman knew.
+The journey proved exactly as his cousin-uncle had said: the countryside was pacified. Villages along the way had all established Baojia according to Australian requirements, building watchtowers and checkpoints. Village braves patrolled and stood sentry day and night, more vigilant than before. Thinking back, the previous government had made a great show of these same measures to "prepare against the Short-hairs." Now these "Short-hairs" had taken everything over and were using it themselves.
 
-The journey was just as Cousin-uncle said: the four countrysides were pacified. Villages along the way had all established Baojia according to the Australians' requirements, building watchtowers and checkpoints. Village braves patrolled and stood sentry day and night, more cautious than before. Thinking back, the government had made a big fanfare of doing these things to "prepare against the Short-hairs"; now these "Short-hairs" had taken it over grandly and used it themselves.
+Traveling without incident, they reached Nansha Village in just three days. Place names containing "Nansha" were countless throughout the Pearl River Delta. Chen Lin's Nansha Village sat on exactly such a piece of sandy land deposited by the river.
 
-Silent all the way, they returned to Nansha Village in just three days. Place names called Nansha in the Pearl River Delta were countless. The Nansha Village where Chen Lin's home was located was exactly on a piece of sandy land deposited by river water.
+In the early Ming Dynasty, the Chen family ancestors had migrated here from Shaoguan with their entire clan, settling on this wasteland that was then still a river beach. Over more than two centuries, they worked hard to cultivate and accumulate wealth, expanding their influence as their sons passed imperial examinations, gradually becoming the foremost surname in Nansha Village.
 
-In the early Ming Dynasty, the Chen family's ancestors migrated here from Shaoguan with the whole clan, settling down on this wasteland that was then still a river beach. Over more than two hundred years, they worked hard to cultivate and accumulate wealth, and expanded their power through children taking imperial examinations, gradually becoming the number one surname in Nansha Village.
+Stepping onto the land he had been away from so long, gazing at the distant village houses and fields, Chen Lin felt his heart grow heavy. He had fled in such haste. Now over a year had passed, and he didn't know how the clansmen and fellow villagers fared. He knew only that the village and family business had suffered severe damage.
 
-He stepped onto the land he had been away from for a long time, gazing at the distant village houses and fields, and couldn't help feeling heavy-hearted. He had fled in a hurry; now more than a year had passed, and he didn't know how the clansmen and fellow villagers were. He only knew the village and family business had been damaged very severely.
+He had only recently received the letter from home. The author was an elder of his clan who had escaped the disaster when Nansha Village was sacked by the marauding soldiers. The old man had struggled to find someone to carry the letter to him.
 
-He had only recently received the letter from home. The one who wrote the letter was an old man in his clan. He escaped the disaster when Nansha Village was sacked by chaotic soldiers and had found a chance to send him a letter with great difficulty.
+From that letter, he formally learned of his father's death. On the night of the escape, he had witnessed his father struck by an arrow and falling from a bridge into the river. He hadn't held much hope. Yet when he learned his father had truly perished, grief overwhelmed Chen Lin—he had lost his mother young, and his father had raised the siblings single-handedly.
 
-From the letter, he formally learned of his father's death. On the night of the escape, he had seen with his own eyes his father hit by an arrow and falling from the bridge into the river. He hadn't held much hope originally, yet when he knew his father had truly died, Chen Lin was still overcome with grief—he lost his mother when young; it was his father who raised them siblings single-handedly.
+The Chen family possessed a substantial estate. In this village alone, there were thirteen branch households. With so many branches, naturally some were wealthy and some poor. Fortunately, the clan property accumulated over many years had grown to a considerable sum; even the poorest families could obtain a stable income and not suffer from cold or hunger.
 
-The Chen family had a great business; just in this village, there were thirteen branch houses. With so many family branches, there were naturally rich and poor. Fortunately, the clan property accumulated over many years had become a considerable figure; even the poorest families could obtain a stable income and not suffer from cold and hunger.
+Chen Lin's branch didn't own many fields or fish ponds. But because silkworm farmers abounded in the area, starting with his grandfather, they had established a silk hong in the village to purchase villagers' silkworm cocoons and raw silk for weaving into silk fabrics. Their products had earned a modest reputation and could always be sold in Guangzhou.
 
-Chen Lin's branch did not own many fields or fish ponds. But because there were extremely many silkworm raisers around, starting from his grandfather, they established a silk hong in the village, purchasing villagers' silkworm cocoons and raw silk to weave silk fabrics. Their products were also considered vaguely famous and could always act be sold to Guangzhou.
+His family's workshop had begun to develop a division of labor: boiling rooms, reeling rooms, weaving rooms, and calendering rooms. They could even dye their own fabrics. These workrooms were managed separately by his father's cousins and nephews, while his father coordinated operations across all departments.
 
-His family's workshop had begun to take shape with division of labor, having boiling rooms, reeling rooms, weaving rooms, and calendering rooms, and could also dye by themselves. These workrooms were managed separately by his father's cousins and nephews, while his father managed the coordination of all rooms' work.
+The soldier chaos had swept through the entire village. The marauders looted the stock clean and ruined much of the stored raw silk. In their retreat, they set fire to the houses. Thanks to villagers' desperate firefighting efforts, most buildings and equipment were saved. But his father had died, and the craftsmen and laborers had either perished or scattered. The silk workshop could no longer operate.
 
-Soldier chaos swept the whole village. Chaotic soldiers looted the stock clean and ruined much of the stocked raw silk. When running away, they even lit the houses; thanks to the villagers struggling to save the fire, most of the houses and equipment were saved. But his father died, and the craftsmen and laborers either died or scattered; this silk workshop couldn't continue opening.
+The letter had urged him to return as soon as possible to "reorganize the family business" and mentioned that hearts within the clan were currently in disorder.
 
-The letter also urged him to come back as soon as possible to "reorganize the family business," and said that people's hearts in the clan were currently in disorder.
+Who knew what kind of mess awaited him to clean up? The thought left Chen Lin faintly discouraged.
 
-Who knew what kind of mess was waiting for him to clean up! Thinking of this, Chen Lin felt faintly discouraged.
+"Ninth Uncle, we've arrived!" Returning to the village with him was Chen Qing. Though only two or three years younger than Chen Lin, by generational ranking he counted as Chen Lin's nephew. Their collateral branches had distinctions of status, and Chen Qing's family was very poor—he had followed Chen Lin since age ten. They called each other uncle and nephew, but in practice they were master and servant.
 
-"Ninth Uncle, we've arrived!" Returning to the village with him was Chen Qing. Although only two or three years younger than him, in terms of generation, he was Chen Lin's nephew. Collateral branches had distinctions, and Chen Qing's family was very poor, so he followed this Second Uncle since he was ten. Calling them uncle and nephew, they were actually master and servant.
-
-The village was better than he imagined. Although many houses hadn't been rebuilt yet and broken walls were everywhere, there were quite a few temporary small houses built. It looked like many people had returned, and there were people busy in the fields outside the village.
+The village looked better than he had imagined. Though many houses remained unrepaired and broken walls stood everywhere, quite a few temporary structures had been built. Many people had apparently returned, and figures moved busily in the fields beyond the village.
 
 Walking a short distance, he heard a woman's voice: "Brother Alin! Aqing! You're back!"
 
-This familiar voice; he knew without looking it was Chen Yue, the daughter of Chen Lin's Second Uncle.
+That familiar voice—he knew without looking it was Chen Yue, the daughter of Chen Lin's Second Uncle.
 
-This Second Uncle, to speak honestly, Chen Lin looked down upon very much. Because this gentleman consistently ate, drank, whored, and gambled. If not for being a son of the Nansha Chen Clan with the clan to settle matters for him, he would probably have been beaten to death several times already. Second Aunt married him for more than ten years and really couldn't stand his absurdity; she brought out her maiden family brothers to grab Second Uncle and forced him to write a divorce letter. The two parties divorced. The Chen clan leader and elders only pretended to be deaf and dumb, unwilling to fight for Second Uncle.
+To speak honestly, Chen Lin held little respect for this Second Uncle. The man spent his days eating, drinking, whoring, and gambling. Were it not for his status as a son of the Nansha Chen Clan, with the clan settling matters on his behalf, he would probably have been beaten to death several times over. Second Aunt had endured more than ten years of marriage before she finally couldn't stand his absurdity. She brought her maiden family's brothers to confront Second Uncle and forced him to write a divorce letter. The two parties separated. The Chen clan leader and elders had only pretended not to notice, unwilling to defend Second Uncle's cause.
 
-Although the person was a rotten muddy person, he gave birth to a clever, beautiful, and intelligent daughter. The clan elders feared this rotten dad would do things like pawning the daughter to creditors or selling her, insulting the family style, so they adopted her to Chen Lin's father—legally speaking, Chen Yue was now his full sister.
+Though the man was utterly worthless, he had fathered a clever, beautiful, and intelligent daughter. The clan elders, fearing this dissolute father might pawn or sell the girl to creditors and disgrace the family name, adopted her to Chen Lin's father. Legally speaking, Chen Yue was now his full sister.
 
-What Chen Lin couldn't rest assured about most was this sister. He feared this sister was harmed in the chaos of war—the elder who wrote him only said vaguely that girls of every family had been insulted; some committed suicide, some were missing. Seeing Chen Yue's expression lively and bright at this moment, she should be safe and sound. His heart settled by more than half involuntarily.
-Speaking of which, this was his only family member now.
+What Chen Lin had worried about most was this sister. He feared she had been harmed during the chaos—the elder who wrote to him had only mentioned vaguely that girls from various families had been violated; some had taken their own lives, others had gone missing. Seeing Chen Yue's expression now, lively and bright, she appeared safe and sound. His heart settled considerably.
 
-Chen Yue told him that the home had been demolished by chaotic soldiers. Not burned by fire, but the chaotic soldiers heard this was the home of a silk workshop owner and decided there must be treasures buried in the home. After robbing valuables, they even pushed down walls and dug everywhere, even uncovering roof tiles, leaving the Chen Residence devastated.
+She was, after all, his only remaining family.
 
-"...I hid at Flower Sister-in-law's home to escape the calamity. Now I partner with her to live, doing some handwork together to exchange for rice, muddling through days half-hungry..."
+Chen Yue told him the house had been demolished by the marauding soldiers. Not burned—the soldiers had heard this was the home of a silk workshop owner and decided treasures must be buried inside. After robbing the valuables, they had torn down walls and dug everywhere, even prying off roof tiles, leaving the Chen residence in ruins.
 
-Sister-in-law Guihua (Osmanthus/Flower) was surnamed Zheng; she was the wife of a loom worker in the Chen family silk workshop. After the loom worker died, she also did some odd jobs in the silk workshop to maintain a livelihood. As a person, she was considered dutiful and reliable. This reassured Chen Lin.
+"...I hid at Flower Sister-in-law's home and escaped the worst of it. Now I'm partnering with her—we do handwork together to exchange for rice, getting by half-hungry most days..."
+
+Sister-in-law Guihua was surnamed Zheng, wife of a loom worker who had worked at the Chen family silk workshop. After her husband died, she took odd jobs at the workshop to make ends meet. She was considered dutiful and reliable—this reassured Chen Lin.
 
 **(End of Chapter)**

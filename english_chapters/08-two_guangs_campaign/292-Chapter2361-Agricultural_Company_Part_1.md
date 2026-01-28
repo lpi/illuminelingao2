@@ -1,123 +1,123 @@
 # Chapter 2361: Agricultural Company (Part 1)
 
-Xu Yanliang glanced at Yuan Fei, thinking that this person was neither material for studying nor for being a secretary. However, what he said sparked his interest: "What exactly did this Boss Liu commit to be arrested over in Guangzhou?"
+Xu Yanliang glanced at Yuan Fei, thinking the young man was neither suited for studying nor for secretarial work. Still, his words had piqued Xu Yanliang's interest. "What exactly did this Boss Liu do to get arrested in Guangzhou?"
 
-"It is said to be an issue with epidemic prevention. It caused quite a stir. It is said that Chairman Wen remarked that hanging Liu Deshan wouldn't be excessive..."
+"Something to do with epidemic prevention, they say. It caused quite a stir. Word is that Chairman Wen remarked that hanging Liu Deshan wouldn't be excessive..."
 
-Xu Yanliang thought that this Yuan Fei really didn't treat him as an outsider; he had no filter on his mouth.
+Xu Yanliang thought that this Yuan Fei really didn't treat him as an outsider—the boy had absolutely no filter.
 
-Yuan Fei was still unsatisfied: "Speaking of this Dongshan Ju, their relationship with our Mayor Tang is really good. But this matter with Liu Deshan is too big; Mayor Tang didn't dare to promise him anything..."
+Yuan Fei wasn't finished: "Speaking of Dongshan Ju, they have quite a good relationship with our Mayor Tang. But this matter with Liu Deshan is too big; Mayor Tang didn't dare promise him anything..."
 
-"That's natural." Xu Yanliang said casually, secretly reminding himself to be careful with his words in front of this Secretary Yuan, "Matters involving epidemic prevention are no small thing; hundreds of thousands of people are involved."
+"Naturally." Xu Yanliang said casually, making a mental note to watch his words around Secretary Yuan. "Matters involving epidemic prevention are no small thing—hundreds of thousands of lives are at stake."
 
-The bicycles went further and further along Xintiandi Avenue, and the buildings on both sides of the road became sparser and sparser. There were no decent buildings by the roadside anymore. At this moment, two rather majestic buildings suddenly appeared before their eyes.
+They continued along Xintiandi Avenue, and the buildings on both sides grew sparser. Soon there were no decent structures at all. Then, suddenly, two rather imposing buildings appeared before them.
 
-On the left side of the road was a small Gothic brick-and-stone church, and on the right side was an "Australian-style" Taoist temple with the same architectural structure.
+On the left stood a small Gothic church of brick and stone, and on the right, a Taoist temple in "Australian-style" architecture—remarkably similar in structure.
 
-The two buildings were almost door to door; it seemed the struggle for believers here was also fierce.
+The two buildings stood nearly door to door; clearly, the struggle for believers here was fierce.
 
-He had no intention of exploring the local religious situation and continued straight ahead. Yuan Fei reminded him: although the road was built all the way to the foot of Jinji Ridge, further ahead was no longer the urban area, mostly farmland and plantations.
+Xu Yanliang had no interest in exploring the local religious landscape and continued straight ahead. Yuan Fei reminded him that although the road extended all the way to the foot of Jinji Ridge, the urban area ended here. Beyond lay mostly farmland and plantations.
 
-"Are there factories here?" Xu Yanliang remembered.
+"Are there factories here?" Xu Yanliang asked, remembering something.
 
-"Factories are all in Hexi District near the port. After all, most of our raw materials here come from the sea; being close to the port is more convenient." Yuan Fei said, "Here are mostly large and small farms; some farms have supporting small agricultural product processing factories."
+"Factories are all in Hexi District near the port. Most of our raw materials come from the sea, after all—being close to the port is more convenient." Yuan Fei paused. "Out here, it's mostly farms of various sizes. Some have small agricultural processing facilities attached."
 
-"Oh, speaking of farms, is the largest private farm here owned by Liu Xiang's family?"
+"Speaking of farms—isn't the largest private farm here owned by Liu Xiang's family?"
 
 "It belongs to his family, but strictly speaking, it's not his personally..."
 
 "Oh? Why isn't it his personally?"
 
-"That farm of his is called 'Collective Farm'..."
+"His farm is called 'Collective Farm'..."
 
-Xu Yanliang's handlebars twisted, and he almost fell off the bike. He hurriedly held the handlebars steady to stabilize his body: "What did you say his farm is called?"
+Xu Yanliang's handlebars twisted, and he nearly fell off his bicycle. He gripped them tightly to steady himself. "What did you say it's called?"
 
 "Collective Farm."
 
-"It's really called this name?"
+"That's really the name?"
 
-Yuan Fei probably understood somewhat why Senator Xu was so sensitive to this name, and said while riding: "It's just called this name. Because it was set up by Liu Xiang and his gang of brothers jointly investing. Everyone shares dividends at the end of the year. After the company was established, they asked Chairman Wang to bestow a name, so he gave this name."
+Yuan Fei seemed to understand why Senator Xu was so sensitive about the name. "It's just a name," he explained while pedaling. "Liu Xiang and his gang of brothers pooled their money to set it up. Everyone shares in the dividends at year's end. When they established the company, they asked Chairman Wang to bestow a name, and he gave them that one."
 
-"It's just a joint-stock system." Xu Yanliang was slightly disappointed.
+"So it's just a joint-stock arrangement." Xu Yanliang was slightly disappointed.
 
-"Yes, yes, it's a joint-stock system," Yuan Fei said, "This farm has the most land in Sanya, over ten thousand mu. They specially hired Tiandihui for technical support. Many of Liu Xiang's subordinates are now working in that farm. They also live together. Probably nearly a hundred households."
+"Yes, exactly—joint-stock," Yuan Fei confirmed. "This farm has the most land in Sanya—over ten thousand mu. They specially hired Tiandihui for technical support. Many of Liu Xiang's former subordinates work there now, and they all live together. Nearly a hundred households, probably."
 
-"I didn't expect him to become a big landlord." Xu Yanliang asked, "How is the operation?"
+"I didn't expect him to become such a big landlord." Xu Yanliang asked, "How's the operation going?"
 
-"It's thriving." Yuan Fei said, "Old Liu Xiang and his subordinates are all Teochew people, most united in heart. And capable of working. When they were pirates in the past, they also got a lot of money. So after setting up the farm, whether building houses, buying machines, buying seeds, or repairing irrigation works... they didn't spare money. They also set up quite a few small processing factories—making even more money. The richer they are, the easier it is to make money. Look at those poor immigrants over there; the Senate allocated land, helped clear wasteland, gave loans, provided free technical services, and even exempted taxes for five years! The result? They are still barely scraping by until now. When encountering natural or man-made disasters, let alone collecting taxes, relief has to be provided. Otherwise, if they go bankrupt, it will be even harder to handle!"
+"Thriving." Yuan Fei said. "Liu Xiang and his men are all Teochew people—extremely united and capable workers. When they were pirates, they accumulated considerable wealth. So after establishing the farm, whether it was building houses, buying machines, purchasing seeds, or constructing irrigation works, they spared no expense. They've also set up quite a few small processing factories—earning even more money. The wealthy have an easier time making more wealth." He shook his head. "Look at those poor immigrants over there. The Senate allocated land, helped clear the wasteland, gave loans, provided free technical services, and even exempted taxes for five years! The result? They're still barely scraping by. When natural disasters or troubles strike, forget collecting taxes—relief has to be provided. Otherwise, if they go bankrupt, handling the aftermath becomes even harder."
 
-It seemed that the small-scale peasant economy was hard to maintain anywhere. Xu Yanliang thought. Future colonial development in Southeast Asia should still take the form of large plantations. Models like Liu Xiang's could also be used for reference. Thinking of this, he thought with some regret that Liu Xiang was "frozen." Otherwise, letting him be the head of a colony would definitely be no problem. He asked again:
+It seemed the small-scale peasant economy was difficult to sustain anywhere. Xu Yanliang reflected that future colonial development in Southeast Asia should probably take the form of large plantations. Models like Liu Xiang's could serve as useful references. With some regret, he remembered that Liu Xiang had been "frozen." Otherwise, making him head of a colony would have been ideal. He asked:
 
 "Are there many state-owned farms here?"
 
-"There are several in Jinling District. Of different sizes. Some specialize in growing rice, some in coconuts." Yuan Fei looked at the Chief still advancing north all the way, thinking, isn't this Chief Xu here to inspect industry and commerce? Why is he also so interested in agriculture?
+"Several in Jinling District. Various sizes. Some specialize in rice, others in coconuts." Yuan Fei glanced at the Chief, who continued heading north without pause. *Isn't this Chief Xu here to inspect industry and commerce? Why is he so interested in agriculture?*
 
-Xu Yanliang originally wanted to say "go to Liu Xiang's farm to have a look," but on second thought, this person's identity was special and he had always been feared by the Senate. The current situation of the Nanyang Company was not suitable for having any direct contact with him.
+Xu Yanliang had been about to suggest visiting Liu Xiang's farm, but on second thought, the man's identity was sensitive—he had always been viewed with suspicion by the Senate. The Nanyang Company's current situation made direct contact inadvisable.
 
-He suddenly became suspicious; this smiling Yuan Secretary with no filter might be a hidden cadre of the PSB. Even if he wasn't, or if Zhao Manxiong's "goodwill" could be fully trusted, it couldn't be guaranteed that he wouldn't talk nonsense in front of other Senators.
+A sudden suspicion struck him: this smiling, unfiltered Secretary Yuan might be a hidden cadre of the Political Security Bureau. Even if he wasn't, or even if Zhao Manxiong's "goodwill" could be fully trusted, there was no guarantee Yuan Fei wouldn't talk carelessly in front of other Senators.
 
-He thought for a moment and said: "Find a private farm for me to see..."
+After a moment's consideration, he said: "Find me a private farm to visit..."
 
-"Do you want to see a good one or a bad one..."
+"Would you like to see a good one or a bad one..."
 
-"Nonsense, I'm here to do business, not charity; of course, I want to see a good one."
+"What kind of question is that? I'm here on business, not charity—of course I want to see a good one."
 
-"Alright!" Yuan Fei responded, "Then let's go to Hu Wumei's farm. It's not far ahead!" Saying so, he pedaled hard a few times and rushed to the front.
+"Understood!" Yuan Fei responded. "Then let's visit Hu Wumei's farm. It's not far ahead!" With that, he pumped his pedals and surged forward.
 
-"Hu Wumei? Is it a woman?" Xu Yanliang shouted secretly; in this era, he really hadn't seen a female landlord.
+"Hu Wumei? Is that a woman?" Xu Yanliang called out in surprise. In this era, he had truly never encountered a female landlord.
 
-The group passed a security checkpoint and left Hexi District. Although Xintiandi Avenue was built all the way to the foot of Jinji Ridge, after passing the checkpoint, the road surface became the level of a simple highway. There were no facilities like street lamps on both sides, and buildings were nowhere to be seen. There were only large patches of farmland and small patches of woods, with a small number of buildings dotted in between. It was completely a rural landscape.
+The group passed through a security checkpoint and left Hexi District. Although Xintiandi Avenue extended all the way to Jinji Ridge, beyond the checkpoint the road surface deteriorated to a simple highway standard. There were no streetlamps on either side, and buildings were nowhere to be seen—only broad expanses of farmland interspersed with small patches of woodland and occasional structures dotted here and there. The landscape was thoroughly rural.
 
-The largest area here consisted of paddy fields, planting rice. There were also sugarcane fields, hemp fields, and coconut groves mixed in. The Agricultural Committee had put a lot of effort here.
+Paddy fields dominated the area, growing rice. Sugarcane fields, hemp fields, and coconut groves were scattered among them. The Agricultural Committee had clearly invested considerable effort here.
 
-But these fields were obviously good and bad. Some fields could be seen to be well cared for, with crops growing gratifyingly; some fields had sparse crops and were overgrown with weeds. Often, just separated by a ridge or a ditch, there were completely different scenes.
+Yet the quality of these fields varied dramatically. Some were obviously well-tended, with crops growing vigorously; others were sparse and overgrown with weeds. Often, separated only by a ridge or a ditch, the contrast was stark.
 
-After riding for about ten minutes after leaving the checkpoint, Yuan Fei led the way onto a fork in the road. Rows of windbreak forests lined both sides of the fork. Mostly tamarind trees, also sapodilla trees.
+After riding about ten minutes past the checkpoint, Yuan Fei led them onto a side road lined with rows of windbreak trees—mostly tamarind, with some sapodilla mixed in.
 
-The road condition of the fork was worse; bicycles bounced all the way. Xu Yanliang was long unaccustomed to such bad roads, but unfortunately, the "official vehicles" issued here were all heavy-duty bicycles specially customized for the postal service back then, durable and capable of carrying loads, but comfort was out of the question.
+The road's condition was poor; their bicycles bounced continuously. Xu Yanliang had long grown unaccustomed to such rough going, but unfortunately, the "official vehicles" issued here were heavy-duty bicycles originally customized for postal service—durable and capable of carrying loads, but utterly lacking in comfort.
 
-Fortunately, this section of the road was not too long; Xu Yanliang estimated it was about more than a kilometer. A wooden fence gate appeared not far ahead. Yuan Fei turned back and said: "Chief, Hu Wumei's farm is just ahead!"
+Fortunately, this stretch wasn't too long—Xu Yanliang estimated just over a kilometer. A wooden fence gate appeared ahead. Yuan Fei turned back and called: "Chief, Hu Wumei's farm is just ahead!"
 
-Xu Yanliang's buttocks were numb from the bumps; hearing "just ahead," his spirits couldn't help but lift.
+Xu Yanliang's backside was numb from the jolting. Hearing "just ahead," his spirits lifted.
 
-The farm gradually approached. This farm was quite strictly fortified; an earth rampart surrounded the farm with bamboo and wooden fences erected on top. The gate was built solidly, with a gate tower above and two protruding earthen platforms on both sides. Before getting close, urgent sounds of striking metal could be heard from afar—this was an alarm.
+The farm drew closer. The place was heavily fortified: an earthen rampart encircled the property, topped with bamboo and wooden fencing. The gate was solidly built, with a watchtower above and two protruding earthen platforms flanking it. Before they could approach, the urgent clanging of metal reached their ears—an alarm.
 
-The security here is really not good. Xu Yanliang thought.
+*Security here really isn't good,* Xu Yanliang thought.
 
-The farm was heavily guarded, indicating that there was considerable security pressure here, and this pressure was probably not achievable by a few thieves or a small group of robbers. Sanya's public security was far from as good as Tang Menglong said.
+Such heavy fortifications indicated considerable security pressure—pressure that probably couldn't be explained by a few thieves or small bands of robbers. Sanya's public order was far from what Tang Menglong had described.
 
-However, if there really was such a huge internal security war pressure, Tang Menglong shouldn't have been so boastful, just letting four guards escort him and be done with it. If they really encountered a large bandit gang, these few people would be just delivering food...
+Yet if internal security pressures were truly so severe, Tang Menglong surely wouldn't have been so cavalier, sending him off with just four guards. If they encountered a large bandit gang, these few men would be nothing more than a free meal...
 
-While puzzled, the convoy had arrived in front of the wooden fence gate. Several dogs inside the gate barked together, and someone looked down from the gate tower. Xu Yanliang noticed that this guard was holding a Nanyang rifle. Yuan Fei jumped off the bike and shouted loudly: "Open the door quickly, our Chief wants to see Hu Wumei!"
+While still puzzling over this, the convoy arrived at the wooden fence gate. Several dogs inside erupted in barking, and someone peered down from the watchtower. Xu Yanliang noticed that the guard held a Nanyang rifle. Yuan Fei leaped from his bicycle and shouted: "Open up! Our Chief wants to see Hu Wumei!"
 
-Xu Yanliang looked around; only ten round wooden plaques hung on the lintel of the main gate, with "Baocheng Agricultural Reclamation Co., Ltd." written on them. Exposed to the sun and rain, the handwriting had faded. The open space outside the gate was covered with ruts, obviously using a lot of animal power here.
+Xu Yanliang glanced around. Ten round wooden plaques hung on the lintel of the main gate, bearing the characters for "Baocheng Agricultural Reclamation Co., Ltd." Exposed to sun and rain, the writing had faded. The ground before the gate was crisscrossed with ruts—obviously, considerable animal power was employed here.
 
-"Who is screaming like a ghost!" A man's sound came from inside the gate, "The Master is not at home; he went to the fields! No guests are seen when the master is not home!"
+"Who's making all that racket!" A man's voice came from inside. "The Master isn't home—went to the fields! No guests are received when the Master's away!"
 
-"I F*** your old ***," Yuan Fei was not polite, raising his voice, "I am Yuan Fei from the Municipal Government; the Chief is here! Chief! Do you know! Open the door quickly!"
+"You son of a bitch," Yuan Fei retorted without hesitation, raising his voice. "I'm Yuan Fei from the Municipal Government! The Chief is here! The Chief! Do you understand? Open the damn door!"
 
 "Don't lie to me!"
 
-"Who is lying to you! Open the door quickly!"
+"Who's lying? Open up!"
 
-A head poked out from the gate tower, looked, and shrank back. After a while, someone was heard shouting inside: "Quick! Open the door, open the door! You bunch of lazy ghosts!"
+A head poked out from the watchtower, took a look, and withdrew. Shortly afterward, someone could be heard shouting inside: "Quick! Open the door! You lazy bastards!"
 
-Two large doors reinforced with iron bars and door nails creaked open. An old man came out from inside, wearing a straw hat, a "buluozi" (shirt) and linen beach shorts, wearing rattan sandals on his feet, but tied incongruously with a cloth belt around his waist, with some objects hanging on it in a disorderly manner.
+Two heavy doors, reinforced with iron bars and studs, creaked open. An old man emerged, wearing a straw hat, a loose shirt, and linen shorts, with rattan sandals on his feet. Incongruously, a cloth belt was tied around his waist, with various objects hanging from it in disarray.
 
-Old man seeing Yuan Fei hurried forward to greet him. Yuan Fei said: "No need to be polite; this is Chief Xu from Lingao, wanting to see your farm! Tell Hu Wumei to come back quickly!"
+Seeing Yuan Fei, the old man hurried forward to greet him. Yuan Fei waved him off. "No need for formalities. This is Chief Xu from Lingao. He wants to see your farm. Send for Hu Wumei immediately!"
 
-Hearing a Senator had come, the old man hurriedly came up to pay respects: "This lowly one Hu Sanqing pays respects to the Chief."
+Hearing that a Senator had arrived, the old man rushed to pay his respects: "This humble one, Hu Sanqing, pays respects to the Chief."
 
-Xu Yanliang waved his hand: "No need for formalities. Your farm owner is not in?"
+Xu Yanliang waved his hand. "No need for ceremony. Your farm owner isn't here?"
 
-"Unfortuantely, the farm owner went to the plantation early in the morning. This lowly one will send someone to call him back immediately." Hu Sanqing said.
+"Unfortunately, the farm owner left for the plantation early this morning. I'll send someone to fetch him right away." Hu Sanqing said.
 
-Xu Yanliang nodded and said, "If the round trip takes too long, then no need..."
+Xu Yanliang nodded. "If the round trip is too long, don't bother..."
 
-"Not far, not far, the plantation is only two li from here. This lowly one will send someone to find him right away." After speaking, he called a child and asked him to go to the plantation immediately to call the Master back, "Hurry to the plantation and call the Master back, say a Chief is here! Run there, quick!"
+"Not far at all—the plantation is only two li from here. I'll dispatch someone immediately." He called to a child and instructed him to run to the plantation at once to summon the Master. "Hurry to the plantation and tell the Master a Chief has come! Run there—quick!"
 
-The child ran away in a flash. Xu Yanliang said: "This child is quite black..."
+The child dashed off in a flash. Xu Yanliang remarked: "That child is quite dark..."
 
-"His mother is a slave from Nanyang; born black." Hu Sanqing said, "Chief, please rest inside first and drink some tea. It will take at least half an hour for the Master to return."
+"His mother is a slave from Nanyang—born dark." Hu Sanqing explained. "Chief, please rest inside first and have some tea. It will take at least half an hour for the Master to return."
 
 **(End of Chapter)**

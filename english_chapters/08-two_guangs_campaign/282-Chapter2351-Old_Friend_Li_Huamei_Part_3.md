@@ -1,96 +1,97 @@
 # Chapter 2351: Old Friend Li Huamei (Part 3)
 
-"But according to the situation we grasp, she probably cannot pass the relevant background investigation—to be honest, not arresting her immediately is already very polite," Zhou Botao said.
+"But according to the information we've gathered, she probably couldn't pass the relevant background investigation—to be honest, not arresting her immediately is already quite generous," Zhou Botao said.
 
-"Naturally, we can't let her pass this background investigation," Zhao Manxiong said. "Draft a report to the General Office, list all relevant situations, mark it as 'Top Secret, Single Copy,' expressly for Director Xiao's reading only. After Xiao Zishan sees it, he will naturally talk to Qi Feng—after all, it is his job whether to approve the marriage or not."
+"Naturally, we can't let her pass this background investigation," Zhao Manxiong replied. "Draft a report to the General Office, list all relevant circumstances, mark it 'Top Secret, Single Copy,' expressly for Director Xiao's eyes only. Once Xiao Zishan reads it, he'll naturally speak to Qi Feng—after all, approving marriages is his responsibility."
 
-"Can Qi Feng accept it?"
+"Will Qi Feng accept it?"
 
-"If he doesn't accept it, the General Office won't issue him a marriage certificate either. No one can bear this responsibility." Zhao Manxiong said, "Let's consider how to 'disinfect' the situation."
+"If he doesn't accept it, the General Office still won't issue him a marriage certificate. No one can shoulder that responsibility." Zhao Manxiong paused. "Let's discuss how to 'disinfect' the situation."
 
-Since both Li Mo and Li Huamei had contact with Li Siya, they were potential "dangerous elements." constrained by objective conditions, no action could be taken against them publicly. Therefore, other actions had to be taken to ensure the potential harm was reduced to a minimum.
+Since both Li Mo and Li Huamei had contact with Li Siya, they were potential "dangerous elements." Constrained by circumstances, no public action could be taken against them. Therefore, other measures would have to neutralize the potential harm.
 
-"For the time being, this pair of sisters has no substantive harmful actions against the Senate. Moreover, judging from their usual performance, they are not treacherous people. So we don't need to be too nervous, worrying that they will commit some shocking crime. As long as the monitoring is in place to prevent any eventuality, it will be fine." Zhao Manxiong's words were the result of some consideration. "First, upgrade all surveillance on them to Level 1. Establish a special task force for the Li sisters."
+"For the time being, neither sister has taken any substantive harmful actions against the Senate. Moreover, judging from their usual behavior, they don't seem treacherous. We needn't be overly alarmed, worrying they'll commit some shocking crime. As long as surveillance remains in place to guard against contingencies, that should suffice." Zhao Manxiong's words were carefully considered. "First, upgrade all surveillance on them to Level 1. Establish a special task force for the Li sisters."
 
 "A special task force? Who will handle the case specifically?"
 
-"Let Ke Yun be the team leader, but this task force only 'exists'."
+"Let Ke Yun lead it, but this task force only 'exists.'"
 
-"Understood." Zhou Botao understood tacitly. Neither the bureau nor Ke Yun had the energy and resources to handle a case with no substantive content, but with the existence of a task force, if any leaks occurred in the future, it could reduce their responsibility significantly.
+"Understood." Zhou Botao grasped the implication. Neither the bureau nor Ke Yun had the resources to actively pursue a case without substantive content, but with a task force on record, any future leaks would significantly reduce their liability.
 
-"As for Li Mo, I think we may need to talk to Wu Nanhai and Director Deng Boyun of the Ministry of Health to get their cooperation. It is best to transfer Li Mo to a position that poses no threat to the Senators. Director Deng can handle the specific operation at his discretion. Of course, to obtain Elder Wu's understanding, the new position should preferably not be away from Lingao. At the same time, it is best to cut off the contact between them... Through what channel do they communicate now?"
+"As for Li Mo, we may need to consult with Wu Nanhai and Director Deng Boyun of the Ministry of Health to secure their cooperation. Ideally, we'd transfer Li Mo to a position that poses no threat to the Senators. Director Deng can handle the specifics at his discretion. Of course, to maintain Elder Wu's goodwill, the new position should preferably keep her in Lingao. At the same time, we should try to cut off their contact... Through what channel do they currently communicate?"
 
-"Through Qiwei. Li Siya rented a mailbox at the Qiwei Escort Bureau in Guangzhou through an agent." Zhou Botao said, "The simple and crude way is to intercept the letters directly through postal inspection."
+"Through Qiwei. Li Siya rents a mailbox at the Qiwei Escort Bureau in Guangzhou through an agent," Zhou Botao said. "The simple and crude approach would be to intercept the letters directly through postal inspection."
 
-"Keeping these letters might be a scourge for Li Mo in the future." Zhao Manxiong said, "As for Li Huamei, we must also try to cut off her contact with Li Siya—this is probably quite difficult. After all, she is a captain running all over the seas. The people we planted can't stop her..."
+"Keeping those letters might become a liability for Li Mo someday." Zhao Manxiong considered this. "As for Li Huamei, we must also try to sever her contact with Li Siya—though that's probably quite difficult. After all, she's a captain sailing across all the seas. Our planted agents can't stop her..."
 
-He thought for a moment: "I think we can recommend her to the Remote Exploration Department. Last time at the meeting, the Remote Exploration Department mentioned applying for a fast and flexible sailing ship capable of long-distance voyages, equipped with an excellent long-distance captain—I think Li Huamei and her *Hangzhou* are very suitable."
+He thought for a moment. "I believe we could recommend her to the Remote Exploration Department. At the last meeting, they mentioned applying for a fast, flexible sailing ship capable of long-distance voyages, equipped with an excellent long-distance captain—I think Li Huamei and her *Hangzhou* would be ideal."
 
-The Remote Exploration Department had long-term missions, and they went to places outside commercial routes, so Li Huamei would lose the possibility of contacting Li Siya through the Southeast Asian commercial network.
+The Remote Exploration Department's missions were long-term and took ships far beyond commercial routes. Li Huamei would lose any opportunity to contact Li Siya through the Southeast Asian trade network.
 
-"That's a good idea! Let's do it this way. In addition, I have another view: whether to cut off contact or not may not matter much." Zhou Botao hesitated and said, "I have a feeling that Li Huamei and Li Siya are not of one mind. Li Huamei probably has had other intentions for a long time."
+"That's an excellent idea! Let's proceed that way. Additionally, I have another thought: whether we cut off contact or not may matter less than we think." Zhou Botao hesitated before continuing. "I have a feeling that Li Huamei and Li Siya aren't of one mind. Li Huamei has probably harbored other intentions for some time."
 
-His reason was that Li Huamei had never mentioned to Li Siya her romance and current cohabitation with Qi Feng. It was hard to imagine that on such a major personal matter, Li Huamei actually didn't inform her "Miss" or "Sister"; it could be imagined that their relationship might not be that intimate.
+His reasoning was that Li Huamei had never mentioned to Li Siya her romance and current cohabitation with Qi Feng. It was hard to imagine that on such a significant personal matter, Li Huamei would fail to inform her "Miss" or "Sister." Their relationship might not be as intimate as it appeared.
 
-"...There is one more thing, which was also discovered when monitoring her initially. The reason Li Huamei met Qi Feng was because she went to the Italian Trini's house, and she went to Trini's house to exchange gold. And every time she returned to Lingao afterward, she would go to Trini's house to exchange gold."
+"...There's one more thing, also discovered during initial monitoring. The reason Li Huamei met Qi Feng was because she went to the Italian Trini's house, and she went there to exchange gold. Every time she returned to Lingao afterward, she would visit Trini's house to exchange gold."
 
-In Lingao, precious metals were prohibited from circulation and private exchange, but the Senate had a few fixed outlets that tacitly allowed their existence, considered officially recognized "gray industries." Trini was one of them. Here, gold could be exchanged for silver. Whether from plunder or trade income, Li Huamei had a part in gold, so it was excusable for her to often go to Trini's house to sell gold. Zhao Manxiong knew this didn't prove anything, so he listened patiently.
+In Lingao, private circulation and exchange of precious metals was prohibited, but the Senate tacitly allowed a few fixed outlets to exist as officially recognized "gray industries." Trini was one of them. Here, gold could be exchanged for silver. Whether from plunder or trade income, Li Huamei had gold to convert, so her frequent visits to Trini's were understandable. Zhao Manxiong knew this alone proved nothing, so he listened patiently.
 
-"...However, when she reported the accounts to her 'Miss,' the ratio of gold exchange was calculated according to our bank's exchange rate... Besides this, she obviously hid a lot of money..."
+"...However, when she reported accounts to her 'Miss,' she calculated the gold exchange ratio using our bank's official rate... Beyond that, she's obviously been hiding a considerable amount of money..."
 
 "So she had to dig that secret cellar."
 
-"Exactly," Zhou Botao said. "I feel she may not be happy to be under Li Siya's control forever. It's just that the cooperative relationship between the two is still profitable now."
+"Exactly," Zhou Botao said. "I suspect she isn't content to remain under Li Siya's control forever. It's just that their cooperative relationship is still profitable for now."
 
-Zhao Manxiong pondered for a long time without speaking. Zhou Botao added: "Actually, the most thorough way is to make Li Siya disappear completely! In this way, all problems will be solved."
+Zhao Manxiong pondered for a long while without speaking. Zhou Botao added: "Actually, the most thorough solution would be to make Li Siya disappear completely. That would resolve everything."
 
-Come to speak of it, this was indeed a good way to cut the Gordian knot.
+It was indeed a way to cut the Gordian knot.
 
-Zhao Manxiong shook his head: "This matter isn't that simple. We don't have armed forces ourselves; to do this, we have to ask the Reconnaissance Bureau to dispatch the Special Reconnaissance Team. If we want to intercept and kill her at sea, we need the Navy's cooperation. Her importance hasn't reached this level."
+Zhao Manxiong shook his head. "It isn't that simple. We have no armed forces of our own; to accomplish this, we'd have to request the Reconnaissance Bureau to dispatch the Special Reconnaissance Team. If we wanted to intercept and eliminate her at sea, we'd need Navy cooperation. Her importance hasn't risen to that level."
 
-Li Siya was now drifting indefinitely; whether arresting or assassinating her would require a large investment of manpower and resources. With the resources of the Political Security Bureau, it was impossible to accomplish; it required authorization from the Senate.
+Li Siya was now drifting about indefinitely. Whether arresting or assassinating her would require massive investment of manpower and resources—beyond the Political Security Bureau's capabilities. It would require Senate authorization.
 
-"Besides, Li Siya is not alone; she controls a network behind her and is very familiar with many forces in the Southeast Asian seas. It would be a pity to eliminate her directly. It would be great if we could take over her network." Zhao Manxiong said, "The ideal way is to turn Li Huamei against her and use her. Let her become Li Siya's successor..."
+"Besides, Li Siya isn't alone. She controls a network behind her and knows many forces operating in Southeast Asian waters. Eliminating her directly would be wasteful. Far better if we could take over her network." Zhao Manxiong continued, "The ideal approach would be to turn Li Huamei against her. Let her become Li Siya's successor..."
 
-"This, I'm afraid we have to lay our cards on the table with Li Huamei. I'm worried that Li Huamei will be frightened away, which would be troublesome—even if she doesn't run away, the subsequent work will be difficult to carry out." Zhou Botao reminded him, "For now, no discord has been found between the two, at most Li Huamei has some selfish motives for her own plans."
+"That would require laying our cards on the table with Li Huamei. I'm worried she might be frightened off, which would create complications—even if she doesn't run, subsequent operations would be difficult." Zhou Botao cautioned. "For now, we've found no open discord between them—at most, Li Huamei has some private motives and personal plans."
 
-"No, the discord between them has long existed. If our speculation is correct: Li Mo and Li Chun are biological sisters. Li Siya clearly knows that both sisters are in Lingao, but has always concealed it from them, sitting by and even exploiting their separation..." Zhao Manxiong thought for a moment, then shook his head, "What you said also makes sense. Maybe the rift between them is not deep enough yet. Let's wait... You just execute according to the plan we discussed first."
+"No, the discord between them has existed for some time. If our speculation is correct: Li Mo and Li Chun are biological sisters. Li Siya clearly knows both sisters are in Lingao but has always concealed this from them, sitting by and even exploiting their separation..." Zhao Manxiong thought for a moment, then shook his head. "What you said also makes sense. Perhaps the rift between them isn't deep enough yet. Let's wait... For now, just execute according to the plan we discussed."
 
-Shortly thereafter, Li Huamei was "booked long-term" by the Remote Exploration Department, becoming one of their dedicated ships, frequently exploring and surveying in Taiwan, Ryukyu, and the Japanese archipelago; while Li Mo was transferred to the newly established Model Veterinary Station of the Nanhai Demonstration Farm as the Chief of General Affairs.
+Shortly thereafter, Li Huamei was "booked long-term" by the Remote Exploration Department, becoming one of their dedicated ships, frequently exploring and surveying in Taiwan, Ryukyu, and the Japanese archipelago. Meanwhile, Li Mo was transferred to the newly established Model Veterinary Station of the Nanhai Demonstration Farm as Chief of General Affairs.
 
-As for Qi Feng, naturally, he did not get the marriage permission. However, Xiao Zishan guaranteed that once "circumstances permit," he would be issued a marriage certificate retroactively.
+As for Qi Feng, naturally, he did not receive marriage permission. However, Xiao Zishan guaranteed that once "circumstances permit," a marriage certificate would be issued retroactively.
 
-"Anyway, it's no different from being married now; you get all the treatment you should have. It's just missing a document. When the time comes, we'll make it up to you with a grand wedding!"
+"You're essentially married already anyway—you get all the benefits you're entitled to. It's just missing a document. When the time comes, we'll make it up to you with a grand wedding!"
 
-Although Qi Feng was reluctant, after seeing some of the materials in the relevant report, he also knew that neither the PSB nor the General Office dared to open this door of convenience for him, so he had to wait for "circumstances to permit."
+Though Qi Feng was reluctant, after seeing some of the materials in the relevant report, he understood that neither the PSB nor the General Office dared open this door of convenience for him. He would have to wait for "circumstances to permit."
 
-This matter temporarily came to a close. As soon as the application from the Nanyang Company Preparatory Committee to employ Li Huamei came out, this special case was back on track. The newly appointed Chief of Reconnaissance Division, Guo Yi, felt it necessary to talk to them.
+The matter temporarily came to rest. But as soon as the application from the Nanyang Company Preparatory Committee to employ Li Huamei was submitted, this special case was back on track. The newly appointed Chief of Reconnaissance Division, Guo Yi, felt it necessary to speak with them.
 
-Not long after Xu Yanliang's application was submitted, he received a call from the Political Security Bureau, asking him to come over for a "talk."
+Not long after Xu Yanliang submitted his application, he received a call from the Political Security Bureau, requesting he come in for a "talk."
 
 Xu Yanliang had dealt with every Senator in the PSB, but the voice on the phone today was unfamiliar:
-"Director Xu, regarding the application report on Li Huamei you sent over, specific matters involve some circumstances that need to be explained in person. Sorry to trouble you to come over to talk; what time do you think is suitable?"
+
+"Director Xu, regarding your application report on Li Huamei, certain matters involve circumstances that need to be explained in person. Sorry to trouble you to come by—what time works for you?"
 
 Judging from the tone and accent, this was definitely a Senator.
 
-"Is it very serious?" Xu Yanliang suddenly became nervous.
+"Is it serious?" Xu Yanliang suddenly felt nervous.
 
-"Not at all, let's talk when we meet."
+"Not at all. Let's discuss it when we meet."
 
-Xu Yanliang understood that the PSB never discussed matters involving classified items and documents outside the bureau.
+Xu Yanliang understood that the PSB never discussed classified matters outside the bureau.
 
-"Then let's make it one o'clock this afternoon."
+"Let's make it one o'clock this afternoon."
 
-Since transferring back from the Guangzhou Station, Guo Yi has been in a state of "semi-retirement." His main work was to cooperate with the commerce department on some tasks, and at the same time write a "work report" on his years in Guangzhou.
+Since transferring back from the Guangzhou Station, Guo Yi had been in a state of "semi-retirement." His main work involved cooperating with the commerce department on various tasks while simultaneously writing a "work report" covering his years in Guangzhou.
 
-He had been in Guangzhou for nearly ten years, experiencing thousands of people and things. If not for his special work notes, many things and people would really be hard to recall. To be honest, although this work experience in Guangzhou gave him unforgettable memories, he was not nostalgic for it.
+He had spent nearly ten years in Guangzhou, encountering thousands of people and situations. Without his special work notes, many things and people would have been impossible to recall. Though his experience in Guangzhou had given him unforgettable memories, he didn't miss it.
 
-In the end, he was still an ordinary person. Although he handled the role of Proprietor Guo with ease, he didn't truly enjoy such a life. In the days in Guangzhou, every day was like acting—he could never integrate into the atmosphere of medieval society.
+In the end, he was still an ordinary person. Though he had played the role of Proprietor Guo with ease, he had never truly enjoyed such a life. Every day in Guangzhou had been like acting—he could never integrate into the atmosphere of medieval society.
 
-Now sitting behind the desk, flipping through the files and picking up his own trade again, he felt at ease in his heart. The knot that had been pressing on his heart for more than ten years was also untied—I am finally "one of us" now.
+Now, sitting behind a desk, flipping through files and returning to his original trade, he felt at peace. The weight that had pressed on his heart for more than ten years finally lifted—I am finally "one of us" again.
 
-The file of the Two Li Special Case was personally handed to him by Zhao Manxiong, who also said some words that could not be recorded in the file. At the same time, he also talked about the consideration of turning her against the enemy between him and Zhou Botao back then.
+Zhao Manxiong had personally handed him the file on the Two Li Special Case, along with some information that couldn't be recorded in official documents. He had also explained the reasoning behind his and Zhou Botao's earlier consideration of turning her.
 
-"Of course, now you are the Chief of Reconnaissance Division; how to handle the case specifically is up to you to decide." Zhao Manxiong said, "My and Zhou Botao's opinions are purely for reference."
+"Of course, you're now the Chief of Reconnaissance Division. How to handle the case specifically is your decision to make," Zhao Manxiong said. "My and Zhou Botao's opinions are purely for reference."
 
 **(End of Chapter)**

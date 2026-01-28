@@ -1,83 +1,83 @@
 # Chapter 2344 - Freshly Baked Nanyang Company (IV)
 
-Forty-three ships although not considered many, but for Southeast Asia trade in history not considered few either. According to Dutch records, in 17th Century Chinese merchant ships going to Batavia every year were at most fifty sixty in many years, only ten twenty in few years. At that time China-Southeast Asia long-range trade volume was only this much.
+Forty-three ships wasn't a large number, but for Southeast Asian trade in this era, it wasn't small either. According to Dutch records, Chinese merchant ships arriving in Batavia during the 17th century ranged from fifty or sixty in busy years to only ten or twenty in lean ones. That represented the entire volume of long-distance trade between China and Southeast Asia.
 
-Arrival of Senate more or less changed this historical situation. Senate's massive import export trade, specially huge demand for bulk commodities, made quantity of ships coming and going increase drastically. And future once several resource colonies in Southeast Asia opened, demand for transport capacity would only increase further. Matter of increasing shipping tonnage should start to proceed from now.
+The Senate's arrival had begun to alter this historical pattern. Their massive import-export trade, particularly the enormous demand for bulk commodities, had dramatically increased the number of ships coming and going. And in the future, once several resource colonies opened in Southeast Asia, the demand for shipping capacity would only grow further. Expanding shipping tonnage needed to start now.
 
-Planning Academy gave him a gift, that was two Manila Galleons captured from Spanish hands in Hunger Action initially. Tonnage of these two ships not to say in Southeast Asia Company fleet, even placed in whole East Asia, Southeast Asia region were large ships second to none. *San Louis* load 800 tons, displacement 1450 tons, *San Raimundo* load 650 tons, displacement 1200 tons.
+The Planning Academy had given him a gift: two Manila Galleons captured from the Spanish during the Hunger Action. These two ships weren't merely large by Southeast Asia Company standards—placed anywhere in East Asia or Southeast Asia, they ranked among the largest vessels afloat. The *San Louis* had an 800-ton cargo capacity and 1,450-ton displacement; the *San Raimundo* carried 650 tons with a 1,200-ton displacement.
 
-Since captured in 1632, after experiencing year-long maintenance and modification, these two ships were compiled into Joint Logistics directly subordinate transport fleet in 1633, executing various "Strategic" transport missions for long term. Round tripping between Jeju, Sanya, Kaohsiung etc. After Continental Strategy started, executed emergency transport missions to Guangzhou many times again.
+Since their capture in 1632, the ships had undergone a year of maintenance and modification before being incorporated into the Joint Logistics directly-subordinate transport fleet in 1633. They had executed various "Strategic" transport missions for extended periods, running between Jeju, Sanya, and Kaohsiung. After the Continental Strategy commenced, they had undertaken multiple emergency transport runs to Guangzhou.
 
-However, *San Louis* and *San Raimundo* although carrying capacity very large, hull sturdy durable, but limited by Galleon ship type and sail rig defect. Speed too slow. Under fair wind condition, maximum speed only 7 knots. Average speed not exceeding 4 knots. Loading unloading ability also far inferior to T800 specially optimized for freight. Key was crew needed ridiculously many, when far sailing each ship needed at least two hundred people to operate normally. After Joint Logistics fleet transport capacity enriched, Minister Hong "loved new loathed old", Nanyang Company opened, these two ships were eliminated from Joint Logistics to Zhou Wei's hand.
+However, though the *San Louis* and *San Raimundo* possessed tremendous cargo capacity and sturdy, durable hulls, they were hampered by the inherent defects of the Galleon design and sail configuration. They were simply too slow. Under favorable winds, their maximum speed reached only 7 knots, with average speeds not exceeding 4 knots. Their loading and unloading capabilities also fell far short of the T800, which had been specifically optimized for freight. Crucially, they required absurdly large crews—each ship needed at least two hundred people for normal operations on long voyages. After the Joint Logistics fleet's transport capacity had been expanded, Minister Hong "embraced the new and discarded the old." When the Nanyang Company opened, these two ships were retired from Joint Logistics and transferred to Zhou Wei.
 
-Zhou Wei frankly speaking also looked down on these two dumb-headed big ships—this ship style although stylish, compared to later large sailing battleships like "Sovereign of the Seas", "Victory" appeared much clumsier, also couldn't install too many cannons—Galleon essentially was still merchant ship.
+Frankly, Zhou Wei also looked down on these lumbering giants. Though their design was stylish, compared to the great sailing battleships that came later—vessels like the *Sovereign of the Seas* or the *Victory*—they appeared much clumsier. They also couldn't mount many cannons—Galleons were fundamentally still merchant ships.
 
-But having better than not having, saying nothing else, in whole Southeast Asia Company fleet there was no ship bigger than these two. Largest few Chinese Sail ships full load displacement didn't exceed 800 tons either. Now these two ships currently already entered dock in Hong Kong for maintenance work. Estimated to officially put into use by next year.
+But having them was better than not. If nothing else, no other ship in the entire Southeast Asia Company fleet was larger than these two. The largest Chinese sailing ships had a full-load displacement of less than 800 tons. At present, both ships had entered the Hong Kong dry dock for maintenance work. They were expected to be operational by next year.
 
-"Re-modified still a Galleon," Zhou Wei shook head not without regret, put down ship registry. In heart, what he wanted was Clipper, in his view, this kind of fast merchant ship designed by British to transport tea met his demand most.
+"Even after modifications, they're still Galleons." Zhou Wei shook his head with a hint of regret and set down the ship registry. What he really wanted were Clippers—in his view, these fast merchant ships that the British had designed for transporting tea best suited his needs.
 
-In his heart, future Nanyang Company not only wanted to dominate sea trade of whole Southeast Asia region, but also imitate past events of British East India Company, capturing Indian Subcontinent, making it a jewel on future crown of Senate.
+In his vision, the Nanyang Company would not only dominate the maritime trade of the entire Southeast Asian region but also emulate the British East India Company by capturing the Indian Subcontinent and making it a jewel in the Senate's future crown.
 
-Ordinary sailing ships, coming and going between Southeast Asia and China counted as qualified, but running India, even farther Red Sea route was beyond ability. Speed of six seven knots at best could only satisfy trade in this "Inland Water" sea area of South China Sea. Going to India and Red Sea coast, even further arriving East Africa all needed ships faster, suitable for ocean voyaging.
+Ordinary sailing ships were adequate for the China-Southeast Asia run, but for the India route—let alone the more distant Red Sea routes—they were insufficient. Speeds of six or seven knots at best could only satisfy trade within the "inland waters" of the South China Sea. Reaching India and the Red Sea coast, or even East Africa, required faster ships better suited for ocean voyaging.
 
-Zhou Wei was in trance; someone came in to report: Wang Kai came.
+Zhou Wei was lost in thought when someone entered to announce: Wang Kai had arrived.
 
-"What does he come for?" Zhou Wei was somewhat strange. This person served as Trade Commissioner in Ministry for long time—frequently shuttling between various ports coordinating trade and shipping plans, rarely in office. In Colonization and Trade Ministry could only count as nodding acquaintance. But he knew Wang Kai was very fanatical about navigation. In *Uncharted Waters* era except 1, 2, 3, 4 all knew like palm, played unknown how many times. But he and Zhou Wei didn't have much social intercourse, let alone friendship.
+"What does he want?" Zhou Wei was surprised. Wang Kai had served as Trade Commissioner in the Ministry for years, frequently shuttling between various ports to coordinate trade and shipping plans. He was seldom in the office. At the Colonization and Trade Ministry, the two were merely nodding acquaintances. But Zhou Wei knew Wang Kai was fanatically obsessed with navigation. During the *Uncharted Waters* era, he'd played every installment except the first—2, 3, 4—until he knew them like the back of his hand, completing untold playthroughs. Yet he and Zhou Wei had little social contact, let alone friendship.
 
-*Probably preparing to come to Nanyang Company to display grand plan?* Speaking of which not impossible. After all this person's obsession degree for navigation was obvious to all. Initially when Bopu Shipyard was still a beach shipyard he ran to shipyard all day long. He also participated in managing a "Great Navigation Club". Hasty launching and rotting tail (unfinished) of *Lichun* initially, all had inseparable relationship with this club's advocacy.
+*Probably looking to join the Nanyang Company and pursue grand ambitions?* That wasn't implausible. After all, this man's passion for navigation was plain for all to see. In the early days, when Bopu Shipyard was still a beach operation, he'd hung around the shipyard constantly. He'd also been involved in running some "Great Navigation Club." The hasty launch and eventual abandonment of the *Lichun* had been inseparably linked to this club's advocacy.
 
-Since just setting up separate portal someone came to insert incense and join partnership, was also a good omen. Zhou Wei immediately said: "Invite him in."
+Since someone had come to light incense and join the partnership right when he was setting up shop, that was a good omen. Zhou Wei said immediately: "Show him in."
 
-After a few minutes, a slightly fat slightly balding glasses man appeared in Zhou Wei's office, carrying a fake brand briefcase in hand.
+A few minutes later, a slightly plump, somewhat balding man wearing glasses appeared in Zhou Wei's office, carrying a fake-brand briefcase.
 
-Two people exchanged few polite words then sat down individually. Wang Kai looked around, sighing: "Unexpectedly Southeast Asia Company is actually so shabby!"
+The two exchanged pleasantries and sat down. Wang Kai looked around and sighed: "I had no idea the Southeast Asia Company was this shabby!"
 
-"This counts as not bad. Initially we worked in containers. Anyway this is a proper house." Zhou Wei saying took out a box of "Golden Nanhai" from drawer, "Come one branch (have one)?"
+"This counts as not bad. In the beginning, we worked out of shipping containers. At least this is a proper building." Zhou Wei pulled a box of "Golden Nanhai" cigarettes from his drawer. "Care for one?"
 
-"No, no," Wang Kai shook head hurriedly, "Drinking wine is okay, smoke forget it." He saying put briefcase down carefully, as if containing some precious thing inside.
+"No, no." Wang Kai shook his head quickly. "Drinking is fine, but I'll pass on the smoke." He carefully set down his briefcase as if it contained something precious.
 
-Zhou Wei took one, lit fire puffed a mouth. Actually he had no interest in tobacco products, couldn't experience nicotine happiness either. But since Senate produced Cigar, this kind of thing held in hand having ritual sense obtained his favor. After all when discussing problems holding one in hand, sucking a mouth from time to time, then spurting curling smoke, not only appearing calm and composed in momentum, but also could leave sufficient thinking time for himself before speaking.
+Zhou Wei took one for himself and lit up. He had no actual interest in tobacco products—he couldn't even appreciate the nicotine buzz. But since the Senate produced cigars, holding one of these things conveyed a certain sense of ritual that appealed to him. When discussing problems, holding one in hand and taking occasional puffs while exhaling curling smoke not only projected calm composure but also bought him thinking time before speaking.
 
-"Container that was matter of which year," Wang Kai said, "Southeast Asia Company is important enterprise of Senate radiating Nanyang, actually just this treatment, some people too not put the Sea in eyes!"
+"Containers—that was ages ago," Wang Kai said. "The Southeast Asia Company is a vital enterprise for projecting Senate power into Nanyang. That they'd settle for this treatment... some people just don't take the Sea seriously!"
 
-Southbound Faction people opening mouth not three sentences definitely dragging to "Short-sightedness of Executive Committee", "Unprofessionalism of Administration Council" such topics. These few sentences out, knew was own people. Next definitely was turning into demonstrating topic of "Going South is Senate development important opportunity".
+Southward Faction people couldn't open their mouths without veering within three sentences toward topics like "the short-sightedness of the Executive Committee" and "the unprofessionalism of the Administration Council." Once those phrases appeared, you knew you were among allies. Next would come demonstrations of the thesis that "Going South is the Senate's crucial opportunity for development."
 
-However Wang Kai didn't develop according to this routine. He instead opened door seeing mountain (straight to point): "You now new shop opening, I want to come to your place."
+But Wang Kai didn't follow this routine. Instead, he got straight to the point: "You're opening a new shop. I want to join."
 
-Zhou Wei nodded, this was in expectation. Speaking of which, his so-called Nanyang Company right now was his one-man company, indeed needed a few Senators joining to discuss grand plan together. Wang Kai engaging in sea trade for many years, professionally indeed was person he needed.
+Zhou Wei nodded; this was expected. His so-called Nanyang Company was essentially a one-man operation right now, and he genuinely needed a few Senators to join him in pursuing grand plans. Wang Kai, with years of experience in maritime trade, was professionally exactly the person he needed.
 
-"Welcome!" Zhou Wei nodded, "I need people here right now, just inside Ministry..."
+"Welcome!" Zhou Wei nodded. "I need people right now—though at the Ministry..."
 
-"Old Si over there doesn't matter, I say a word is enough." Wang Kai carelessly said, "I propose transfer, can he not release person?"
+"Old Si won't be a problem. One word from me is enough." Wang Kai said carelessly. "If I propose a transfer, can he refuse to release me?"
 
-"Words not wrong. But work in your hand..."
+"True enough. But the work you've got in hand..."
 
-"These few days I grasp time to handover is enough." Wang Kai said, "One week time sufficient."
+"I'll push through the handover these next few days. A week should be plenty."
 
-"That's good." Zhou Wei said, "I am right at the time of building team now, coming here do you have any work intention?"
+"That's fine." Zhou Wei said. "I'm in the middle of building my team. What kind of work do you want to do here?"
 
-"Me well, Colonization Trade Ministry profession is engaging in trade, to Nanyang Company can also do this. But I prefer doing some exploration work, like Portuguese sailing along African coast back then, landing at a place, doing some business with natives, looking for resources worth developing..."
+"Well, my specialty at the Colonization and Trade Ministry was trade. I could do that at the Nanyang Company too. But I'd prefer doing exploration work—like the Portuguese sailing along the African coast back in the day, landing at places, trading with natives, searching for resources worth developing..."
 
-"Then count as Exploration Division," Zhou Wei saying frowned again, "We are company, cannot use official names like Division (Chu), Section (Ke), how about calling 'Development Department'. You serve as Development Department Manager."
+"Then we'll call it the Development Department," Zhou Wei said, then frowned. "We're a company, so we can't use government terms like Division or Section. How about 'Development Department'? You'll serve as Department Manager."
 
-"I don't care," Wang Kai waved hand, "You love calling whatever is fine, as long as let me do these. Saying he opened briefcase, taking out a few documents handing to Zhou Wei.
+"I don't care," Wang Kai waved his hand. "Call it whatever you like, as long as you let me do this kind of work." He opened his briefcase and pulled out several documents, handing them to Zhou Wei.
 
-"You look at memorandum I wrote, this is some of my thoughts on company ships."
+"Take a look at this memorandum I wrote—some thoughts on company ships."
 
-Zhou Wei thought this was rare, himself just considering company ship configuration, this Wang Kai ran over first thing was talking about ship! Let's see what specific thoughts he bas.
+Zhou Wei found this unusual; he'd just been contemplating the company's ship configuration, and here was Wang Kai leading with precisely that topic. Let's see what specific thoughts he had.
 
-Receiving document in hand, front as usual had a lengthy analysis on Nanyang trade and navigation status—this was also consistent habit of these people turned bald by papers. Zhou Wei skipped this part directly reading main text regarding ships.
+Taking the documents in hand, he saw the front matter included the usual lengthy analysis of Nanyang trade and navigation conditions—consistent with the habits of these paper-pushing experts whose hair had thinned from too much reading. Zhou Wei skipped this section and went straight to the main text about ships.
 
-Turned out Wang Kai mentioned two types of ships he "Designed" or rather calling "Improved" in memorandum.
+As it turned out, Wang Kai had mentioned two types of ships he'd "designed"—or rather "improved"—in the memorandum.
 
-First type, he named "Surprise" (Jingcha). Its prototype was old spacetime "SS RJ Hackett" wooden hull steam powered bulk freighter, used for bulk cargo transport in North American Great Lakes region.
+The first type he named "Surprise." Its prototype was the old-timeline *SS R.J. Hackett*, a wooden-hulled steam-powered bulk freighter used for bulk cargo transport in North America's Great Lakes region.
 
-"SS RJ Hackett" length 63.84 meters, width 9.88 meters, depth 3.81 meters, ship form square upright, space very big, registered total tonnage close to 1500 (4245 cubic meters), could load 1100 tons heavy cargo. According to plan "Surprise" would install Lingao self-produced 500 horsepower steam engine, heavier than prototype ship steam engine, could also reach 10 knots speed.
+The *SS R.J. Hackett* was 63.84 meters long, 9.88 meters wide, with a depth of 3.81 meters. Its boxy, upright shape provided tremendous interior space, with registered gross tonnage close to 1,500 (4,245 cubic meters) and a capacity of 1,100 tons of heavy cargo. According to the proposal, the "Surprise" would be fitted with a Lingao-manufactured 500-horsepower steam engine. Though heavier than the prototype's engine, it could still achieve speeds of 10 knots.
 
-Bulk ship biggest advantage was fast loading unloading, of course corresponding cargos were also like ores able to withstand rough operation. This ship's wide thick hull could handle rapid currents of lake region very well. Even on sea, had good seaworthiness.
+The bulk carrier's greatest advantage was rapid loading and unloading—of course, the corresponding cargoes needed to withstand rough handling, like ores. The ship's wide, sturdy hull could handle the strong currents of lake regions admirably. Even at sea, it possessed good seaworthiness.
 
-Bulk cargo was main source of Senate current foreign trade, including coal, rice, timber and various ores to purchase transport in future plan. While currently ships owned by Senate, almost none suitable for these bulk cargo ship types. Loading unloading time long not saying, often needed large amount of extra packaging. Bulk cargo like coal, til now still mainly relied on *Big Whale* this coastal barge brought from old spacetime to transport. This "Surprise" only existing on paper obviously fit Nanyang Company requirement very much.
+Bulk cargo was the Senate's primary source of foreign trade, including coal, rice, timber, and the various ores they planned to purchase and transport in the future. Yet currently, almost none of the Senate's ships were suitable bulk carrier types. Not only was loading and unloading time-consuming, but shipments often required extensive extra packaging. Bulk cargo like coal was still transported primarily by the *Big Whale*, a coastal barge brought from the old timeline. This "Surprise" that existed only on paper obviously suited the Nanyang Company's requirements perfectly.
 
-Only pity this ship needed steam engine. Zhou Wei knew, with industrial sector capacity, high power steam engine had to queue at Planning Academy. Most optimistic estimate also had to queue one year to get goods.
+The only problem was that this ship required a steam engine. Zhou Wei knew that given the industrial sector's capacity, high-powered steam engines had to be queued at the Planning Academy. The most optimistic estimate was at least a year's wait before receiving delivery.
 
 **(End of Chapter)**

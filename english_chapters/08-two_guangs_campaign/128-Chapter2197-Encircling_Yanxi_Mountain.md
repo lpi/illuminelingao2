@@ -1,81 +1,81 @@
 # Chapter 2197 - Encircling Yanxi Mountain
 
-It did not take much effort before Li Wu confessed. But he was merely Li Sanjiu's bodyguard, possessing little information of value. He only knew that roughly two thousand Yao tribal warriors had come to Lianzhou, though they claimed to be "five thousand elite soldiers." They were well-armed but had almost no armor, few firearms, and very little gunpowder. The headmen put little store in firearms. Beyond this, he could provide nothing useful. However, the work team did learn from him one crucial cause of the uprising: salt.
+Li Wu's interrogation required minimal effort. Yet as merely Li Sanjiu's bodyguard, he possessed scant valuable intelligence. He confirmed roughly two thousand Yao tribal warriors had deployed to Lianzhou, despite claims of "five thousand elite soldiers." They possessed reasonable weaponry but virtually no armor, limited firearms, and minimal gunpowder. The headmen placed little faith in firearms. Beyond such basics, he offered nothing substantial. However, the work team extracted from him one critical uprising catalyst: salt.
 
-After Xiong Wencan assumed his post as Governor-General of Liangguang, he had begun rebuilding the military. Rebuilding required money. And the means of raising money was naturally "taking from the people." Salt was naturally included.
+Upon assuming his post as Governor-General of Liangguang, Xiong Wencan had commenced military reconstruction. Reconstruction demanded capital. The capital-raising mechanism naturally involved "extracting from the populace." Salt, inevitably, featured prominently.
 
-Thus salt prices had been climbing steadily for years. The Yao territories lay deep inland and produced no salt of their own, relying entirely on Han merchants for supply. Salt in the Yao regions was always more expensive—Han peddlers selling salt there charged far above market price. Trading a fat chicken for a single *jin* of salt was not unusual. In recent years, prices had doubled again, leaving many *pai* and *chong* settlements subsisting on bland food. Resentment ran deep. Li Sanjiu had merely seized the opportune moment.
+Consequently, salt prices had climbed steadily for years. The Yao territories, situated deep inland, produced no salt, depending entirely on Han merchant supplies. Yao region salt invariably commanded premium prices—Han peddlers charged far above market rates. Exchanging a fat chicken for a single *jin* of salt proved commonplace. Recently, prices had doubled again, forcing numerous *pai* and *chong* settlements to subsist on bland fare. Resentment festered deeply. Li Sanjiu had merely exploited the opportune moment.
 
-When the Council of Elders had taken Guangzhou, fighting erupted across Guangdong. Salt trade routes were severed; coastal salt could no longer be transported inland, driving prices higher still. In Lianzhou city, some salt merchants had already sold out their stocks while others hoarded for exorbitant profits. Salt prices in the Lianzhou region had soared to extraordinary heights. In the Yao territories, salt had become unavailable at any price—the roads were too dangerous for any merchant to risk transport. In truth, the Eight Pai Yao rebellion's primary spark was the salt stored within Lianzhou city.
+When the Council of Elders seized Guangzhou, combat erupted across Guangdong. Salt trade routes severed; coastal salt could no longer reach inland markets, propelling prices higher still. Within Lianzhou city, certain salt merchants had exhausted stocks while others hoarded for extortionate profits. Salt prices throughout the Lianzhou region had soared to extraordinary levels. In Yao territories, salt became unavailable regardless of payment—roads proved too perilous for merchants to risk transport. In truth, the Eight Pai Yao rebellion's primary spark was salt stockpiled within Lianzhou city.
 
-Salt—always salt. Huang Chao recalled the academic papers he had read which stated that the Great Wattle Gorge Yao Rebellion had erupted precisely because certain Guangxi *tusi* chieftains and local officials had monopolized the salt trade, inflaming social tensions. In Huang Chao's experience, whether dealing with the Li uprisings in Hainan or the Yao rebellions in Liangguang, there were primarily two causes: first, unequal terms of trade with the Han; second, harsh living conditions and low productivity. Under such combined pressures, it was hardly surprising that these mountain-dwelling minorities turned to violent plunder for survival. Temporary military suppression could manage things for a while, but given enough time, the cycle would inevitably repeat.
+Salt—perpetually salt. Huang Chao recalled academic papers documenting how the Great Wattle Gorge Yao Rebellion had erupted precisely because certain Guangxi *tusi* chieftains and local officials monopolized salt commerce, inflaming social tensions. Throughout Huang Chao's experience, whether addressing Li uprisings in Hainan or Yao rebellions in Liangguang, two primary catalysts existed: first, inequitable trade terms with Han populations; second, harsh living conditions coupled with minimal productivity. Under such combined pressures, mountain-dwelling minorities resorting to violent plunder for survival proved hardly surprising. Temporary military suppression could manage circumstances briefly, yet given sufficient time, the cycle would inexorably recur.
 
-But it was still too early to address the root causes. Huang Chao pulled the *Lianyang Region Economic and Cultural Development Outline* from his satchel—the same document he had reviewed countless times—and stuffed it back in. He had written this document himself, drawing on his experience in Hainan and referencing poverty-alleviation materials from the old timeline.
+Addressing root causes remained premature. Huang Chao extracted the *Lianyang Region Economic and Cultural Development Outline* from his satchel—that document he'd reviewed innumerable times—before returning it. He'd authored this blueprint personally, drawing upon Hainan experience while referencing poverty-alleviation materials from the original timeline.
 
-In truth, the Lianyang region's population pressure was far lighter than in the old timeline, and the environment was well preserved. Though mountains dominated and flat land was scarce, much wilderness remained to be cleared. Inland river transport was remarkably convenient, and abundant resources awaited development. Compared to the counties in Hainan where he had once served, this place could be called prosperous.
+Truthfully, the Lianyang region's population pressure ran far lighter than in the old timeline, with environment well-preserved. Though mountains dominated while flatlands proved scarce, substantial wilderness awaited clearance. Inland river transport proved remarkably convenient, with abundant resources anticipating development. Compared to Hainan counties where he'd previously served, this locale qualified as prosperous.
 
-"As long as peace can be maintained, this region has tremendous potential."
+"Provided peace can be maintained, this region demonstrates tremendous potential."
 
-Though this was not the same timeline—this "Lianzhou" was not the Lianzhou Huang Chao had come from—his affection for this land had never wavered.
+Though timelines differed—this "Lianzhou" wasn't the Lianzhou Huang Chao originated from—his affection for this territory had never wavered.
 
-Yet the Eight Pai Yao problem weighed constantly on his mind. He understood clearly: whether the Lianyang region could enjoy peace depended entirely on whether he could successfully pacify the Yao.
+Yet the Eight Pai Yao problem weighed constantly upon his mind. He understood clearly: whether the Lianyang region could achieve lasting peace depended entirely upon successfully pacifying the Yao.
 
-The so-called Eight Pai Yao were the collective name for the Yao people living in the territory between Lianzhou and Lianshan. Their larger villages were called *pai* by the Han, and their smaller ones *chong*—hence "Pai Yao." The eight largest settlements—Majian, Junliao, Libadong, Huoshao, Dazhang, Nangang, Hengkeng, and Youling—along with numerous smaller villages gave rise to the saying "Eight Pai, Twenty-Four Chong," and thus the name Eight Pai Yao.
+The so-called Eight Pai Yao constituted the collective designation for Yao populations inhabiting territory between Lianzhou and Lianshan. Han people termed their larger villages *pai*, smaller ones *chong*—hence "Pai Yao." The eight largest settlements—Majian, Junliao, Libadong, Huoshao, Dazhang, Nangang, Hengkeng, and Youling—alongside numerous smaller villages generated the expression "Eight Pai, Twenty-Four Chong," yielding the name Eight Pai Yao.
 
-Unlike neighboring Han clan villages, a single *pai* did not necessarily contain only one surname—Nangang Pai, for instance, had the Deng, Tang, Pan, and Fang surnames. Of the Eight Pai, the three eastern ones—Nangang, Hengkeng, and Youling—fell under Lianzhou's direct jurisdiction and were called the "Prefecture's Three Pai," "Eastern Three Pai," or "Outer Three Pai." The remaining five were in Lianshan County's territory and were known as the "County's Five Pai," "Western Five Pai," or "Inner Five Pai."
+Unlike neighboring Han clan villages, individual *pai* didn't necessarily contain singular surnames—Nangang Pai, for instance, housed the Deng, Tang, Pan, and Fang surnames. Among the Eight Pai, the three eastern ones—Nangang, Hengkeng, and Youling—fell under Lianzhou's direct jurisdiction, designated the "Prefecture's Three Pai," "Eastern Three Pai," or "Outer Three Pai." The remaining five occupied Lianshan County territory, known as the "County's Five Pai," "Western Five Pai," or "Inner Five Pai."
 
-The Pai Yao were a settled branch of the Yao people with relatively advanced social organization and production levels, making them somewhat more formidable in battle than the nomadic "Mountain-Wandering Yao." The *pai* were mutually independent and answered to no central authority, so although Pai unrest occurred year after year, full-scale uprisings involving all Eight Pai were relatively rare. Historically, the Eight Pai Yao rebellions would continue until they were finally suppressed in the Shunzhi reign of the Qing Dynasty.
+The Pai Yao represented a settled Yao branch exhibiting relatively advanced social organization and production levels, rendering them somewhat more formidable militarily than nomadic "Mountain-Wandering Yao." The *pai* maintained mutual independence without central authority, thus although Pai unrest occurred annually, comprehensive uprisings engaging all Eight Pai proved relatively rare. Historically, Eight Pai Yao rebellions would persist until finally suppressed during the Qing Dynasty's Shunzhi reign.
 
-"This operation must be swift and decisive!" Huang Chao murmured to himself.
+"This operation demands swiftness and decisiveness!" Huang Chao murmured.
 
-In the predawn hours, the troops began constructing pontoon bridges. With the *Dafa* launches serving as tugboats, even though sunrise was still two or three hours away and they could only work by torchlight, the bridges were quickly completed. One pontoon bridge used over a dozen small boats collected along the river as floats; the other used inflated ox-hide bladders brought along with the army. They were connected with cables, anchored with wooden stakes on both banks, and planked over with boards.
+During predawn hours, troops commenced pontoon bridge construction. With *Dafa* launches serving as tugboats, despite sunrise remaining two or three hours distant and working solely by torchlight, bridges achieved rapid completion. One pontoon bridge employed over a dozen collected riverine small boats as floats; the other utilized inflated ox-hide bladders transported with the army. They connected via cables, anchored by wooden stakes on both banks, planked with boards.
 
-The troops, having rested for most of the night, began crossing the river. The Fubo Army, the Li-Miao Company, and the various National Army units were all in high spirits. But the Yangshan Provisional Squadron, which had marched mountain roads all day and arrived only a few hours earlier, was visibly flagging. This provisional squadron of Yonghua Yao numbered only about eighty men—already stripped of the old and weak—but their physical condition could not compare to the Fubo Army's. After the long march without adequate rest, fatigue was showing.
+The troops, having rested most of the night, began river crossings. The Fubo Army, Li-Miao Company, and various National Army units all exhibited high morale. However, the Yangshan Provisional Squadron, which had traversed mountain roads all day and arrived merely hours earlier, displayed visible exhaustion. This provisional squadron of Yonghua Yao numbered only approximately eighty men—already excluding elderly and infirm—yet their physical conditioning couldn't match the Fubo Army's. Following extended marching without adequate rest, fatigue manifested clearly.
 
-Huang Chao did not expect much from them for combat—nor did he trust this unit that had not yet been reformed and trained. But their very presence sent an important signal to the Eight Pai Yao: their alliance with the Yonghua Yao had already collapsed. This was Huang Chao's first step in fracturing the rebellious Yao.
+Huang Chao harbored minimal combat expectations for them—nor did he trust this unit lacking reform and training. Yet their very presence transmitted a crucial signal to the Eight Pai Yao: their alliance with Yonghua Yao had already collapsed. This represented Huang Chao's initial step toward fracturing the rebellious Yao.
 
-As dawn broke, all units had crossed the river safely. The Fubo Army company covered the artillery team's seizure of North Hill; two National Army squadrons, each accompanied by a contingent of Yonghua Yao, split into upper and lower routes and encircled Yanxi Mountain before the Eight Pai Yao on the summit could react. The Li-Miao Company deployed south of Yanxi Mountain to observe and defend against both the Eight Pai Yao besieging the city and the Lianzhou garrison within.
+As dawn broke, all units had crossed safely. The Fubo Army company covered the artillery team's seizure of North Hill; two National Army squadrons, each accompanied by Yonghua Yao contingents, divided into upper and lower routes, encircling Yanxi Mountain before summit-based Eight Pai Yao could react. The Li-Miao Company deployed south of Yanxi Mountain to observe and defend against both city-besieging Eight Pai Yao and the Lianzhou garrison within.
 
-When Li Sanjiu awoke, he discovered that the Australians had encircled him completely. He was stunned—reports of the Australians building pontoon bridges had reached him from the very start. Li Sanjiu had estimated that even if the enemy began construction at midnight, they would be unlikely to finish by the following evening. Given the Yao force's organizational capacity, launching a night attack rashly would likely fail and might throw their own ranks into chaos. So he had merely instructed his men to "keep watching."
+When Li Sanjiu awakened, he discovered Australians had encircled him completely. Shock registered—reports of Australian pontoon bridge construction had reached him from inception. Li Sanjiu had estimated that even commencing construction at midnight, completion would prove unlikely before the following evening. Given Yao forces' organizational capacity, launching rash night attacks would likely fail while potentially throwing their ranks into chaos. Thus he'd merely instructed men to "continue observing."
 
-He had not expected that by first light, the Song troops had already crossed the river and encircled the Yanxi Mountain area!
+He hadn't anticipated that by first light, Song troops had already crossed and encircled the Yanxi Mountain region!
 
-Li Sanjiu was a veteran campaigner and did not panic. He sent men to liaise with the various headmen on the mountain while dispatching others to gather intelligence on the enemy.
+Li Sanjiu, a veteran campaigner, avoided panic. He dispatched men to coordinate with various mountain-based headmen while sending others gathering enemy intelligence.
 
-The news was mixed. The good news was that the enemy numbered far fewer than he had imagined—at most around a thousand, and dispersed across multiple positions. Though they held key chokepoints, they might not withstand a concentrated assault from his main force.
+The news proved mixed. The positive: enemy numbers ran far lower than anticipated—maximally around one thousand, dispersed across multiple positions. Though occupying key chokepoints, they might not withstand concentrated assault from his main strength.
 
-The bad news was that the force surrounding him included Yao warriors.
+The negative: forces surrounding him included Yao warriors.
 
-A sudden realization struck him: had the Yonghua Yao already betrayed him?
+Sudden realization struck: had the Yonghua Yao already betrayed him?
 
-This thought sent a chill down his spine. Coercing the Yonghua Yao into joining the uprising had been his "masterstroke"—a feint to draw the Australians' attention and constrain their movements.
+This thought sent chills coursing down his spine. Coercing Yonghua Yao into joining the uprising had constituted his "masterstroke"—a feint drawing Australian attention while constraining their movements.
 
-As long as the Yonghua Yao had not submitted to the Australians, even if the Australians recaptured Yangshan, the Yonghua could still tie down their forces. Yet the Yonghua had proved so feeble—not only had they meekly surrendered Yangshan, they had followed these Song troops to attack him!
+Provided Yonghua Yao hadn't submitted to Australians, even should Australians recapture Yangshan, the Yonghua could still immobilize their forces. Yet the Yonghua had proved so feeble—not merely surrendering Yangshan meekly, they'd followed these Song troops to attack him!
 
-"Quickly, arm yourselves and prepare to break out!" Li Sanjiu was issuing orders when suddenly someone reported: Li Wu had returned.
+"Quickly arm yourselves—prepare for breakout!" Li Sanjiu issued orders when suddenly someone reported: Li Wu had returned.
 
-"Bring him to me at once," Li Sanjiu commanded.
+"Bring him immediately," Li Sanjiu commanded.
 
-When Li Wu arrived, Li Sanjiu berated him furiously, demanding to know where he had been and whether he had delivered the message in time.
+Upon Li Wu's arrival, Li Sanjiu berated him furiously, demanding where he'd been and whether he'd delivered messages punctually.
 
-Li Wu protested his innocence, recounting every detail of his mission. He explained that he had been released by the Australian "Lord Huang, Commissioner for Pacifying and Suppressing Lianyang and Military Governor of Lianzhou," to bring back a message.
+Li Wu protested innocence, recounting every mission detail. He explained the Australian "Lord Huang, Commissioner for Pacifying and Suppressing Lianyang and Military Governor of Lianzhou" had released him to convey a message.
 
 "What message?"
 
-"This..." Li Wu hesitated, glancing at the headmen and *tianchang gong* around them. "Lord Huang... wants you... to surrender immediately... and your life will be spared..."
+"This..." Li Wu hesitated, glancing toward surrounding headmen and *tianchang gong*. "Lord Huang... desires your... immediate surrender... promising your life will be spared..."
 
-Li Sanjiu erupted in curses. The enemy had not only refused to negotiate—they had pressured the Yonghua Yao into submission and now demanded his surrender as well. His clever schemes had come to nothing; in moments, he would lose everything.
+Li Sanjiu erupted in profanity. The enemy hadn't merely refused negotiation—they'd pressured Yonghua Yao into submission while now demanding his surrender as well. His clever stratagems had yielded nothing; imminently, he'd forfeit everything.
 
-"Chief! Now is no time for anger," Li Wu urged. "The Song forces are mighty and have brought heavy artillery. If we fight, we'll suffer for certain—we must flee at once."
+"Chief! Now proves no time for fury," Li Wu urged. "Song forces possess might and deploy heavy artillery. Should we engage, we'll suffer certainly—we must flee immediately."
 
-This reminder sobered Li Sanjiu. Breathing heavily, he said: "Fear not—I still have a trick up my sleeve."
+This reminder sobered Li Sanjiu. Breathing laboriously, he stated: "Fear nothing—I retain a final stratagem."
 
-That trick was the two hundred Junliao Pai warriors concealed on Jinfeng Mountain—originally positioned to guard against the Lianzhou garrison. Should the garrison break the siege, Li Sanjiu planned to lead the Yanxi Mountain Yao in a feigned retreat eastward, luring the garrison to pursue. When they reached Jinfeng's southern flank and exposed themselves, a smoke signal would send the Jinfeng force charging down to strike from the side while his main force wheeled about for a pincer attack.
+That stratagem involved two hundred Junliao Pai warriors concealed on Jinfeng Mountain—originally positioned guarding against the Lianzhou garrison. Should the garrison break the siege, Li Sanjiu planned leading Yanxi Mountain Yao in feigned eastward retreat, luring garrison pursuit. When they reached Jinfeng's southern flank, exposing themselves, smoke signals would dispatch the Jinfeng force charging downward for flank strikes while his main strength wheeled for pincer assault.
 
-Though the Australians carried muskets and artillery, they were fewer in number. If he signaled the Junliao Pai to descend and strike at the enemy's flank and rear, their deployment would be thrown into chaos, drawing their attention. The Yao on Yanxi Mountain could then charge downhill for a pincer attack on the Australians positioned at the north of the mountain, then break through in the confusion.
+Though Australians carried muskets and artillery, they fielded fewer numbers. Should he signal Junliao Pai to descend striking enemy flanks and rear, their deployment would descend into chaos, drawing their attention. Yanxi Mountain Yao could then charge downhill for pincer attacks against Australians positioned north of the mountain, subsequently breaking through amid confusion.
 
-Victory or defeat hung on this moment! Li Sanjiu made his decision instantly. "Quick—raise the black smoke signal!" He added: "Summon all the headmen to me immediately!"
+Victory or defeat pivoted on this instant! Li Sanjiu decided immediately. "Quickly—raise black smoke signals!" He added: "Summon all headmen to me immediately!"
 
-The Junliao Pai on Yanxi Mountain were among the most defiant of the Eight Pai. Whenever the Eight Pai rose in rebellion, Majian and Junliao invariably led the charge. Not only did they have the most able-bodied men, but they were also more fierce and battle-hardened. This force was, in effect, Li Sanjiu's emergency reserve.
+The Junliao Pai on Yanxi Mountain ranked among the Eight Pai's most defiant. Whenever the Eight Pai rose in rebellion, Majian and Junliao invariably spearheaded charges. Not only commanding the most able-bodied fighters, they also proved more ferocious and battle-hardened. This force constituted, effectively, Li Sanjiu's emergency reserve.
 
 (End of Chapter)

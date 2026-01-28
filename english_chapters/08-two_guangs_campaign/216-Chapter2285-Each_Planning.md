@@ -1,96 +1,100 @@
 # Chapter 2285: Each Planning
 
-Of course, regarding tax issue, several Financial Bureau big bosses in Guangzhou had policies; for "Front Line City" like Wuzhou, mainly still controlled by Central, allocated by Central, but locality could also share a part. And looking at current Wuzhou status, Finance and Tax mouth very likely just walked a procedure, allocating summer grain to Wuzhou...
+Of course, regarding taxation, the senior Finance Bureau officials in Guangzhou had policies in place. For a "front-line city" like Wuzhou, control rested mainly with the central government, and allocations came from the center—though localities could also claim a share. Given Wuzhou's current status, the Finance and Tax departments would very likely just process the paperwork and allocate the summer grain to Wuzhou directly...
 
-Thinking here, Xie Erren instantly had confidence. Nodded saying: "Your idea not bad! You go back consider details again, touch bottom among merchants again."
+Thinking this through, Xie Erren felt his confidence rise. He nodded. "Your idea is sound. Go back and work out the details, then sound out the merchants."
 
-Luo Yangming agreed immediately. Then said his suspicion about "Mr. Hao" a bit again, hoping to send a letter to Teng County side "External Check" his background.
+Luo Yangming agreed at once. Then he mentioned his suspicions about "Master Hao" and expressed hope that a letter could be sent to Teng County for an "external verification" of the man's background.
 
-"This is simple," Xie Erren wrote down in notebook casually, "I look after Old Zhao to send a document when drafting documents in afternoon is fine." He said again, "If you really suspect, just detain him is fine; passing hall one trial, won't know everything?"
+"That's simple," Xie Erren said, jotting it down casually in his notebook. "I'll have Old Zhao send a document when he's drafting papers this afternoon." He added, "If you really suspect him, just detain him. One round of interrogation and we'll know everything."
 
-"He didn't do bad things; why arrest him for no reason? I feel he is a talent capable of practical affairs, also an upright gentleman; if no problem can use him. In case he has some sinister intention, arresting only when having evidence makes it easy to make him open mouth."
+"He hasn't done anything wrong—why arrest him for no reason? I think he's a capable man with practical skills, and an upright gentleman as well. If there's no problem, he could be useful. But if he does harbor some sinister intent, having evidence first will make it easier to get him to talk."
 
-"Okay, you are expert, I won't interfere your train of thought." Xie Erren mood not bad, "This external check at most a week can have result. You just wait for news."
+"Very well, you're the expert. I won't interfere with your methods." Xie Erren was in good spirits. "The external check should have results within a week at most. Just wait for word."
 
-Luo Yangming got arrow of command, coming back then started handling. Since wanting to raise funds, had to select objects of raising; wasn't easy matter. He suddenly thought, this idea was proposed by Mr. Hao; might as well ask him, seeing what statement he had; if he was really an old fox, maybe could drag out fox tail from this.
+Armed with this authorization, Luo Yangming returned to make arrangements. If he was going to raise funds, he needed to select the right targets—no simple matter. He suddenly remembered that this idea had come from Master Hao in the first place. He might as well consult him and see what suggestions he had. If the man really was a cunning old fox, perhaps his true colors would show.
 
-Thinking here, he called Li Wensheng and Yi Haoran both coming without exposing voice and expression; said matter that Chief already agreed raising capital from merchants to buy grain. Pretended mysterious saying again:
+With this in mind, he summoned both Li Wensheng and Yi Haoran, betraying nothing in his expression. He explained that the Chief had approved raising capital from merchants to purchase grain, then added with an air of mystery:
 
-"Currently this is still secret; Chief handed this matter to me to handle. Have to have this charter: You two I know, are people having gully in chest; please advise one or two."
+"For now, this is still confidential. The Chief has entrusted me with handling the matter. We'll need to proceed carefully. You two, I know, are men of deep wisdom—please advise."
 
-Li Wensheng didn't know True Meaning in Employer's heart, smiled: "What good to advise on this! As long as having silver to earn, various merchant families not rushing coming like flies seeing blood—once news released, our shop threshold will be stepped broken."
+Li Wensheng, unaware of the hidden agenda, smiled. "What's there to advise? As long as there's silver to be made, the merchant families will come swarming like flies to blood. The moment news gets out, our threshold will be trampled flat."
 
-Yi Haoran kept wariness instead; he knew this Employer already suspected himself; even if he wasn't Australian spy, now was serving Australian too. Self must respond carefully.
+Yi Haoran remained wary. He knew his employer already suspected him, and the man served the Australians regardless of whether he was actually their spy. He would need to respond carefully.
 
-He recalled various things before; decided regarding this matter shouldn't avoid, otherwise appearing harboring ghost in heart instead. Immediately proposed slightly showing excitement: "This matter truly is benefiting country benefiting people! With Student's humble view, among local merchants, richest is Pingma Firms; but now they mostly hiding and concealing; having silver won't take out either; next is Rice Valley trading firms—Employer is clearer than anyone about situation of this trade; then is Silk Cloth Guild. Silk cloth business eats capital very heavy; although trampled by Xiong Wencan once, always have some capital remaining..."
+Reviewing the situation, he decided he shouldn't avoid this matter—otherwise he would only appear guilty. So he said with carefully calibrated enthusiasm, "This is truly a venture that benefits both country and people! In my humble opinion, among the local merchants, the wealthiest are the Pingma firms—but most of them are lying low these days, hoarding their silver. Next would be the rice and grain traders—Employer knows their situation better than anyone. Then there's the Silk Cloth Guild. The silk trade requires heavy capital investment. Though Governor Xiong squeezed them once, they should still have some reserves..."
 
-"Sir words have reason." seeing him not concealing, pointing topic to Silk Guild in three five sentences, Luo Yangming was very smart, immediately thought of Jiang Qiuchan—Miss Jiang was Ding A-tao’s best friend; Hao Ran was recommended to own shop by Jiang Qiuchan through Ding A-tao’s relationship...
+"Well said, sir." Seeing that Yi Haoran didn't dissemble but directed the conversation toward the Silk Guild within a few sentences, Luo Yangming—no fool—immediately thought of Jiang Qiuchan. Miss Jiang was Ding A-tao's best friend, and Hao Ran had been recommended to the shop by Jiang Qiuchan through Ding A-tao's connections...
 
-So it was like this. Luo Yangming thought, this was throwing peach repaying plum, wanting to drag Jiang family a hand. Maybe still had some benefit inside. Thinking here, his suspicion on Mr. Hao lightened slightly—at least on this matter he bad no conspiracy, purely skirt string relation style seeking profit only.
+So that was it. Luo Yangming understood now: the man was simply returning a favor, trying to throw the Jiang family some business. Perhaps there was even some personal benefit involved. His suspicion of Master Hao eased somewhat—at least in this matter, there was no conspiracy, just the usual patronage politics.
 
-"Silk Guild is not bad; just who specifically to undertake?" He asked deliberately.
+"The Silk Guild is a good choice. But who specifically should we approach?" he asked deliberately.
 
-Hao Ran laughed drily a few times, said: "As far as Student knows, Ruijintang Jiang family always willing to depend on Senate actively; Master can pay attention."
+Hao Ran gave a dry laugh. "As far as I know, the Ruijintang Jiang family has always been eager to cooperate with the Senate. Master might pay them some attention."
 
-Luo Yangming nodded slightly: "Shopkeeper Jiang? Since he took over his father's business shop didn't have any special improvement either; talent of guarding success."
+Luo Yangming nodded slightly. "Shopkeeper Jiang? Since he took over from his father, the shop hasn't shown any particular growth. A man capable only of holding the fort."
 
-"Yes, exactly because only can guard success, now military chaos horse confusion, he wanting to guard success afraid can't guard either; willing to come out to gamble."
+"Exactly. Because he can only hold the fort, and with all this chaos, he probably can't even manage that much longer. He'll be willing to take a gamble."
 
-"Since you recommend his family so, then tomorrow I go see him."
+"Since you recommend his family so highly, I'll pay him a visit tomorrow."
 
-"This, where needs Master to go see; send A-Chun to pass a word, he inevitably comes to visit." Yi Haoran said intentionally making anxious look.
+"There's no need for Master to visit him personally—just send A-Chun with a message and he'll come running." Yi Haoran deliberately adopted an anxious expression.
 
-Seeing him so anxious, Luo Yangming reassured somewhat instead. Always this Mr. Hao even if government old person, he a scholar trapped here, couldn't make any big trouble. Just wait for Teng County external check result coming out; knocking him then looking at situation.
+Seeing his eagerness, Luo Yangming actually felt somewhat reassured. Whatever else this Master Hao might be—even if he was a former government man—he was just a stranded scholar. He couldn't stir up much trouble. Better to wait for the Teng County verification to come back and proceed accordingly.
 
-"Now I am suspected at Luo Yangming's place; things must speed up." Yi Haoran observed surroundings carefully, confirming no one noticing them, low voice whispered.
+---
 
-"General Song sent Zhang Yong to contact me." Jiang Suo propped pole, "He there all proper. I here also settled manpower well, only waiting to move hand. Just Advisor Chang side has no news; not seeing him come out for quite a few days."
+"Luo Yangming suspects me now. We need to move faster." Yi Haoran surveyed their surroundings carefully, confirming no one was watching, and spoke in a low whisper.
 
-Yi Haoran hearing Chang Qingyun had no news, unconsciously worried secretly: this Juren Chang consistently lacked bone spirit; self coerced him with handle; in case this person couldn't endure inner pressure to report would be ten thousand matters resting.
+"General Song sent Zhang Yong to contact me," said Jiang Suo, poling the boat. "Everything's ready on his end. I've also arranged our people—we're just waiting to move. But there's been no news from Advisor Chang. He hasn't come out for several days now."
 
-Happened currently quite a few matters still needed him this person convenient to walk to contact. This was also reason why he wanted to risk pulling him into gang back then.
+Hearing that Chang Qingyun had gone silent, Yi Haoran couldn't help feeling worried. That Juren Chang had never shown much backbone. Yi Haoran had coerced him using leverage; if the man couldn't bear the psychological pressure and reported them, everything would be lost.
 
-"Want or not find people to contact him..."
+Unfortunately, there were still several matters that required someone in Chang Qingyun's position to handle. That was precisely why Yi Haoran had risked recruiting him in the first place.
 
-"Temporarily not; place he stays people many eyes mixed; too eye-catching."
+"Should we send someone to contact him?"
 
-"This doesn't hinder; having a newly joined brother, serving right in Sanheui. Let him go look first—if no abnormality, sending a letter quietly inviting him out is fine."
+"Not yet. Where he's staying, there are too many people and too many eyes. It would be too conspicuous."
 
-"Good, just do as you said."
+"That's not a problem. We have a newly recruited brother serving right in Sanheui. Let him take a look first—if nothing seems amiss, he can quietly pass a message and invite him out."
 
-Turns out this Chang Qingyun was forced to be "Adopted Father" of Sun Qiaoniang; that night counted as holding "Wedding." Liu Youwang was a boor, didn't care about what three media four betroals routine; however people holding stinky feet in camp were many. Liu Youwang wanting to "Marry," immediately someone came to arrange auditorium; someone came to send congratulatory gifts; not yet night, even wine banquet set up.
+"Good. Do it that way."
 
-Chang Qingyun originally unwilling to be "Adopted Father," but dared not resist either; also confusedly put on new clothes. Two strong servant women guarding Sun Qiaoniang came to "Kowtow Adopted Father." This girl life or death unwilling to bow; was pressed kneeling down forcefully kowtowing three times hard. Chang Qingyun shame hard to bear; turned face sideways dared not look at her.
+---
 
-Next was a toss; Chang Qingyun was like marionette; others wanting him to do what did what; completely lost feeling; as if having a nightmare.
+As it turned out, Chang Qingyun had been forced to become Sun Qiaoniang's "adoptive father." That same night, a "wedding" of sorts had been held. Liu Youwang was a boor who cared nothing for proper customs like the three matchmakers and four betrothal gifts. But there were plenty of sycophants in the camp. The moment Liu Youwang announced he wanted to "marry," someone rushed to decorate the hall while others brought congratulatory gifts. Before nightfall, a wine banquet had been laid out.
 
-This farce until nearly third watch considered stopping. Liu Youwang and his fox group dog party naturally drank to unconsciousness; Chang Qingyun this "Adopted Father-in-law" was also poured to seven ups eight downs. Until second day afternoon woke up on bed of own dormitory.
+Chang Qingyun had been unwilling to play "adoptive father," but he didn't dare resist. In a daze, he put on new clothes. Two sturdy servant women escorted Sun Qiaoniang to "kowtow to her adoptive father." The girl absolutely refused to bow. They forced her to her knees and pressed her head to the floor three times. Chang Qingyun was so mortified he turned his face aside, unable to look at her.
 
-Wine woke, Chang Qingyun was full heart of regret. Self not only had no courage to help Sun Qiaoniang protect chastity; instead aided King Zhou to do evil, acting as what "Adopted Father." Still drank dead drunk swallowing anger on "Wedding Banquet."
+What followed was a chaotic whirl. Chang Qingyun moved like a puppet—doing whatever others told him, completely numb, as though trapped in a nightmare.
 
-Originally he wanted to find Yi Haoran immediately to discuss riot matter; however that night spread news of Sun Qiaoniang committing suicide. Liu Youwang thundered with rage; involving Chang Qingyun also arrested; baffled suffering a beating. Released after two days.
+The farce lasted until nearly the third watch before it wound down. Liu Youwang and his pack of cronies naturally drank themselves unconscious. Chang Qingyun, the "adoptive father-in-law," was also plied with wine until he could barely stand. He didn't wake until the following afternoon, in his own dormitory bed.
 
-Sun Qiaoniang’s suicide gave Chang Qingyun huge stimulation; her miserable helpless cry for help "Master save me" when dragged away after forced to kowtow seemed to echo in his ears all the time. Chang Qingyun this life didn't have many times of heroic intense; having was also three minutes heat. However this time, he made up mind; even sacrificing life had to do with Hair thief to end!
+Once the wine fog cleared, Chang Qingyun was filled with regret. Not only had he lacked the courage to help Sun Qiaoniang preserve her honor—he had actually aided a tyrant's evil by acting as "adoptive father." And then he had gotten dead drunk and swallowed his humiliation at the "wedding banquet."
 
-Once receiving meeting news internal line passed to him, Chang Qingyun found an excuse leaving Labor Camp, contacting with Yi Haoran.
+He had wanted to find Yi Haoran immediately to discuss plans for an uprising. But that very night came the news that Sun Qiaoniang had taken her own life. Liu Youwang flew into a thunderous rage; Chang Qingyun was swept up in the aftermath and arrested. He received a beating for no clear reason and was only released two days later.
 
-Yi Haoran at this time already knew matters in camp; seeing Chang Qingyun, in three words two sentences knew already not Ameng of Wu (not same person as before); then told him current action plan quietly.
+Sun Qiaoniang's suicide struck Chang Qingyun like a hammer blow. Her desperate, helpless cry of "Master, save me!" as she was dragged away after the forced kowtow seemed to echo constantly in his ears. Chang Qingyun had known few moments of heroic passion in his life, and what fire he'd had usually burned out in three minutes. But this time, he steeled his resolve: even if it cost him his life, he would fight these Hair thieves to the end!
 
-Core of plan was exactly that suggestion of Gou Xunli: raiding Prefecture Yamen, capturing or beheading Xie Erren. Speaking simple doing not easy. Garrison inside and outside Wuzhou City although not many, stationed echoing each other; various contacts convenient; troop reaction speed very fast. Wanting to sneak attack wasn't so easy.
+As soon as the message from their inside man reached him, Chang Qingyun found an excuse to leave the Labor Camp and made contact with Yi Haoran.
 
-Biggest obstacle was the Infantry Company stationed in Three Headquarters; this was core of Wuzhou Garrison. Could say, as long as this company existed, they shouldn't think about raiding successfully inside Wuzhou City.
+By then, Yi Haoran had already learned what had happened in the camp. Within a few words of meeting, he could tell Chang Qingyun was no longer the same man. He then quietly explained the current action plan.
 
-Secondly was four squadrons under National Army Wuzhou Battalion. Although equipment training level of these four squadrons uneven; majority soldiers even had no muskets; but combat power of these people however bad, bandits under Second Master Gou were not opponents. Only war soldiers under Song Ming could fight a battle.
+The core of the plan was exactly as Gou Xunli had suggested: raid the Prefecture Yamen, capture or behead Xie Erren. Simple in concept, difficult in execution. The garrison inside and outside Wuzhou City wasn't large, but the units were positioned to support each other, communications were convenient, and response times were fast. A surprise attack would not be easy.
 
-Australians defense inside city, Yi Haoran roughly figured out: Wuzhou itself very small; Luo Yangming’s rice shop was also responsible for rationing of military food; plus Wen Iron Head often came to shop to chat; from his mouth could also get quite a few news.
+The biggest obstacle was the infantry company stationed at the Three Headquarters—the core of Wuzhou's garrison. As long as that company existed, any raid inside Wuzhou City was doomed to fail.
 
-"...This True Hair usually lives and works in Prefecture Yamen; night goes to Three Headquarters to stay overnight. Neither of these two places is easy to start hand." Yi Haoran said lightly.
+Secondary obstacles were the four squadrons of the National Army's Wuzhou Battalion. These squadrons varied widely in equipment and training; most soldiers didn't even have muskets. But however poor their combat effectiveness, the bandits under Second Master Gou were no match for them. Only Song Ming's veteran soldiers could put up a fight.
 
-Three Headquarters not only had Line Infantry Company, also had part of National Army; could be called heavy troops guarding. And City Defense Command and National Army Wuzhou Battalion Headquarters were set in Cangwu County Yamen next to Prefecture Yamen. A strongest National Army squadron directly guarded Prefecture Yamen and adjacent Nanxun Gate and Dezheng Gate. One place having alarm, various places could come to aid in very short time.
+Yi Haoran had roughly mapped out the Australian defenses inside the city. Wuzhou itself was small. Luo Yangming's rice shop was also responsible for military ration distribution, and Wen Iron Head often came by the shop to chat—from him, Yi Haoran gleaned quite a bit of useful information.
 
-Wanting to imitate Hou Dagou old trick, sneaking attack entering city, arresting great officer was almost impossible. Even if luckily breaking into city, would fall into heavy siege quickly, sending death in vain.
+"...This True Hair usually works and sleeps at the Prefecture Yamen. At night, he goes to the Three Headquarters to stay over. Neither location is easy to strike." Yi Haoran spoke calmly.
 
-Wanting plan to succeed, had to "Tune Tiger Leaving Mountain." This kind of chance could be met not sought; Yi Haoran wanted to pull Chang Qingyun into gang, also had attempt of wanting to make trouble in Sanheui; whether organizing riot or arson, could pin down a National Army squadron here.
+The Three Headquarters not only housed the line infantry company but also part of the National Army—it was heavily guarded. Meanwhile, the City Defense Command and National Army Wuzhou Battalion Headquarters were located in the Cangwu County Yamen, right next to the Prefecture Yamen. The strongest National Army squadron directly guarded the Prefecture Yamen and the adjacent Nanxun and Dezheng Gates. If an alarm sounded anywhere, reinforcements could arrive within moments.
+
+Trying to imitate Hou Dagou's old tactic—sneaking into the city and seizing a high official—was virtually impossible. Even if they managed to break through by sheer luck, they would quickly find themselves trapped and surrounded. It would be throwing their lives away for nothing.
+
+For the plan to succeed, they had to "lure the tiger from the mountain." Such opportunities were rare and couldn't be forced. Yi Haoran had recruited Chang Qingyun partly in hopes of creating a disturbance at Sanheui—whether a riot or arson, either could pin down a National Army squadron there.
 
 ---
 **Next Update:** Volume 7 - Guangzhou Governance Part 489

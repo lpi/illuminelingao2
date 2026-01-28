@@ -1,20 +1,20 @@
 # Chapter 2246 - Night Raid on Dalang Market (IV)
 
-The second courtyard, where Sun Dabiao was, had not been bombed. Though chaos filled the yard—shrieks rising on all sides—he had years of bandit experience and many close scrapes. He kept a measure of calm. He threw on clothes haphazardly and strapped a "treasure pouch" to his back—a habit from his bandit days. Inside were loose silver, a roster of his gang, and key contracts. If he escaped alive, this would let him start over.
+The second courtyard, where Sun Dabiao was quartered, hadn't been bombed. Though chaos filled the yard—shrieks rising on all sides—he had years of bandit experience and many close scrapes behind him. He kept a measure of calm. He threw on clothes haphazardly and strapped a "treasure pouch" to his back—a habit from his bandit days. Inside were loose silver, a roster of his gang, and key contracts. If he escaped alive, this would let him start over.
 
-"Where's Yundong?" he asked "Brush Brow."
+"Where's Yundong?" he asked Brush Brow.
 
 Sun Yundong was his eldest grandson. Sun Dabiao had only one son, long since hollowed out by wine and women—useless. So the grandfather doted on the grandson, grooming him as heir.
 
 "The young master is in the west wing..."
 
-"Fetch him—now!" With danger pressing, Sun Dabiao was ready to "flow away." He could abandon family—wife, concubines, even his worthless son—but this "last spark" of the line had to be saved.
+"Fetch him—now!" With danger pressing, Sun Dabiao was ready to "flow away." He could abandon family—wife, concubines, even his worthless son—but this "last spark" of the bloodline had to be saved.
 
 Moments later, Brush Brow returned with Sun Yundong—a boy of sixteen. Sun Dabiao had drilled him, but he was still a pampered young master. Barking orders in peacetime was one thing; facing the enemy now, he was too flustered to think.
 
 "Grandfather... what—what do we do...?"
 
-Sun Dabiao glared. The boy's face was panicked, eyes darting. Clothes half-fastened, no "calm composure," no "eager to fight." Disappointment stirred.
+Sun Dabiao glared. The boy's face was panicked, eyes darting. Clothes half-fastened, no "calm composure," no "eager to fight." Disappointment stirred in the old bandit's chest.
 
 "Straighten your clothes. You're coming with me to break out."
 
@@ -38,7 +38,7 @@ He knew Dalang Market had only two exits: one toward Yonghua—absolutely off-li
 
 The only hope was breaking out toward the county seat. Once clear of Dalang Market, Xin's estate or Qinglian Market—either offered a chance.
 
-Inside Dalang Market, pandemonium reigned. Zhen Huan's two-pronged strike on the heart had shattered the command structure in an instant. Scattered underlings, roused from sleep by explosions and screams, stampeded in all directions—formations gone, most fleeing toward the county-seat road.
+Inside Dalang Market, pandemonium reigned. Zhen Huan's two-pronged strike at the heart had shattered the command structure in an instant. Scattered underlings, roused from sleep by explosions and screams, stampeded in all directions—formations gone, most fleeing toward the county-seat road.
 
 By now, the National Army had finished setting up outside. Since their rate of fire was far lower than the Fubo Army's, they had brought masses of sharpened bamboo stakes—a broad, one-*zhang*-wide deer-horn barrier planted across the road. The soldiers split into two groups, taking firing positions in the trees and brush on either side—crossfire from both flanks.
 
@@ -58,7 +58,7 @@ The left and right wings alternated with their Nanyang-style rifles—steady, un
 
 "Mommy... Mommy..."
 
-Cries and groans echoed. Now and then came the shrill shriek of a dying man. Bi Da, witnessing this savagery for the first time, went slightly pale—but she said nothing, watching the battle unfold.
+Cries and groans echoed through the night. Now and then came the shrill shriek of a dying man. Bi Da, witnessing this savagery for the first time, went slightly pale—but she said nothing, watching the battle unfold.
 
 Seeing the stakes half-wrecked by bodies and wounded, Luo Yiming ordered more planted, then pulled the National Army back a step to leave enough "killing ground."
 
@@ -68,9 +68,9 @@ Zhen Huan's force was tearing through Dalang Market like twin dragons plunging i
 
 With his experience, Sun Dabiao knew an ambush awaited at the exit. Charging out with a handful of men was suicide. He ordered: "Sound the conch! Rally the boys—we'll cut our way through together!"
 
-He had brought a conch shell—but had not meant to use it. Blowing it would summon his men—but it would also broadcast his position; the baldies would track the sound. A risky gambit. But now he had no choice.
+He had brought a conch shell—but hadn't meant to use it. Blowing it would summon his men—but it would also broadcast his position; the baldies would track the sound. A risky gambit. But now he had no choice.
 
-The low drone of the conch rose. Within moments, fifty or sixty men had gathered. Sun Dabiao did not dare linger. He shouted: "Brothers—charge out with me! Everyone who makes it is my true brother! Silver, land, women—all yours!"
+The low drone of the conch rose through the night. Within moments, fifty or sixty men had gathered. Sun Dabiao didn't dare linger. He shouted: "Brothers—charge out with me! Everyone who makes it is my true brother! Silver, land, women—all yours!"
 
 His rabble-rousing rekindled greed in the panicking bandits. They bellowed: "Follow Boss Sun!" "Cut our way through!" "Grab the lady magistrate—we'll all have a taste of Australian!"...
 
@@ -84,9 +84,9 @@ Zhen Huan and two platoons had slaughtered their way through the depot—but whe
 
 "After him!" Zhen Huan turned to leave, then stopped. "Guard this courtyard—don't let them run, don't let them die!"
 
-Just then, the mournful *oo-oo* of a conch drifted through the night. Zhen Huan froze—that was not a Fubo Army signal!
+Just then, the mournful *oo-oo* of a conch drifted through the night. Zhen Huan froze—that wasn't a Fubo Army signal.
 
-Sun Dabiao was rallying his men!
+Sun Dabiao was rallying his men.
 
 "First Platoon—on me!"
 
@@ -98,11 +98,11 @@ Ahead, gunfire crackled rhythmically. Sun Dabiao knew charging forward was almos
 
 "Charge, brothers—your lives are on the other side!" he bellowed. His voice was loud, but his own feet slowed—he let others rush ahead.
 
-Dawn was breaking. The bandits saw that the blocking force was not large. Courage surged. They howled and threw themselves forward. The human wave engulfed the stake barrier in an instant.
+Dawn was breaking. The bandits saw that the blocking force wasn't large. Courage surged. They howled and threw themselves forward. The human wave engulfed the stake barrier in an instant.
 
 The County Squadron's volleys mowed down the front ranks, but the rest trampled the dead and kept coming. Soon the first enemy crossed the stakes. Luo Yiming led the reserve Third Platoon to meet them head-on. One volley drove them back.
 
-But the bandits, desperate for life, had finally breached the line—and Sun Dabiao was behind them, urging them on. They charged again, heedless of death. After a few volleys, the Third Platoon was locked in hand-to-hand fighting.
+But the bandits, desperate to survive, had finally breached the line—and Sun Dabiao was behind them, urging them on. They charged again, heedless of death. After a few volleys, the Third Platoon was locked in hand-to-hand fighting.
 
 Bi Da, shotgun in hand—she had trained with it in Taiwan—saw the Third Platoon swarmed and immediately led the four Zhou retainers to reinforce.
 
@@ -112,9 +112,9 @@ She charged forward—and spotted a middle-aged, powerfully built man pushing th
 
 The shrill cry made Sun Dabiao shudder. Involuntarily, he turned—and saw a young woman with a double-barreled shotgun, leading several men straight at him.
 
-Brush Brow saw his boss spotted. He roared: "Go, sir!" Swinging his broadsword, he and three or four retainers charged to intercept.
+Brush Brow saw his boss had been spotted. He roared: "Go, sir!" Swinging his broadsword, he and three or four retainers charged to intercept.
 
-Bi Da was about to fire, but Zhou Er—bow already drawn—loosed an arrow. The lead retainer dropped. Bi Da, half a beat behind, pulled the trigger. With a boom, Brush Brow and two retainers were flung back, blood-soaked, screaming as they fell.
+Bi Da was about to fire, but Zhou Er—bow already drawn—loosed an arrow first. The lead retainer dropped. Bi Da, half a beat behind, pulled the trigger. With a boom, Brush Brow and two retainers were flung back, blood-soaked, screaming as they fell.
 
 By now the bandits were less than five paces away. Bi Da fired the second barrel, sending another round shrieking out. In an instant, Sun Dabiao's bodyguards were nearly gone.
 

@@ -1,133 +1,133 @@
 # Chapter 2360: Status of Sanya (Part 4)
 
-Next, Tang Menglong introduced Sanya's population situation in detail. Sanya currently had a registered population of over 50,000, plus more than 10,000 slave laborers without household registration. The total population was nearly 70,000. In addition, there were several thousand troops and short-term dispatched personnel who could not be counted in the population.
+Tang Menglong then provided a detailed account of Sanya's population. The city had over fifty thousand registered residents, plus another ten thousand unregistered slave laborers, bringing the total population to nearly seventy thousand. This figure excluded the several thousand troops and short-term personnel who could not be counted toward the permanent population.
 
-This figure left a very deep impression on Xu Yanliang. Not counting Guangzhou, Lingao, the "First Metropolis" of the Senate, only had a population of less than 200,000.
+The numbers left a deep impression on Xu Yanliang. Setting aside Guangzhou, even Lingao—the Senate's vaunted "First Metropolis"—had fewer than two hundred thousand inhabitants.
 
-The current population was mainly concentrated in Hexi District, Tiandu District, and Jinling District. Among them, Jinling District had the most. This area had much flat land and ample water supply, and most farmers coming to Sanya lived in this area. Several local farms of the Agricultural Reclamation Bureau were also mostly set up here. The second gathering area was Tiandu. The third was Hexi District.
+The population concentrated primarily in three districts: Hexi, Tiandu, and Jinling. Of these, Jinling had the largest share. The district boasted ample flat land and abundant water, making it ideal for agriculture, and most farmers who had migrated to Sanya had settled there. Several of the Agricultural Reclamation Bureau's local farms were also located in this area. Tiandu ranked second in population, followed by Hexi.
 
-This introduction lasted until the evening. That night, Tang Menglong played the host, and the two drank and chatted happily. Borrowing the alcohol, Xu Yanliang revealed some of the "ambitions" of the Nanyang Company in the future, and Tang Menglong also patted his chest to guarantee "full support." The two parted only after enjoying themselves to the full.
+The briefing continued until evening. That night, Tang Menglong played the gracious host, and the two men drank and conversed until they were thoroughly satisfied. Loosened by alcohol, Xu Yanliang revealed some of the Nanyang Company's future "ambitions," while Tang Menglong beat his chest and pledged "full support." They parted only after thoroughly enjoying themselves.
 
-The next day, Tang Menglong said he would take him to Hexi District. Xu Yanliang declined—today he was going to meet the staff of the Southeast Asia Company's Sanya trading station, and it would be inconvenient to have Tang Menglong around, so he just asked him to arrange a guide. Tang Menglong then arranged for a secretary from the municipal government to lead the way.
+The following day, Tang Menglong offered to escort him to Hexi District. Xu Yanliang declined—he intended to meet with the Southeast Asia Company's staff at their Sanya trading station, and Tang Menglong's presence would prove inconvenient. He simply requested a guide. Tang Menglong assigned a secretary from the municipal government to accompany him.
 
-This secretary was not old; he had just graduated from the administrative class of Fangcaodi last year and was assigned to Sanya. As soon as Xu Yanliang came out of the City Hall, he saw him waiting under the steps with two Venus Zeros and four guards riding bicycles.
+The secretary was young, having graduated from Fangcaodi's administrative program only the previous year before being assigned to Sanya. When Xu Yanliang emerged from City Hall, he found the young man waiting at the foot of the steps with two Venus Zero bicycles and four guards, also on bicycles.
 
-Seeing him come out, he immediately performed a standing attention and nodding salute:
+Seeing him appear, the secretary immediately snapped to attention and gave a nodding salute:
 
-"Yuan Fei, Secretary of the General Office of Sanya Municipal Government, reporting to you!"
+"Yuan Fei, Secretary of the General Office of Sanya Municipal Government, reporting for duty!"
 
-There were few departments in the Sanya Municipal Government, and the number of cadres equipped was very small. This so-called secretary was a "handyman" who did everything.
+The Sanya Municipal Government had few departments and even fewer cadres. This so-called secretary was essentially a jack-of-all-trades who handled everything.
 
-"How old are you?" Looking at the rather immature teenager in front of him wearing an ill-fitting cadre uniform, Xu Yanliang couldn't help laughing.
+"How old are you?" Xu Yanliang asked, unable to suppress a laugh at the rather immature teenager standing before him in an ill-fitting cadre uniform.
 
-"Report to Chief, seventeen years old!"
+"Reporting to the Chief—seventeen!"
 
-"So young, why didn't you study for a few more years?"
+"So young. Why didn't you study for a few more years?"
 
-"Report to Chief..."
+"Reporting to the Chief..."
 
-"Stop with this chatter, answer the question directly!"
+"Enough with the formalities. Just answer the question."
 
-"Yes! The Senator teacher said I was 'rotten wood that cannot be carved,' and it was better to start working as early as possible. At least I can accumulate a few more years of seniority."
+"Yes! Senator Teacher said I was 'rotten wood that cannot be carved,' and that I'd be better off starting work early. At least I could accumulate a few more years of seniority."
 
-"Arranging 'rotten wood that cannot be carved' to Sanya as a secretary; come, tell me who this unconventional Chief is."
+"Assigning 'rotten wood that cannot be carved' to serve as a secretary in Sanya—tell me, who is this unconventional Chief?"
 
-"It's, it's Senator Yang Xinwu."
+"It's... it's Senator Yang Xinwu."
 
-"It's him." Xu Yanliang almost laughed again. But he held back, "Can you ride a bicycle?"
+"Ah, him." Xu Yanliang nearly laughed again but restrained himself. "Can you ride a bicycle?"
 
 "Of course!"
 
-"Then send this broken rickshaw back; we'll ride over!"
+"Then send this wretched rickshaw back. We'll ride over."
 
 "Yes, Chief!"
 
-The group rode bicycles along the Senate Avenue, returning along the route of yesterday. After arriving at the pier, they continued to ride forward. This area on the west bank of the Sanya River and east of the coast was a narrow strip running north-south. In the simple planning, it was the commercial and living center of Sanya City.
+The group cycled along Senate Avenue, retracing the previous day's route. After reaching the pier, they continued onward. This area on the west bank of the Sanya River, stretching to the east coast, formed a narrow north-south strip. According to the simple urban plan, it was designated as Sanya City's commercial and residential center.
 
-Not far from the pier was the Trading Station District. Commerce and freight transport in the 17th century were not yet completely separated, and merchants engaged in trade mostly traveled with their goods. Therefore, countries set up buildings like "trading stations" or "factories" in port cities.
+Not far from the pier lay the Trading Station District. In the seventeenth century, commerce and freight transport had not yet fully separated, and merchants engaged in trade typically traveled with their goods. Consequently, various nations established buildings called "trading stations" or "factories" in port cities.
 
-Trading stations were roughly based on a country, a region, or a company, integrating accommodation, negotiation, and inventory, and also having functions like currency exchange and remittance. Trading stations generally adopted fully enclosed management, partly to ensure the personal and property safety of merchants, and partly to facilitate local government management and taxation. From the earliest "Steelyard" of the Hanseatic League in London to the barbarian factories of the "Thirteen Factories" in Guangzhou, they were similar institutions. In the early days, such trading stations also had the role of consulates.
+These trading stations were generally organized by country, region, or company, combining accommodation, negotiation, and storage functions, while also offering currency exchange and remittance services. They typically employed fully enclosed management—partly to ensure the personal and property safety of merchants, and partly to facilitate local government oversight and taxation. From the earliest "Steelyard" of the Hanseatic League in London to the barbarian factories of the "Thirteen Factories" in Guangzhou, all were similar institutions. In earlier times, such trading stations also served consular functions.
 
-Because Sanya was positioned as an "International Trade City," land was specially designated near the pier at that time to set up trading stations. However, because trade here was not prosperous, so far, only the British East India Company, the Dutch East India Company, and the Portuguese had set up trading stations here.
+Because Sanya was positioned as an "International Trade City," land near the pier had been specifically designated for trading stations. However, due to sluggish trade, only the British East India Company, the Dutch East India Company, and the Portuguese had established stations there thus far.
 
-Xu Yanliang arrived at the Trading Station District and felt it was cold and deserted. On the huge open space, there were only a few small buildings and supporting warehouses. A few flags fluttered listlessly.
+When Xu Yanliang arrived at the Trading Station District, he found it cold and desolate. Across the vast open expanse stood only a handful of small buildings with supporting warehouses. A few flags fluttered listlessly.
 
-"That house is the trading station of the Southeast Asia Company." Yuan Fei pointed to a distant house while riding.
+"That building there is the Southeast Asia Company's trading station," Yuan Fei called out, pointing to a distant structure as he pedaled.
 
-The location of the Southeast Asia Company's trading station was near its dedicated pier. It looked equally desolate. The open-air cargo stacking area of the pier was clean, without even a broken box, only seagulls flying up and down foraging everywhere. The heavy steam cranes and supporting boilers were cold, without a single spark. More than a dozen merchant ships were moored by the trestle bridge. Not only were the sails furled, but some ships even had their masts removed. There were no sailors on the ships, only two guards standing guard by the trestle bridge in boredom. A scene of depression in winter break.
+The Southeast Asia Company's trading station was situated near its dedicated pier. It looked equally desolate. The pier's open-air cargo staging area was spotless—not even a broken crate in sight—only seagulls circling and diving in search of food. The heavy steam cranes and their supporting boilers stood cold, without a single spark. More than a dozen merchant ships lay moored at the trestle bridge, their sails furled. Some had even removed their masts. No sailors were visible aboard; only two bored guards stood watch by the trestle. The scene spoke of winter dormancy and depression.
 
-"Is it always this deserted here?" Xu Yanliang felt more discouraged as he looked and asked.
+"Is it always this quiet here?" Xu Yanliang felt increasingly disheartened as he surveyed the scene.
 
-"It's winter now. It will be lively when the wind direction changes next spring," Yuan Fei said.
+"It's winter now. Things will liven up when the wind shifts next spring," Yuan Fei replied.
 
-Xu Yanliang stopped the bike, looked around the pier, and asked, "What ships come here?"
+Xu Yanliang stopped his bicycle, looked around the pier, and asked, "What ships come here?"
 
-"Mainly British ships. There are also Dutch ships. Portuguese ships rarely come."
+"Mostly British ships. Some Dutch as well. Portuguese ships rarely come."
 
-"Rarely come but still set up a trading station?"
+"Rarely come, yet they still set up a trading station?"
 
-"Few ships come. But this trading station is quite busy; local merchants often interact with the Portuguese here."
+"Few ships come, true. But the trading station itself is quite busy—local merchants often deal with the Portuguese here."
 
-"Oh, why is that?"
+"Oh? Why is that?"
 
-"Not clear," Yuan Fei said.
+"Not sure," Yuan Fei said.
 
-Xu Yanliang became suspicious: it was not strange that Portuguese ships rarely came—they could go directly to Macao to do business, no need to detour to Sanya. But since few ships came, why did the Portuguese set up a trading station locally? And since many local merchants were so-called "shell companies," why did they often interact with Portuguese merchants?
+Xu Yanliang grew suspicious. It wasn't strange that Portuguese ships rarely came—they could sail directly to Macao for business without detouring to Sanya. But if few ships arrived, why had the Portuguese established a local trading station? And since many local merchants were supposedly "shell companies," why did they frequently interact with Portuguese merchants?
 
-Since ancient times, no one gets up early without profit; behind these abnormal behaviors, there must be some interest connection.
+Since ancient times, no one rises early without the promise of profit. Behind these anomalies, there had to be some hidden interest.
 
-Yuan Fei was about to lead him over, but Xu Yanliang said, "Take me around Hexi first. We'll go to the trading station last."
+Yuan Fei was about to lead him forward, but Xu Yanliang said, "Show me around Hexi first. We'll visit the trading station last."
 
-Since this place was to be a long-term base, it was better to find out the situation clearly when first arriving.
+If this was to become his long-term base, better to understand the situation thoroughly from the start.
 
-The convoy passed the pier area and went north along the north-south Xintiandi Avenue. The market here was much more prosperous than in Hedong District, and the atmosphere of urban life was much heavier. The shops on both sides were two-story "Qilou" (arcade buildings) in the style of "Old Guangzhou" and "Old Haikou"—very practical in hot and rainy places like Sanya.
+The convoy passed through the pier area and headed north along Xintiandi Avenue. The commercial district here was far more prosperous than Hedong District, with a much stronger urban atmosphere. The shops lining both sides of the street were two-story "Qilou"—arcade buildings in the style of "Old Guangzhou" and "Old Haikou." These proved very practical in hot, rainy places like Sanya.
 
-He got interested and immediately got off the bike, saying, "Let's walk over and have a look!"
+His interest piqued, Xu Yanliang dismounted immediately. "Let's walk and have a look!"
 
-Yuan Fei naturally couldn't spoil his fun and immediately led the way in front, with four guards protecting them, patrolling along the street.
+Yuan Fei naturally wouldn't spoil his mood and promptly led the way, with four guards flanking them as they strolled along the street.
 
-The road construction standards here were exactly the same as Senate Avenue. The sidewalks were paved with local stone. The Qilou of various sizes and heights were also built with stone and red bricks. Not only was the construction excellent, but the building design and appearance were also very exquisite, even better than Bairen City. Xu Yanliang even noticed the gas lamps here. Compared to those simple geometric iron lamp bases in Lingao, the gas lamps here had complex and gorgeous patterns.
+The road construction here matched Senate Avenue's standards exactly. The sidewalks were paved with local stone. The Qilou buildings, varying in size and height, were also constructed of stone and red brick. Not only was the construction excellent, but the architectural design and appearance were quite refined—even superior to Bairen City. Xu Yanliang also noticed the gas lamps here. Compared to Lingao's simple geometric iron lamp stands, these featured complex and ornate patterns.
 
-The Senate really pinned high hopes on this place back then. Xu Yanliang lamented in his heart. Now, the Senate's attention was focused on the mainland, and this original "pearl" of Sanya inevitably seemed a bit dull.
+*The Senate really pinned high hopes on this place,* Xu Yanliang mused. Now, with the Senate's attention focused on the mainland, Sanya—once envisioned as a "pearl"—had inevitably lost some of its luster.
 
-How can it radiate light? Xu Yanliang couldn't help falling into thought again.
+*How can it be made to shine again?* He fell into contemplation once more.
 
-He roamed under the Qilou, browsing shop after shop. Judging from the signboards, there were all kinds of trades here, and the stocks in the shops were sufficient. But he noticed that most shops here were commercial firms dealing in consumer goods like food, daily necessities, and catering. That is to say, their customers were mainly locals. Probably the capital wouldn't be too large either.
+He wandered beneath the arcades, browsing shop after shop. Judging by their signboards, every trade imaginable was represented, and the shops were well-stocked. But he noticed that most establishments dealt in consumer goods—food, daily necessities, and restaurants. Their customers were primarily locals, and their capital was likely modest.
 
-Logically speaking, this was a foreign trade port, and there should be a considerable number of firms engaged in overseas trade. For example, shops selling imported spices, textiles, and handicrafts, etc.—this was very common in Guangzhou. But he walked several hundred meters here and didn't see many. It could be seen that foreign trade did not play a dominant role here.
+Logically, as a foreign trade port, there should have been a considerable number of firms engaged in overseas commerce—shops selling imported spices, textiles, and handicrafts, for instance. Such establishments were common in Guangzhou. Yet after walking several hundred meters, he had spotted very few. Clearly, foreign trade did not dominate here.
 
-Seeing his solemn face, Yuan Fei felt a little uneasy. Suddenly he heard Xu Yanliang ask:
+Seeing his solemn expression, Yuan Fei grew uneasy. Suddenly, Xu Yanliang asked:
 
-"Are there any big businesses here besides these small trading firms?"
+"Are there any large businesses here besides these small trading firms?"
 
-"Yes, yes, the biggest firm here is Qionghai Hao..."
+"Yes, yes—the biggest firm here is Qionghai Hao..."
 
-"Qionghai Hao? Isn't this Li Luoyou's business?" Hearing this familiar word, Xu Yanliang blurted out.
+"Qionghai Hao? Isn't that Li Luoyou's business?" The familiar name prompted Xu Yanliang to speak without thinking.
 
-"Li Luoyou? No, no, the boss of this firm is surnamed Gu..."
+"Li Luoyou? No, no—the owner of this firm is surnamed Gu..."
 
-"Oh, oh, right, right, called Gu something Cheng."
+"Oh, right, right. Called Gu... something-Cheng."
 
 "Gu Baocheng."
 
-"Right, Gu Baocheng." Xu Yanliang was a bit strange, "Isn't he in Lingao?"
+"Right, Gu Baocheng." Xu Yanliang was puzzled. "Isn't he in Lingao?"
 
-He knew this Gu Baocheng; he was the apple of Li Luoyou's eye, closer than a son. Putting him in Lingao was to save up a family business for him so that he could be a rich man with peace of mind. Why did he run to Sanya again?
+He knew this Gu Baocheng—he was Li Luoyou's favorite, more treasured than a son. Placing him in Lingao had been meant to build up a family business so he could live comfortably as a wealthy man. Why had he come to Sanya?
 
-"It's the Sanya branch of Qionghai Hao. Master Gu is not here; someone else is the shopkeeper."
+"This is the Sanya branch of Qionghai Hao. Master Gu isn't here—someone else manages the shop."
 
-Xu Yanliang thought that this firm was an old partner firm of the Senate and had stood the test. Although Li Luoyou's attitude was ambiguous, and after the recovery of Guangzhou, he ran north to Nanjing in a flash. However, his firms in Guangdong had not moved and were still operating normally.
+Xu Yanliang reflected that this firm was an old partner of the Senate and had proven its reliability. Although Li Luoyou's attitude had been ambiguous—he had fled north to Nanjing in a flash after Guangzhou's recovery—his firms in Guangdong had stayed put and continued operating normally.
 
-"How is this branch operating locally?"
+"How is this branch doing locally?"
 
-"Standard, doing some maritime trade business. The business is not big. There are ships taking the Kaohsiung route, and ships going to the Portuguese side."
+"Standard—they handle some maritime trade. The business isn't large. They have ships on the Kaohsiung route, and ships going to the Portuguese side."
 
-"Any others?"
+"Anyone else?"
 
-"There is also a branch of Dongshan Ju. Originally, the business was quite prosperous, but news came a few days ago that their boss Liu was arrested in Guangzhou. The head office of Dongshan Ju was also sealed up. Now Dongshan Ju is in chaos from top to bottom. Business can't be done anymore."
+"There's also a branch of Dongshan Ju. Business was quite prosperous before, but word came a few days ago that their Boss Liu was arrested in Guangzhou. Their head office was sealed as well. Now Dongshan Ju is in complete chaos, top to bottom. They can't do business anymore."
 
-"Who is the shopkeeper of this firm now?"
+"Who manages this firm now?"
 
-"The shopkeeper here is named Chen Huamin, said to be Boss Liu's cousin. A few days ago, he came to ask our Chief for help, pleading tearfully."
+"The shopkeeper here is named Chen Huamin—supposedly Boss Liu's cousin. A few days ago, he came to plead tearfully with our Chief for help."
 
 **(End of Chapter)**

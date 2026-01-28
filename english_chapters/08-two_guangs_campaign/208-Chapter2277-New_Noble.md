@@ -1,104 +1,104 @@
 # Chapter 2277: New Noble
 
-Yi Haoran having obtained this title, handled matters with proper name and smooth words.
+Having secured this mandate, Yi Haoran could now act with proper name and authority.
 
-The purpose of offering incense was to see Cai Lan; for Yi Haoran this "Deity" was much harder to invite. So decided on his own, setting on July 6th.
+The purpose of the incense offering was to see Cai Lan. For Yi Haoran, this "deity" was far harder to summon. So he decided on his own to set the date for July 6th.
 
-Ding A-tao didn't have much housework to manage; a few days earlier or later were all okay. So settled on this day.
+Ding A-tao had little housework to manage; a few days earlier or later made no difference. So they settled on that day.
 
-Yi Haoran immediately went out of city, arriving at Dragon Mother Temple, coming to temple to find Abbot.
+Yi Haoran immediately went outside the city to Dragon Mother Temple to find the Abbot.
 
-Dragon Mother Temple’s Abbot name was Wu Yuan, age not big, but in Wuzhou was long sleeves good at dancing, having relationships with local aristocratic families and big households. Originally medium and small merchants like Luo Yangming were not in his eyes at all; coming to temple to offer incense having a guest prefect to receive could be counted as giving face.
+The Dragon Mother Temple's Abbot was named Wu Yuan. Though not old, he was a man of many connections in Wuzhou, maintaining relationships with local aristocratic families and prominent households. Originally, medium and small merchants like Luo Yangming wouldn't have registered in his eyes at all; having a guest prefect receive them when they came to offer incense was already showing face.
 
-Now Luo Yangming was a ringing real power figure in Wuzhou, so when Yi Haoran arrived at Dragon Mother Temple, once handing over name card, Abbot Wu Yuan welcomed out personally. After some exchange of pleasantries, Yi Haoran explained intention: saying Luo Yangming’s wife and concubine wanted to come to Dragon Mother Temple to offer incense on July 6th, hoping to arrange a quiet room in backyard in advance, ordering a table of vegetarian meal.
+But now Luo Yangming was a ringing, real-power figure in Wuzhou. So when Yi Haoran arrived at Dragon Mother Temple and handed over his name card, Abbot Wu Yuan personally came out to welcome him. After an exchange of pleasantries, Yi Haoran explained his purpose: Luo Yangming's wife and concubine wished to come to Dragon Mother Temple to offer incense on July 6th, and he hoped to reserve a quiet room in the backyard in advance and order a table of vegetarian dishes.
 
-Abbot Wu Yuan heard, white clean face revealed difficult expression.
+Upon hearing this, Abbot Wu Yuan's fair-skinned face took on a troubled expression.
 
-"What, have difficulty?" Yi Haoran chased asking.
+"Is there a difficulty?" Yi Haoran pressed.
 
-"Master Luo’s matter, small temple originally dare not reject, just this date not coincidental." Abbot Wu Yuan frowned, "Yesterday someone also came to book..."
+"Master Luo's business—naturally our humble temple dares not refuse. It's just that the timing is unfortunate." Abbot Wu Yuan frowned. "Someone else came yesterday to make a reservation..."
 
-"In your Dragon Mother Temple backyard, quiet rooms shouldn't be only one, right?"
+"Surely there's more than one quiet room in your backyard?"
 
-"That of course not only." Abbot Wu Yuan hurriedly said, "Just this guest background very big."
+"Of course there are several," Abbot Wu Yuan hurriedly said. "It's just that this guest has a very significant background."
 
-"Oh? Don't know which Master’s family?"
+"Oh? Which Master's household would that be?"
 
-"Not which Master’s family..." Abbot lowered voice saying, "Booked by Australian, is female dependent."
+"Not any Master's household..." The Abbot lowered his voice. "It was booked by the Australians—a female dependent."
 
-Yi Haoran thought in heart this must be Cai Lan! Qiuchan indeed capable! He smiled slightly, saying: "Abbot, my Master works right in Aftermath Bureau; True Australian in this Wuzhou is only Crefect Xie alone. And he has no female dependent accompanying to post. Female dependent you say, probably is that..." He said pointing to direction of temple gate, "...That one, right?"
+Yi Haoran thought to himself: *This must be Cai Lan! Qiuchan has done well!* He smiled slightly and said: "Abbot, my employer works right in the Aftermath Bureau. The only True Australian in Wuzhou is Prefect Xie. And he has no female dependent accompanying him here. This 'female dependent' you speak of is probably..." He pointed toward the temple gate, "...that one, correct?"
 
-Cai Lan assassinating at Dragon Mother Temple gate caused sensory in Wuzhou at that time. Later "losing chastity following thieves" became even more a news in Wuzhou. Added oil and vinegar by people, derived very unbearably. Whenever someone mentioned this matter, mostly was disdain.
+Cai Lan's assassination attempt at the Dragon Mother Temple gate had caused quite a sensation in Wuzhou at the time. Her subsequent "loss of chastity in following the thieves" had become even bigger news. People added oil and vinegar to the story, spinning it into something quite lurid. Whenever anyone mentioned the matter, it was mostly with disdain.
 
-Disdain was disdain, Cai Lan now was "True Hair's Woman"—discussing what end power holder's woman would have, common people were still clear. Therefore Abbot Wu Yuan spoke specifically lowering voice; Yi Haoran used "That one" to refer.
+Disdain aside, Cai Lan was now "the True Hair's woman"—and common people were still clear-eyed enough to understand what came of discussing a power holder's woman. Thus Abbot Wu Yuan spoke in a lowered voice, and Yi Haoran referred to her only as "that one."
 
 Abbot Wu Yuan nodded.
 
-"Since it is her then easy to handle." Yi Haoran said, "Speaking of it, this one has no title, neither wife nor concubine, neither slave nor maid, why must Abbot honor her so? Masters of this Wuzhou city knowing, wouldn't they sneer!"
+"Since it's her, then this is easy to handle," Yi Haoran said. "Speaking of it, this person has no title—neither wife nor concubine, neither slave nor maid. Why must the Abbot show her such honor? The Masters of Wuzhou city, if they knew, would surely sneer!"
 
-Wu Yuan was somewhat surprised: this speech was spoken so viciously. If changed to other person, he would hurry to pretend confusion to "send guest." But behind this Mr. Yi was "Aftermath Bureau’s" Master Luo—Number One Red Man under True Hair! Not to mention status was more noble than this Cai Lan, moreover his advisor publicly spoke such words...
+Wu Yuan was somewhat surprised. These words were spoken quite viciously. Had it been anyone else, he would have hurried to feign confusion and "see the guest out." But behind this Mr. Yi stood Master Luo of the "Aftermath Bureau"—the number one red-hot figure under the True Hair! Not to mention his status was more exalted than this Cai Lan's, yet his advisor had publicly spoken such words...
 
-He remembered again person coming to notify this time was not some important cadre under Australian, only a small clerk and Cai Lan’s "Accompanying Woman," nor requested security clearance. Visible this True Hair's favor for her had declined.
+He recalled that the person who had come to make the reservation was not some important cadre under the Australian, but only a minor clerk and Cai Lan's "accompanying woman." Nor had any security clearance been requested. Clearly, the True Hair's favor for her had waned.
 
-Wu Yuan was a person with exquisite heart, thoughts turning extremely fast, immediately smiled: "Since Master Luo’s dependents favor small temple so, small Daoist cannot decline either. Like this, how about settling on that quiet room at east end? As for this vegetarian meal..."
+Wu Yuan was a man of exquisite perception, his thoughts turning with extreme speed. He immediately smiled. "Since Master Luo's household so favors our humble temple, this poor Daoist cannot refuse. How about this—we'll arrange for the quiet room at the east end. As for the vegetarian meal..."
 
-"Abbot just handle as seeing fit, need not be frugal." Yi Haoran smiled, "Master Luo’s dependents are also people understanding reason, absolutely won't give difficulty to Abbot." Yi Haoran had been to Dragon Mother Temple backyard. Knew terrain inside: three main rooms were for Cai Lan them; quiet room at east end Wu Yuan mentioned was three wing rooms. Environment quiet and hidden, a good place for private talk.
+"The Abbot may handle it as he sees fit. There's no need to be frugal," Yi Haoran smiled. "Master Luo's family are reasonable people. They certainly won't make things difficult for the Abbot."
 
-"This is easy." Abbot Wu Yuan agreed fully, "Originally in summer heat, inner dependents coming to temple to offer incense are few. Sir saying so naturally need to handle with whole heart."
+Yi Haoran had visited Dragon Mother Temple's backyard before. He knew the layout: the three main rooms would be for Cai Lan's party, while the quiet room at the east end that Wu Yuan mentioned consisted of three wing rooms—quiet, hidden, an excellent place for a private conversation.
 
-Arriving at July 6th this day, weather sunny and hot with few clouds. Yi Haoran got up very early, finished washing quickly ate breakfast, then went to sedan chair shop on street calling two bamboo silk cool sedan chairs, carried to courtyard waiting.
+"That's easily arranged." Abbot Wu Yuan agreed fully. "In this summer heat, few ladies from prominent households come to the temple to offer incense. With Sir's instructions, we shall naturally attend to matters with our whole hearts."
 
-He was anxious in heart, fearing missing Cai Lan; although knowing time was still early, still looked at inner residence gate from time to time.
+When July 6th arrived, the weather was sunny and hot with few clouds. Yi Haoran rose very early, finished washing and ate breakfast quickly, then went to a sedan chair shop on the street and hired two bamboo-silk cool sedans, which he had carried to the courtyard to wait.
 
-This anxiety was seen by A-Chun. "Advisor," he joked, "I see you old man's thought of going to Dragon Mother Temple is bigger than Mistress and Concubine!"
+He was anxious at heart, fearing he might miss Cai Lan. Though he knew it was still early, he kept glancing toward the inner residence gate.
 
-Yi Haoran realized he lost composure, hurriedly defended: "Where, this weather hot, we go out earlier, road is cooler. If sun comes up, walking all way is both steaming and drying."
+A-Chun noticed his restlessness. "Advisor," he joked, "I think your eagerness to get to Dragon Mother Temple is greater than the Mistress and Concubine's!"
 
-"Master need not be anxious." A-Chun said, "Mistress and Concubine got up early, just now already sent breakfast, now probably combing and washing—probably taking quite some time. Mistress said, now our family counts as half a gentry household too, going out to worship god is big matter, can't be too sloppy."
+Yi Haoran realized he had lost his composure and quickly defended himself: "Hardly. The weather is hot—we should leave early when the road is still cool. Once the sun comes up, walking the whole way will be both steaming and scorching."
 
-As Australians advanced singing song in Guangdong, although Ding A-tao had quite some complaints about husband putting energy in Aftermath Bureau, yet gradually felt her status was "not ordinary."
+"Master need not be anxious," A-Chun said. "The Mistress and Concubine got up early. Breakfast was just sent in. They're probably washing up and doing their hair now—that'll take quite some time. The Mistress said that now our family counts as half a gentry household, and going out to worship the gods is a big occasion. It shouldn't be too shabby."
 
-Luo Yangming was one of "Head and Face Figures" in Wuzhou city right now; no matter how prominent the gentry family, even if head ran away, as long as property and family dependents remained in Wuzhou, during festivals they inevitably sent people to door sending a name card, a gift. This kind of respect was what Ding A-tao lived half a life never enjoying.
+As the Australians advanced through Guangdong singing their song of conquest, Ding A-tao—despite harboring many complaints about her husband devoting his energy to the Aftermath Bureau—had gradually come to feel that her status was "not ordinary."
 
-Going out to offer incense was almost the only opportunity for women at that time to appear in public openly, also opportunity for big household women to show off family background, status and wealth. Ding A-tao was from small door small household background; at best time was just rice shop boss's wife, not yet counting as outstanding among Wuzhou city merchants, so dared not think about this kind of thing; going out to burn incense was all quiet.
+Luo Yangming was now one of the "heads and faces" of Wuzhou city. No matter how prominent a gentry family had been, even if the head of house had fled, as long as property and dependents remained in Wuzhou, they would inevitably send someone to the door with a name card and a gift during festival times. This kind of respect was something Ding A-tao had never experienced in all her life.
 
-So this time she had heart to take this opportunity to show off a bit. Even A-Chun today also changed into a body of cyan cloth short shirt, even hair net changed to brand new.
+Going out to offer incense was almost the only opportunity for women of that era to appear openly in public. It was also a chance for women of wealthy households to show off their family background, status, and wealth. Ding A-tao came from a humble background. At best, she had been the wife of a rice shop owner—not particularly distinguished even among Wuzhou's merchant class. She had never dared dream of such things. When she went out to burn incense, it was always quietly done.
 
-Yi Haoran waited for half a shichen (hour), then saw two people come out, from head to foot all newly purchased; not only materials exquisite, patterns also belonged to gorgeous. Compared to plain clothes and light makeup usually, simply like two different people.
+This time, she had set her heart on taking the opportunity to make a bit of a show. Even A-Chun today had changed into a new cyan cloth short shirt, and even his hair net was brand new.
 
-A-Chun was even more stunned, blurting out:
+Yi Haoran waited for half a *shichen* before seeing two women emerge, dressed from head to toe in newly purchased clothes. Not only were the materials exquisite, but the patterns were gorgeous as well. Compared to their usual plain clothes and light makeup, they looked like entirely different people.
 
-"Mistress, you suddenly became so beautiful!"
+A-Chun was even more stunned, blurting out: "Mistress, you've suddenly become so beautiful!"
 
-Ding A-tao after all from small household background, praised by this child, instantly cheeks flew red, saying: "Since wanting to offer incense, inevitably have to do some scene."
+Ding A-tao, after all, came from a humble background. Praised by this boy, her cheeks immediately flushed red. "Since we're going to offer incense, we naturally have to make a proper show of it," she said.
 
-Yi Haoran hurriedly joined in fun: "Mistress says right! Now Master status noble, Mistress going out can't be too shabby; sweeping Master’s face would not be beautiful."
+Yi Haoran quickly joined in: "The Mistress speaks rightly! Now that the Master's status is elevated, the Mistress going out can't be too shabby. It wouldn't do to diminish the Master's standing."
 
-Ding A-tao felt this Advisor Yi not only handled affairs capably, speaking was also pleasant to hear, couldn't help smiling slightly, saying: "Today have to trouble Sir."
+Ding A-tao found that this Advisor Yi not only handled affairs capably but spoke pleasantly too. She couldn't help smiling slightly. "Today we must trouble Sir."
 
-Tone was both slow and unhurried, revealing an air of calm and composed of gentry mistress, different from usual too.
+Her tone was both slow and composed, revealing an air of calm dignity befitting a gentry mistress—quite different from her usual manner as well.
 
-Yi Haoran busy said: "Mistress speaks heavily." Saying he bowed: "Sedan chairs already waiting in yard, please Mistress and Concubine get on sedan."
+Yi Haoran hastened to say: "The Mistress speaks too seriously." He bowed. "The sedan chairs are already waiting in the yard. Please, Mistress and Concubine, get in."
 
-Two people got on sedan chairs, Yi Haoran led way in front, A-Chun followed behind. Speaking of it this Luo family back residence was quite shabby, besides a rough work old maid, Ding A-tao had no other slave maids beside her; many things in inner residence were done by her and Wen Yun themselves. So this procession going out to burn incense could only be simplified. Only called a partner in rice shop, carrying load of offerings to follow.
+The two women mounted the sedans. Yi Haoran led the way in front while A-Chun followed behind. In truth, the Luo family's back residence was quite modest. Besides one rough-work old maid, Ding A-tao had no other slave girls at her side. Many things in the inner residence were done by herself and Wen Yun. Thus this procession to burn incense had to be simplified. They had only called a partner from the rice shop to carry a load of offerings and follow along.
 
-Group went out of house gate, coming all the way along Gui River bank. Ding A-tao went out extremely rarely usually; counting up in a year only seven or eight times. After Australians captured Wuzhou, because she worried current situation unstable, going out would attract disaster, even more didn't step out of door. Husband said Australians had talent of governance; she wanted to take a good look at this new scene of Wuzhou.
+The group left by the house gate and made their way along the Gui River bank. Ding A-tao very rarely went out—counting up the whole year, perhaps seven or eight times at most. After the Australians took Wuzhou, worried that the current situation was unstable and that going out might invite disaster, she had ventured outside even less. But her husband said the Australians had the talent for governance. She wanted to take a good look at this new appearance of Wuzhou.
 
-Through fine bamboo curtain hanging on cool sedan window, saw outside streets flat, tidy and clean, indeed different from past days. Pedestrians on street not many, steps hurried, each seeking livelihood, no abnormality. However, walking this way, didn't see beggars and refugees—originally everywhere on road, now trace completely gone.
+Through the fine bamboo curtain hanging over the cool sedan's window, she saw that the streets outside were flat, tidy, and clean—indeed different from former days. There weren't many pedestrians, and those present walked with hurried steps, each seeking their own livelihood. Nothing seemed abnormal. Yet walking this way, she saw no beggars or refugees—once visible everywhere, they had now vanished without a trace.
 
-Looks like Australians indeed had some ability. Ding A-tao thought, if they could split earth to be King in Two Guangs, own husband following them, inevitably would count as gentry class figure. If really like husband said, Australians wanted to chase deer in Central Plains, uniting under heaven, then Luo Yangming would be merit subject following dragon, she inevitably would have a Mandated Title...
+*It seems the Australians do have some ability,* Ding A-tao thought. *If they can carve out a kingdom in the Two Guangs, my husband following them will surely count as a gentry figure. And if it's really as my husband says—that the Australians intend to chase the deer across the Central Plains and unite all under heaven—then Luo Yangming will be a meritorious subject who followed the dragon from the beginning. I'll surely receive a mandated title...*
 
-However worry quickly shrouded in her heart again; now rice shop business not good, merchants in city all said business hard to do, market desolate. Walking all the way she indeed saw although shops all opened doors, all were a half dead appearance; neither traveling merchants coming and going, nor street running gentlemen attracting business everywhere matching deals...
+But worry quickly clouded her heart again. Right now, the rice shop business was poor. All the merchants in the city complained that business was hard and the markets were desolate. Walking along, she indeed saw that though all the shops had their doors open, they all wore a half-dead appearance. There were no traveling merchants coming and going, no street runners everywhere matching deals...
 
-Thinking again Luo Yangming almost didn't come home these few months, her mood dropped again. All said Dragon Mother was most efficacious; only begging her to bless Australians fighting more victorious battles, Luo Yangming could also attach to steed tail thousand *li*, earning a good future—finally, absolutely don't deny her this wife of chaff and bran after getting rich and noble...
+Thinking again that Luo Yangming had barely been home these past few months, her mood sank once more. Everyone said the Dragon Mother was most efficacious. She could only pray that the Dragon Mother would bless the Australians to win more battles, so that Luo Yangming could attach himself to their horse's tail and gallop a thousand *li*, earning a fine future. And finally—absolutely—that he would not cast aside his wife of shared hardships after attaining wealth and honor...
 
-She thought wildly all the way, didn't know how long passed, suddenly sedan chair stopped. Came Yi Haoran’s voice: "Mistress, Dragon Mother Temple arrived."
+Her thoughts wandered wildly the whole way. She didn't know how long had passed when suddenly the sedan chair stopped. Yi Haoran's voice came: "Mistress, Dragon Mother Temple has arrived."
 
-Ding A-tao got off sedan, seeing already before Dragon Mother Temple steps. Although living in Wuzhou for a few years, times she went to Dragon Mother Temple were countable on fingers. Instead Wen Yun often went—her brother was foreman of porters on dock, also person eating water rice, belief in Dragon Mother was much more reverent than ordinary people.
+Ding A-tao stepped down from the sedan and saw they were already at the foot of Dragon Mother Temple's steps. Though she had lived in Wuzhou for several years, the times she had visited Dragon Mother Temple could be counted on her fingers. Wen Yun, on the other hand, came often—her brother was a foreman among the dock porters, a man who earned his living from the water. His reverence for the Dragon Mother was far deeper than ordinary people's.
 
-Yi Haoran sent away sedan chairs, leading way in front. Ascending steps was a stone archway, right in middle was "Imperially Bestowed Lady Yongning" several big characters; Ding A-tao heard people say, this was bestowed by Taizu of this Dynasty.
+Yi Haoran sent away the sedan chairs and led the way. Ascending the steps, they passed through a stone archway. Right in the center, in large characters, was inscribed: "Imperially Bestowed Lady Yongning." Ding A-tao had heard people say this title was bestowed by Taizu, the founder of this Dynasty.
 
-Passing archway, was Main Hall. Weather hot, people coming to Dragon Mother Temple to offer incense not many. However once Ding A-tao appeared, immediately attracted quite a few sight lines, but quite a few confused looks. Ding A-tao suddenly remembered, she was dressed as rich family mistress, yet beside her no slave girls and old maids crowding around.
+Passing through the archway brought them to the Main Hall. The weather was hot, and not many people had come to Dragon Mother Temple to offer incense. Yet the moment Ding A-tao appeared, she immediately attracted quite a few gazes—many of them confused. Ding A-tao suddenly realized: she was dressed as a wealthy household's mistress, yet she had no slave girls or old maids crowding around her.
 
 ---
 **Next Update:** Volume 7 - Guangzhou Governance Part 481

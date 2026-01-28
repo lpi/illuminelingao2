@@ -2,11 +2,11 @@
 
 "Director Zhou," Huang Chao summoned the Lianzhou Prefecture Office director. "Arrange a boat immediately and assign a squad of National Army. Tomorrow at dawn, escort Bi Da to Yangshan to assume her post."
 
-Zhou Liangchen was secretly astonished. He had heard the day before that the Australians had suffered a defeat in Yangshan—the County Magistrate had nearly lost his life. Rushing a new official to take up the post was expected. But at this critical juncture, Elder Huang was appointing a *woman*—and a Li aborigine at that! The Australians certainly did not limit themselves when it came to personnel!
+Zhou Liangchen was secretly astonished. He had heard the day before that the Australians had suffered a defeat in Yangshan—the County Magistrate had nearly lost his life. Rushing a new official to take up the post was expected. But at this critical juncture, Elder Huang was appointing a *woman*—and a Li aborigine at that! The Australians certainly didn't limit themselves when it came to personnel!
 
 Though inwardly skeptical, Zhou Liangchen was shrewd enough. Bi Da might be a woman and a Li tribesperson, but she was an "old naturalized subject" the Elders had brought from Qiongzhou—on the same level as Wang Chuyi or Fu Debang. Her standing in the Elders' eyes was naturally not something a newcomer like himself could compare to.
 
-So he immediately positioned himself appropriately: "A boat is easy—there's a supply convoy going to Yangshan tomorrow. County Magistrate Bi can travel with the convoy. As for the escort, do they stay on or return after delivery?"
+So he immediately positioned himself appropriately. "A boat is easy—there's a supply convoy going to Yangshan tomorrow. County Magistrate Bi can travel with the convoy. As for the escort, do they stay on or return after delivery?"
 
 "Return after delivery, of course. What I'm short of right now is soldiers..." Huang Chao clutched his hair. Bi Da might have her assignment, but she was a commander without troops—he had nothing to give her.
 
@@ -18,19 +18,19 @@ This reminded Huang Chao: Zhou Liangchen did have about ten retainers—brought 
 
 ---
 
-Early the next morning, Bi Da set out with her four "guards." Her boat was part of a logistics supply convoy. The convoy captain had offered her a seat on the steam tug—noisy, but armored and armed, far safer. Bi Da declined. The engine noise made it hard for her to think; her head ached. The smell of coal smoke and lubricating oil made her nauseous. Nearly five years with the Australians, and she still could not get used to these machines.
+Early the next morning, Bi Da set out with her four "guards." Her boat was part of a logistics supply convoy. The convoy captain had offered her a seat on the steam tug—noisy, but armored and armed, far safer. Bi Da declined. The engine noise made it hard for her to think; her head ached. The smell of coal smoke and lubricating oil made her nauseous. Nearly five years with the Australians, and she still couldn't get used to these machines.
 
-She chose one of the towed cargo boats—apparently loaded with grain. A makeshift berth had been set up for her in the hold; she could have rested and slept there. But Bi Da did not like the cramped, stifling cabin. She preferred to sit in the "watchtower" at the stern—a steel shelter so small it could hold only two people, but able to stop enemy musket balls and arrows. The view was excellent.
+She chose one of the towed cargo boats—apparently loaded with grain. A makeshift berth had been set up for her in the hold; she could have rested and slept there. But Bi Da didn't like the cramped, stifling cabin. She preferred to sit in the "watchtower" at the stern—a steel shelter so small it could hold only two people, but able to stop enemy musket balls and arrows. The view was excellent.
 
 The convoy moved downriver with the rumble of the tug, the blue Pole Star flag fluttering from every stern. Mountains stretched endlessly on both banks—peak after peak, as far as the eye could see. The slopes were lush with forest; in the valleys, green paddies and villages dotted the landscape. The North River wound through these mountains and valleys.
 
-In July, northern Guangdong was blazing hot. Every surface in the steel watchtower was scalding to the touch. But Bi Da did not mind. She had endured far worse. Once, to recruit "raw Li" in the depths of Limu Mountain and the Taiwan aborigines, she had followed work teams into impenetrable primeval jungle—tangled vines underfoot, impassable thickets, sun filtering through only in flecks. The jungle was utterly airless, so hot you could barely breathe. Now, though the steel overhead was scorching, the watchtower was open on all sides, and river breezes blew through, refreshing body and mind.
+In July, northern Guangdong was blazing hot. Every surface in the steel watchtower was scalding to the touch. But Bi Da didn't mind. She had endured far worse. Once, to recruit "raw Li" in the depths of Limu Mountain and the Taiwan aborigines, she had followed work teams into impenetrable primeval jungle—tangled vines underfoot, impassable thickets, sun filtering through only in flecks. The jungle was utterly airless, so hot you could barely breathe. Now, though the steel overhead was scorching, the watchtower was open on all sides, and river breezes blew through, refreshing body and mind.
 
 The river scenery stretched to the horizon; even on a scorching summer day, it lifted the spirits. But Bi Da's feelings were complicated. Though not exactly gloomy, something was nagging at her.
 
-The source of her disquiet was this "appointment." She had never wanted to "hold office"—much less shoulder such a heavy burden. Tasks the Elders gave her she always completed gladly. But that was limited to simple work. Whether chatting with people, mobilizing the masses—whatever she was asked to do, work was a pleasure for her, a way to forget her homeland and pass the time. But she had never wanted to be "in charge"—not even as a "team leader." Alone, she felt she feared nothing; right or wrong, it was her own affair. But once you held a position, it was no longer just your concern—it was the whole team's, the whole department's. You could only succeed, never fail.
+The source of her disquiet was this "appointment." She had never wanted to "hold office"—much less shoulder such a heavy burden. Tasks the Elders gave her she always completed gladly. But that was limited to simple work. Whether chatting with people or mobilizing the masses—whatever she was asked to do, work was a pleasure for her, a way to forget her homeland and pass the time. But she had never wanted to be "in charge"—not even as a "team leader." Alone, she felt she feared nothing; right or wrong, it was her own affair. But once you held a position, it was no longer just your concern—it was the whole team's, the whole department's. You could only succeed, never fail.
 
-Years ago, when she attended basic cadre training, Instructor Dong Weiwei had been puzzled by her resistance to promotion, her refusal of responsible positions, her insistence on remaining a rank-and-file staffer. After much hesitation, Bi Da said:
+Years ago, when she attended basic cadre training, Instructor Dong Weiwei had been puzzled by her resistance to promotion, her refusal of responsible positions, her insistence on remaining a rank-and-file staffer. After much hesitation, Bi Da had said:
 
 "The Elders have said more than once: with great power comes great responsibility. I cannot bear that responsibility."
 
@@ -64,13 +64,13 @@ The convoy reached the Yangshan County wharf on the second day. The dock was hea
 
 "Yes, yes—I am." Luo Yiming's jaw nearly hit the floor. *Has Director Huang lost his mind, or could he simply not find anyone?* Sending a young girl to be County Magistrate?! True, the Council valued promoting women cadres, but women rarely held important roles in the Council's bureaucracy. Apart from certain professional departments, female cadres were mostly low-ranking. There had never been a woman who held a county magistrate's position—not even among the female Elders of the Council.
 
-With Yangshan's situation hanging by a thread, Director Huang was pulling this stunt! Sweat beaded on Luo Yiming's forehead. He could not help muttering: "Ridiculous!"
+With Yangshan's situation hanging by a thread, Director Huang was pulling this stunt! Sweat beaded on Luo Yiming's forehead. He couldn't help muttering: "Ridiculous!"
 
-He said it in his home dialect; Bi Da naturally did not understand. But the "disapproval" written all over his face told her clearly: she was not the person he had been waiting for.
+He said it in his home dialect; Bi Da naturally didn't understand. But the "disapproval" written all over his face told her clearly: she wasn't the person he had been waiting for.
 
 "Let's go." Bi Da said. "I imagine there's a lot of work waiting for us."
 
-However dissatisfied, Luo Yiming could not change the situation on the spot. And there was no time to voice objections. Since that was the case, he would just have to shoulder more of the work himself and prop things up for now.
+However dissatisfied, Luo Yiming couldn't change the situation on the spot. And there was no time to voice objections. Since that was the case, he would just have to shoulder more of the work himself and prop things up for now.
 
 "I've arranged accommodation. You've had a long trip—take a break, freshen up. After lunch, I'll call a meeting of all county cadres."
 

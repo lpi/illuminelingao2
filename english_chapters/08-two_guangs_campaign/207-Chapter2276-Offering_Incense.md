@@ -1,82 +1,82 @@
 # Chapter 2276: Offering Incense
 
-Yi Haoran’s guess was indeed not wrong; shortly after Cai Lan moved to the Three Headquarters, she was "accepted for use" by Xie Erren. A little woman like her with no one to turn to, far away in a strange land amidst military chaos, facing Xie Erren’s tenderness, she actually had little room for choice. Besides death, she could only accept with half refusal and half submission. Although Xie Erren was a "Hair Thief," he was after all a "Marquis of a Hundred Li" of Wuzhou. Cai Lan had been in Wuzhou for a long time; she also knew more or less that Australians were not ordinary mud-legged rebels, but overseas giant bandits "invading"; could more or less count as a hero of a region. The servant women around her said: Master Xie was a "Senator" of Great Song, status incomparably noble, simply not comparable to her own fiance, a poor scholar.
+Yi Haoran's guess proved correct. Shortly after Cai Lan moved to the Three Headquarters, she had been "taken for use" by Xie Erren. A young woman like her—with no one to turn to, stranded in a strange land amid military chaos, facing Xie Erren's tenderness—actually had little room for choice. Besides death, she could only accept with half-refusal and half-submission. Though Xie Erren was a "Hair Thief," he was after all the "Marquis of a Hundred Li" of Wuzhou. Having been in Wuzhou for some time, Cai Lan had come to understand that the Australians were no ordinary mud-legged rebels, but overseas giant bandits "invading" the realm—they could more or less be counted as regional powers. The servant women around her said that Master Xie was a "Senator" of Great Song, with incomparably noble status—simply not comparable to her own fiance, a poor scholar.
 
-Since she became "Senator Xie’s woman," people around her treated her with added courtesy; not to mention food and drink were honored and exalted, there were also slave maids serving her side—said to be all from Wuzhou local big households, accustomed to serving people, most understanding of human intentions. Truly so-called once lips slightly dry, someone served hot and cold suitable fragrant tea; once throat slightly sounded, spittoon was already presented.
+Since she had become "Senator Xie's woman," everyone around her treated her with added courtesy. Not only were her food and drink of the highest quality, but slave maids attended her side—supposedly all from Wuzhou's prominent households, accustomed to serving and most attentive to every need. Truly, the moment her lips grew slightly dry, someone would serve tea at the perfect temperature; at the slightest sound from her throat, a spittoon would already be presented.
 
-When she was a girl at home, let alone someone serving, she had to cook in kitchen herself, work hard at housework, serving father and brothers; where had she lived such days of clothes coming to hand and rice coming to mouth! Let alone so meticulous and thoughtful. Saying she was not moved by it, that would be fake.
+When she had been a girl at home, far from having anyone to serve her, she had to cook in the kitchen herself, toil at housework, and wait upon her father and brothers. When had she ever lived such days of having clothes handed to her and rice brought to her mouth? Let alone with such meticulous attention. To say she was not moved by it would be a lie.
 
-Although words were so, the two words "Loss of Body" and "Loss of Chastity" were like tight yokes, locking firmly on her heart, making it hard for her to let go; life of brocade clothes and jade food also lost color.
+Yet even so, the words "loss of body" and "loss of chastity" hung like a tight yoke around her heart, making it impossible for her to let go. Even a life of brocade clothes and jade food lost its color.
 
-Whenever she sat quietly alone, she would seem to see her father’s dried thin and serious face, seeming to curse her: "Losing chastity to serve thieves, you are a daughter of a Confucian scholar, from a scholar line, how doing such shameless matter!"
+Whenever she sat quietly alone, she would seem to see her father's gaunt and stern face, as if cursing her: "Losing chastity to serve thieves—you are a daughter of a Confucian scholar, from a scholarly line! How could you do such a shameless thing!"
 
-Whenever thinking here, she would tremble for a while; huge mental pressure made her suffocate. Once thinking people behind her back would discuss her "frivolous," "lost chastity," "unchaste," she felt someone was ruthlessly whipping her. Since childhood father told her "Biographies of Exemplary Women," "Internal Training," "Admonitions for Women"; at this moment, those words in books she once read were like knives, constantly stirring her heart, making her unable to live in peace.
+Whenever her thoughts reached this point, she would tremble for a while. The enormous mental pressure suffocated her. Once she imagined people discussing behind her back—calling her "frivolous," "unchaste," "a fallen woman"—she felt as though someone was ruthlessly whipping her. The *Biographies of Exemplary Women*, *Inner Training*, *Admonitions for Women*—all the texts her father had taught her since childhood—now those words from the books she had once read became like knives, constantly stirring her heart, leaving her no peace.
 
-At night sometimes she would dream of her fiance—actually she wasn't familiar with this man who was originally to be her husband. They were engaged since childhood, but never met. It was only last year when famine caused civil uprising in hometown, the whole family fled to provincial capital—parents old and strength declining, living precariously; remembering back then there was such a marriage, so wrote a letter, asking Xing Chenghuan to send people to pick her up to complete marriage, so she could have reliance for life.
+At night, she sometimes dreamed of her fiance—though in truth, she had not been familiar with this man who was supposed to have been her husband. They had been engaged since childhood but never met. It was only last year, when famine sparked civil uprising in their hometown and the whole family fled to the provincial capital—her parents old and declining, their lives precarious—that she remembered the old engagement. They wrote a letter asking Xing Chenghuan to send people to escort her so they could complete the marriage and give her something to rely on.
 
-She traveling thousands of *li* to get to Wuzhou, actually only saw fiance three or four times. Truth to tell, she was even somewhat blurry about Xing Chenghuan’s appearance. So in dreams, the fiance she saw was always a blurry shadow. Weeping silently alone, then suddenly rushing up madly to choke her neck, roaring "Why didn't you die!"
+She had traveled thousands of *li* to reach Wuzhou, yet she had only seen her fiance three or four times. In truth, she was even somewhat hazy about Xing Chenghuan's appearance. So in her dreams, the fiance she saw was always a blurry shadow—weeping silently alone, then suddenly rushing at her in a frenzy, choking her neck, roaring: "Why didn't you die!"
 
-Cai Lan often woke up screaming from nightmares, spending long nights in fear and guilt. This was also why she begged Xie Erren to find an accompanying woman; at least on days Xie Erren didn't come to stay overnight, there could be someone accompanying her to pass long nights.
+Cai Lan often woke screaming from these nightmares, spending long nights in fear and guilt. This was also why she had begged Xie Erren to find her a companion. At least on nights when Xie Erren didn't come to stay, there could be someone beside her to help her through the long hours.
 
-Speaking of it, although Xie Erren used up "small intentions" to seduce her, after getting hands on her, Cai Lan actually couldn't feel much of this man's favor. Although under his wings she had no worry about food and clothing, could be called brocade clothes and jade food. However, days Xie Erren came to stay in her room were not many; in a week just coming once or twice only.
+Truth be told, although Xie Erren had expended considerable "small intentions" to seduce her, after obtaining her, Cai Lan could not really feel much of his favor. Though under his protection she wanted for nothing and could be said to live amid brocade clothes and jade food, the nights Xie Erren came to stay in her room were few—only once or twice a week.
 
-In this Hair thief residence, she was neither wife nor concubine, not even counted as a maidservant. This Senator Xie also never talked much about future arrangements with her; Cai Lan was like a lost traveler, back road cut off, front road vast. Couldn't find any direction, nor knew where to go.
+In this Hair thief's residence, she was neither wife nor concubine, not even counted as a maidservant. This Senator Xie never discussed future arrangements with her. Cai Lan was like a lost traveler whose path behind had been severed and whose path ahead stretched into a formless haze. She could find no direction and had no idea where to go.
 
-This day she listened to Qiuchan’s words, feeling staying bored in Three Headquarters like this wasn't a thing either. Just painting couldn't dispel much sorrow and depression, instead making own makeup dim; better simply go out to walk and scatter heart, worshipping Dragon Mother, begging her to bless peace, escaping this sea of bitterness early.
+This day, listening to Qiuchan's words, she felt that staying bored in the Three Headquarters like this was no solution. Painting alone could not dispel much of her sorrow and gloom; it only left her appearance wan and dispirited. Better to simply go out for a walk to clear her mind, to worship the Dragon Mother and beg for blessings of peace—perhaps to escape this sea of bitterness sooner.
 
-Her hometown didn't have such a deity as Dragon Mother. But she heard people say early on that Wuzhou's Dragon Mother Temple was most efficacious. Immediately called people to report to Senator Xie, wanting to go to Gui River's Dragon Mother Temple to offer incense.
+Her hometown had no deity such as Dragon Mother. But she had heard long ago that Wuzhou's Dragon Mother Temple was most efficacious. She immediately had someone report to Senator Xie that she wished to visit the Gui River's Dragon Mother Temple to offer incense.
 
-After Xie Erren pushed down Cai Lan, he greatly satisfied his conquest desire and vanity; however, he actually had not much love for Cai Lan. He didn't like this kind of traditional flavor full woman; to tell truth he didn't crave Cai Lan’s body either—according to General Office of Senate's maid selection criteria, Cai Lan could only be rated C grade. Plus since West Route Army advanced towards Guangxi, Wuzhou as transportation hub, work was heavier day by day. Not only to undertake Wuzhou's recovery and administrative governance, but also to do well a series of material preparations for Guangxi advance.
+After Xie Erren had claimed Cai Lan, he had greatly satisfied his desire for conquest and his vanity. However, he did not actually have much love for her. He did not care for this kind of woman steeped in traditional sensibilities. To tell the truth, he did not particularly crave Cai Lan's body either—according to the Senate's General Office standards for selecting maids, Cai Lan would rate only C grade. Moreover, since the West Route Army had advanced toward Guangxi, Wuzhou had become a transportation hub, and his workload had grown heavier by the day. Not only did he have to oversee Wuzhou's recovery and administrative governance, but he also had to manage a whole series of material preparations for the Guangxi advance.
 
-Although because of this preparation work, materials and manpower Planning Court injected into Wuzhou increased drastically, pressure was even greater than past. Xie Erren just reviewing reports and having meetings every day had to be busy until nine or ten o'clock; where still had interest to specially go to woman's place to stay overnight. Sometimes dealing with matters in Three Headquarters meeting, then stayed overnight in Cai Lan’s yard.
+Though the Planning Court had dramatically increased the materials and manpower flowing into Wuzhou for these preparations, the pressure was even greater than before. Just reviewing reports and attending meetings kept Xie Erren busy until nine or ten o'clock every night. Where would he find the interest to specially visit a woman's quarters? Sometimes, when dealing with matters in the Three Headquarters meeting rooms ran late, he would simply stay overnight in Cai Lan's courtyard.
 
-He felt he treated Cai Lan very well, at least materially very well. As for spiritual communication, to tell truth Xie Erren never thought about it. Anyway in future Xie family's maids would have a position for her.
+He felt he treated Cai Lan very well—materially, at least, very well. As for spiritual communication, truth be told, Xie Erren had never thought about it. In any case, there would be a position for her among the Xie family's maids in the future.
 
-Now hearing Cai Lan wanted to go offer incense, Xie Erren didn't hesitate, approved immediately. Just instructed Guard Captain to send a few people to follow for protection—there was outside city after all.
+Now, hearing that Cai Lan wanted to offer incense, Xie Erren did not hesitate and approved immediately. He simply instructed the Guard Captain to send a few people to follow for protection—after all, it was outside the city.
 
-Qiuchan herself didn't expect matter to be so smooth; immediately taking chance of returning home, secretly informed Yi Haoran of the date of offering incense. Yi Haoran getting news was greatly happy in heart. Immediately stepped ahead to go to Dragon Mother Temple to survey terrain first.
+Qiuchan herself had not expected the matter to go so smoothly. Taking advantage of her return home, she secretly informed Yi Haoran of the date for offering incense. Yi Haoran was delighted. He immediately went ahead to Dragon Mother Temple to survey the terrain.
 
-Women offering incense, according to custom all had men accompanying. Moreover Cai Lan was Xie Erren’s woman—although having no name no title, people below dared not neglect either; finding chance to be alone with her was very hard.
+When women offered incense, custom dictated that men accompany them. Moreover, Cai Lan was Xie Erren's woman—though she had no title or status, those below dared not neglect her either. Finding a chance to be alone with her would be very difficult.
 
-Yi Haoran pondered again and again; regardless of Cai Lan’s own will, she arriving at Dragon Mother Temple would inevitably be "Guest of Honor"; Dragon Mother Temple Abbot mostly would come out to welcome, inevitably inviting her to quiet room in backyard to "use tea" and "rest." Under general circumstances, accompanying male servants and guards wouldn't follow into the room; only person able to follow in lay with Qiuchan—himself wanting to see her, only had this time.
+Yi Haoran pondered the matter repeatedly. Regardless of Cai Lan's own preferences, upon arriving at Dragon Mother Temple she would inevitably be treated as "Guest of Honor." The Temple Abbot would most likely come out to welcome her and would certainly invite her to a quiet room in the backyard to "take tea" and "rest." Under ordinary circumstances, the accompanying male servants and guards would not follow her into the room. The only person who could accompany her inside was Qiuchan. If he himself wanted to see her, this was the only opportunity.
 
-Himself just had to hide in quiet room waiting before they arrived. But there were several quiet rooms for entertaining honored guests in Dragon Mother Temple backyard; he had no ability of foreknowledge, impossible to know in advance. And himself wanting to enter backyard casually wasn't an easy thing either.
+He would simply need to hide in the quiet room before they arrived. But there were several quiet rooms for entertaining honored guests in Dragon Mother Temple's backyard. He had no gift of foresight and could not know in advance which room they would use. And entering the backyard freely was no easy matter.
 
-Using forceful methods, nothing more than letting Song Ming’s people move out, kidnapping Abbot first, forcing him to cooperate. But doing so had great risk; in case Abbot didn't comply or reported afterwards, himself would be completely exposed.
+Using force—having Song Ming's people act, first kidnapping the Abbot and forcing him to cooperate—carried great risk. If the Abbot refused to comply or reported them afterward, Yi Haoran would be completely exposed.
 
-Yi Haoran thought and thought, suddenly thought of an idea. He asked Jiang Qiuchan: "Which month which day is Cai Lan going to offer incense roughly?"
+He thought and thought, then suddenly hit upon an idea. He asked Jiang Qiuchan: "What date will Cai Lan go to offer incense?"
 
-"According to Australian New Calendar, it is July 6th." Qiuchan said, "Weather hot, so plan to go out from door early morning, return to Three Headquarters before noon."
+"According to the Australian New Calendar, it's July 6th," Qiuchan said. "The weather is hot, so the plan is to leave early in the morning and return to the Three Headquarters before noon."
 
-"You wait for my news, perhaps need to delay a few days. Is it convenient?"
+"Wait for my word—we may need to delay a few days. Is that convenient?"
 
-"Nothing inconvenient." Jiang Qiuchan said, "Actually she has no matters, any day is okay. Just Zhao Fengtian told us, going out needs to inform two days in advance, for him to arrange guards and followers."
+"It's no inconvenience," Jiang Qiuchan said. "She has nothing to do anyway; any day works. But Zhao Fengtian told us that going out requires two days' advance notice, so he can arrange the guards and attendants."
 
-Yi Haoran did homework for a few days first. While eating dinner this evening, intentionally talked about anecdotes of Dragon Mother Temple.
+Yi Haoran spent a few days doing his homework. During dinner one evening, he deliberately brought up anecdotes about Dragon Mother Temple.
 
-He wasn't a local, but as a scholar, inquiring about news was quite easy. He also specially went to the newly established not long ago "Wuzhou Library"—which was the original Wuzhou Prefecture School; Xie Erren gathered books collected from various yamens here, free for locals to come to library to read—specially looked through Prefecture Annals, County Annals, reading origins and anecdotes of Dragon Mother Temple until fluent.
+Though he was not a local, as a scholar, gathering information was quite easy. He had even specially visited the newly established "Wuzhou Library"—which had been the old Wuzhou Prefecture School. Xie Erren had gathered books collected from various yamens here, making them freely available for locals to read. Yi Haoran had specifically looked through the Prefecture Annals and County Annals, reading the origins and stories of Dragon Mother Temple until he knew them fluently.
 
-These days Luo Yangming was often not at home for dinner; small households didn't have too much men women great defense either. Ding A-tao, Wen Yun and Li Wensheng and others usually ate at one table. On dinner table inevitably had some casual chat, talking about marketplace news, discussing strange hearings and anecdotes. Yi Haoran took opportunity to talk about Dragon Mother Temple anecdotes.
+These days, Luo Yangming was often away at dinner. In a small household, there was not much strict separation between men and women either. Ding A-tao, Wen Yun, Li Wensheng, and the others usually ate at one table. Over dinner, there was inevitably casual conversation—marketplace news, strange tales and rumors. Yi Haoran took the opportunity to discuss Dragon Mother Temple stories.
 
-People in rice shop besides Wen Yun were all outsiders, knowing very little about Dragon Mother Temple. Yi Haoran's explanation attracted everyone's interest.
+Everyone in the rice shop except Wen Yun was an outsider who knew very little about Dragon Mother Temple. Yi Haoran's explanations captured their interest.
 
-Yi Haoran talked greatly about spiritual signs and miracles of Dragon Mother Temple for a few days in a row, gradually provoking Ding A-tao’s thoughts.
+Yi Haoran held forth about the spiritual signs and miracles of Dragon Mother Temple for several days running, gradually stirring Ding A-tao's thoughts.
 
-After Wuzhou liberation, Ding A-tao felt everything not smooth instead. Business stagnated aside, Luo Yangming was not at home all day long again, like changed into another person, filling her heart with panic and unease. She both worried whether this rice shop business could continue, whole family wandering on street like before, separating in life and parting in death; also afraid husband's "busy" was an excuse—perhaps having other women outside.
+After Wuzhou's liberation, Ding A-tao felt everything had gone wrong instead. Business had stalled, and Luo Yangming was never home anymore—it was as if he had become a different person. Her heart was filled with panic and unease. She worried whether the rice shop business could continue, whether the whole family might end up wandering the streets as before, separated in life and parted in death. She also feared that her husband's "busyness" was merely an excuse—perhaps he had other women outside.
 
-However as a daughter of scholar family, she dared not ask much, nor could question. These were all matters losing decency. Getting anxious and annoyed then took anger out on Wen Yun; afterwards inevitably regretted herself lacking generosity.
+Yet as a daughter of a scholarly family, she dared not ask too many questions or make accusations. Such behavior would be beneath her dignity. When anxiety and frustration overwhelmed her, she took her anger out on Wen Yun, then inevitably regretted her own lack of generosity.
 
-Now she was instigated by Yi Haoran intentionally or unintentionally, feeling since Dragon Mother Temple was so efficacious, why not go offer incense and pray, maybe would be efficacious.
+Now, stirred by Yi Haoran's deliberate suggestions, she thought that since Dragon Mother Temple was so efficacious, why not go and offer incense to pray? Perhaps it would indeed prove effective.
 
-Wen Yun was originally a young girl from poor family, lively and active since childhood. Since marrying Luo Yangming as concubine, although Mistress treated her quite well, rules were set everywhere for her, control very strict, thus rarely went out too, often feeling bored. Wanting to go to Dragon Mother Temple to offer incense she was naturally willing.
+Wen Yun had originally been a young girl from a poor family, lively and active since childhood. Since marrying Luo Yangming as a concubine, though the Mistress treated her quite well, rules had been set for her everywhere, and control was strict. She rarely went out anymore and often felt stifled. She was naturally willing to visit Dragon Mother Temple to offer incense.
 
-Luo Yangming hearing wife and concubine wanted to go to Dragon Mother Temple to offer incense, didn't feel strange, agreed immediately.
+When Luo Yangming heard that his wife and concubine wanted to go to Dragon Mother Temple, he found nothing strange about it and agreed immediately.
 
-"Just I am busy with affairs, can't accompany you. Let Shopkeeper Li take A-Chun to accompany you go."
+"It's just that I'm busy with work and can't accompany you. Let Shopkeeper Li take A-Chun to escort you."
 
-"I am old, legs and feet have many inconveniences. Matter of offering incense I won't go." Li Wensheng waved hand smiling, "Let Mr. Yi take A-Chun to go is fine..."
+"I'm old, and my legs aren't what they used to be. I won't go for the incense offering." Li Wensheng waved his hand with a smile. "Let Mr. Yi take A-Chun instead..."
 
-Yi Haoran hurriedly said: "Since so, this matter just hand over to Student."
+Yi Haoran quickly said: "Since that's the case, leave this matter to me."
 
 ---
 **Next Update:** Volume 7 - Guangzhou Governance Part 480

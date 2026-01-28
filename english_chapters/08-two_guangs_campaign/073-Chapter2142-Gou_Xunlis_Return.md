@@ -1,95 +1,94 @@
 # Chapter 2142 - Gou Xunli's Return
 
-Yi Haoran looked in the direction of the voice. The speaker was a middle-aged man, appearing to be in his early fifties. Although dressed as a scholar, he had a dark complexion and rough skin, clearly a man who had weathered many storms.
+Yi Haoran's gaze followed the voice to its source. The speaker appeared to be in his early fifties—a middle-aged man dressed in scholar's robes, though his sun-darkened complexion and weathered skin betrayed
 
-This person was not a relative of Qiuchan's family, but a retainer sent to "present silk" (offer condolences) on behalf of a wealthy distant relative. According to Qiuchan, this relative was a prominent local magnate, but he lived in a mountain stronghold in the countryside year-round. nowadays, with the chaos and war outside, he dared not leave the stronghold easily, deeply afraid of being kidnapped by "Great Heaven's Second" (bandits) as a "fat pig."
+ a life spent exposed to the elements rather than sequestered in libraries.
 
-"This is..."
+The man hadn't come as family but as an emissary dispatched to present condolence gifts on behalf of a wealthy distant relation. According to Qiuchan, this relative ranked among the local magnates, yet resided year-round in a fortified mountain stronghold. In these chaotic times, with warfare ravaging the countryside, he dared not venture forth lest bandits—those "Great Heaven's Seconds"—kidnap him as a prize "fat pig" for ransom.
 
-"My surname is Xun, my given name is the single character Li." Although the scholar spoke Mandarin, his accent was quite strange, not the Cantonese Mandarin accent common among locals.
+"May I ask your name?"
 
-Yi Haoran bowed with hands clasped: "Long looked up to, long looked up to."
+"My surname is Xun, given name the single character Li." Though the scholar spoke Mandarin, his accent carried peculiar inflections unlike the Cantonese-tinged pronunciation common among locals.
 
-This was originally just a polite remark, but unexpectedly, a bitter smile instantly appeared on this Xun Li's face.
+Yi Haoran cupped his hands in salutation. "Long have I looked up to you."
 
-This kind of expression could only be seen on the faces of people who had experienced the vicissitudes of life and drifted from place to place. Yi Haoran's heart moved; this Xun Li was no ordinary person!
+The courtesy was purely formulaic, yet unexpectedly, a bitter smile flickered across Xun Li's features—the expression of one who'd endured life's vicissitudes, drifting rootless from place to place. Yi Haoran's instincts sharpened. This Xun Li was no ordinary retainer.
 
-As if knowing what he was thinking, Xun Li suddenly smiled faintly at him.
+As if reading his thoughts, Xun Li offered him a faint, knowing smile—one that penetrated secrets yet harbored no malice.
 
-It was a smile of having seen through someone's secret, but without malice.
+Abruptly, Xun Li stepped forward and executed a formal bow. "Long have I looked up to... Master Yi... Hao Ran's illustrious name."
 
-Sure enough, Xun Li stepped forward and bowed solemnly: "Long looked up to... Mr. Yi... Hao Ran's great name..."
+When he pronounced "Yi," his voice dropped to barely a whisper, yet Yi Haoran heard it with crystal clarity. He started involuntarily. "What did you say?"
 
-When he said "Yi," his voice was suppressed extremely low, almost like a whisper, but Yi Haoran heard it clearly himself. He was startled and blurted out: "What?"
+"Does the master wish everyone present to know?" Xun Li murmured. "Please, step aside with me."
 
-"Does Sir want everyone to know?" Xun Li whispered. "Please step aside to speak."
+Confusion warred with alarm in Yi Haoran's mind. This Xun Li evidently knew his identity—yet judging from his demeanor, bore no ill intent. Cautiously, he withdrew to a quieter corner.
 
-Yi Haoran was confused for a moment. Obviously, this Xun Li knew who he was. However, judging from his expression, he seemed to have no malice. So he quietly paced to the side.
+His heart spiraled with anxiety. He'd spent minimal time in Wuzhou and maintained scant relations with locals. By all logic, no one should recognize him. How had this retainer of a local magnate penetrated his disguise?
 
-His heart spiraled nervously. He hadn't been in Wuzhou for long and rarely associated with locals. logically speaking, no one should recognize him at all. How could this retainer of a local magnate know him?
+Once they'd reached the courtyard, Xun Li whispered, "Is Master Yi well?"
 
-Coming to the courtyard, Xun Li whispered: "Is Mr. Yi well?"
+"Who are you?" Yi Haoran demanded in an undertone. "How do you know my name?"
 
-Yi Haoran whispered: "Who are you? Why do you know my name?"
+Xun Li inclined his head slightly. "I am but an insignificant figure. Yet Master Yi holds a position of some standing among Viceroy Xiong's private advisors. Naturally, I recognize you."
 
-Xun Li nodded slightly: "I am but a trivial figure. Mr. Yi is something of a figure in Viceroy Xiong's private staff; naturally, I recognize you."
+"Then you are also..." Yi Haoran ransacked his memory but couldn't recall such a person among Xiong Wencan's staff or Wuzhou's civil and military officials. Of course, his own familiarity with these circles remained limited. During the peak concentration of dozens of officials in Wuzhou, their advisors and retainers numbered well over a hundred.
 
-"So you are also..." Yi Haoran thought and thought, but couldn't recall such a person among the advisors of Xiong Wencan's staff or the civil and military officials in Wuzhou—of course, he himself was not very familiar with these people. Especially when dozens of civil and military officials gathered in Wuzhou city at the peak, and their advisors and retainers numbered at least over a hundred.
+"Whether I am or not matters little," Xun Li replied with studied nonchalance. "What concerns me is this: now that the funeral has concluded, what does Master Yi intend to do next?"
 
-"Whether I am or not is not important." Xun Li spoke unhurriedly. "It's just that now the funeral is over, what does Mr. Yi intend to do next?"
+"What can I do?" Yi Haoran responded evasively. "I can only wait for the roads to grow marginally safer, then depart Wuzhou to seek other opportunities."
 
-"What can I do now? I can only wait for the roads to be slightly safer, leave Wuzhou, and then make plans!" Yi Haoran dared not say he would run to Xiong Wencan, speaking vaguely.
+"In my estimation, seeking refuge with Viceroy Xiong no longer constitutes a viable option." Xun Li's bluntness was startling. "He can scarcely protect himself. His generals and officials have long since ceased to honor their oaths. Even if Master Yi carries patriotic fervor, Viceroy Xiong possesses the will but lacks the capacity to employ it."
 
-"In my opinion, Viceroy Xiong's place is no longer a viable destination." Xun Li said, "He is now unable to protect even himself. His generals and officials have long been disloyal to him. Even if Mr. Yi has the heart to serve the country, Viceroy Xiong has the will but not the power."
+Such candor carried immense risk. Speaking these words in a city controlled by the Bald Thieves demonstrated both trust in Yi Haoran's loyalty and intimate knowledge of his character. Yi Haoran nodded slowly. "I presume you've come to illuminate a clearer path for this humble scholar?"
 
-These words were already very blunt. Obviously, the other party took a huge risk daring to say these words to him in Wuzhou city controlled by the Bald Thieves. This was both trust in his loyalty and an indication that the other party understood him very thoroughly. He nodded silently and asked back:
-
-"Presumably, Mr. Xun is here to point out a clear road for this student."
-
-Xun Li looked at him deeply: "A clear road, perhaps I can't say, it might possibly be a dead end—since the Bald Thieves landed in Lingao, everyone who opposed them has hardly escaped death. Is Sir still willing to walk this road?"
+Xun Li regarded him intently. "A clearer path, I dare not claim. It may well prove a dead end—since the Bald Thieves established themselves in Lingao, all who opposed them have scarcely escaped death. Does the master still possess the courage to walk this road?"
 
 "I will walk it." Yi Haoran didn't hesitate.
 
-"Then I will also tell you the truth," Xun Li glanced at the guests who were still drinking tea and chatting in the main hall, and whispered, "I am not some retainer—that retainer gentleman has already been killed by me."
+"Then I shall speak plainly." Xun Li glanced toward the guests still conversing in the main hall, then lowered his voice further. "I am no retainer. That gentleman I replaced—I killed him."
 
-"Huh?!" Yi Haoran was shocked again.
+"What?!" Shock jolted through Yi Haoran.
 
-"Sir, listen to me." Xun Li said, "To be honest, I have gathered a hundred greenwood brothers outside the city now—all brave men who dare to fight and kill..."
+"Hear me out," Xun Li urged. "In truth, I've assembled a hundred sworn brothers outside the city—men unafraid to fight and kill."
 
-Seeing Yi Haoran's expression change slightly, he added: "Sir, do not misunderstand. I am not a person of the grass and weeds (bandit). Back then, I was a member of the gentry in Lingao County. When the Bald Thieves landed in Lingao, I fought them to the death but was unfortunately defeated. My elder brother and nephew both died on the battlefield, and none of my family members were spared. Later, I fled to the Viceroy of Liangguang's office. When Commander He campaigned against Lingao, I was an advisor under his command..."
+Seeing Yi Haoran's expression shift, he hastened to clarify: "Master, please don't misunderstand. I'm no bandit. Originally, I belonged to the gentry of Lingao County. When the Bald Thieves landed there, I fought them to the death but suffered defeat. My elder brother and nephew both perished in battle. Not one member of my household survived. Later, I fled to the Viceroy of Liangguang's office. When Commander He mounted his campaign against Lingao, I served as advisor to his staff..."
 
-It turned out that this Xun Li was none other than the second brother of the Gou family, Gou Xunli (Gou the Second). Since failing to incite bandits to attack Hongji in Vietnam, Gou Xunli had tossed about locally for several years, and many people died. Although he and "Rotten-Eye Hu" pulled up a sizable team, they were beaten to pieces by the Australians' "bandit suppression," losing nearly eighty percent of their men. The remaining people didn't want to fight to the death with the Australians in Vietnam anymore. Someone who had fallen into banditry in Wuzhou in the past suggested returning to Wuzhou to be bandits—at least Wuzhou was a transportation hub with many merchants, and there were far more things to rob than in northern Vietnam.
+What followed was Gou Xunli's tale—though Yi Haoran knew him only as Xun Li. After failing to incite bandit attacks against the Australians in Vietnam, Gou Xunli had wandered the region for years. Though he and "Rotten-Eye Hu" had assembled a sizeable force, the Australians' anti-bandit operations shattered them, destroying nearly eighty percent of their strength. The survivors lost their appetite for suicidal confrontations with the Australians in Vietnam. One former bandit from Wuzhou suggested returning there—at least Wuzhou, as a commercial hub teeming with merchants, offered richer pickings than northern Vietnam.
 
-Returning to Wuzhou meant a round of infighting: Rotten-Eye Hu was "brave and foremost," Gou Xunli used "divine strategy and wonderful calculation," and the bandits "exerted themselves to follow orders." Working together, they finally established a foothold locally. Gou Xunli was anxious to know news of his son and was unwilling to remain a bandit for the rest of his life, so he bid farewell to Rotten-Eye Hu and sneaked back to Macau to find Li Siya.
+The return to Wuzhou precipitated internal power struggles. Rotten-Eye Hu commanded through "bravery in the vanguard," Gou Xunli through "divine strategy and wondrous calculation," while the bandits themselves "exerted themselves obediently." Working in concert, they'd finally established a foothold. Yet Gou Xunli remained anxious for news of his son and unwilling to remain a bandit permanently. He'd bid farewell to Rotten-Eye Hu and slipped back to Macau seeking Li Siya.
 
-However, after tossing about for a few years, not only did they fail to touch a single hair of the Bald Thieves, but their knowledge of the Bald Thieves was also limited. Li Siya had lost interest in him; apart from providing three meals and a bed, she actually cast him aside, ignoring him completely.
+Years of failure, however, had yielded nothing against the Bald Thieves, and his intelligence on them remained meager. Li Siya had lost interest in him. Beyond providing meals and lodging, she simply discarded him, paying him no further mind.
 
-Gou the Second stayed in Macau for over a month and only saw Li Siya once. Knowing he was useless to this woman, he had to slip back to Guangzhou dejectedly to see the situation.
+Gou the Second lingered in Macau for over a month, seeing Li Siya only once. Recognizing his uselessness to this woman, he'd slunk back to Guangzhou dejectedly to assess the situation.
 
-In Guangzhou city, not only was Guo Yi's arrogance greater than before, but the Bald Thieves even built some "Great World" directly outside the city. The Guangzhou officialdom not only turned a blind eye to the Bald Thieves but even flattered them. A "Anti-Bald Warrior" like Gou the Second, let alone being reused, became almost like a "God of Plagues" that everyone avoided, becoming a stray dog.
+In Guangzhou, not only had Guo Yi's arrogance intensified, but the Bald Thieves had erected their brazen "Great World" complex directly outside the city. The Guangzhou bureaucracy not only turned blind eyes to the Bald Thieves but actively courted their favor. An "Anti-Bald Warrior" like Gou the Second, far from being valued, became a pariah—a "God of Plagues" everyone avoided. He'd become a stray dog.
 
-Even worse, Gou Chengxuan, who originally followed Commander He as part of the Returning Home Corps, was missing, his whereabouts completely unknown. The Lai brothers were also completely silent. Gou Xunli relied on the little silver remaining in his hand to inquire about news in various yamens in Guangzhou, but couldn't find any specific news either. He only heard that his son didn't return to Guangzhou after leaving with Commander He, so presumably, he died in Hainan.
+Worse still, Gou Chengxuan, who'd originally followed Commander He as part of the Returning Home Corps, had vanished without trace.  The Lai brothers maintained complete silence. Gou Xunli spent what little silver remained inquiring through various Guangzhou yamens, but gleaned no concrete intelligence. He'd heard only that his son hadn't returned to Guangzhou after departing with Commander He—presumably, he'd perished in Hainan.
 
-He cried bitterly. Sadness aside, he had to make other plans. Unexpectedly, news came out at this moment that Proprietor Guo was offering a reward of one hundred taels of silver for the heads of the Gou father and son. Without a head, an arm or a leg was also worth fifty taels. Rotten-Eye Hu wasn't forgotten either; fifty taels were offered.
+He'd wept bitterly. Grief aside, he required new plans. Then came news that Proprietor Guo had posted a reward of one hundred taels of silver for the heads of father and son Gou. Without a head, an arm or leg fetched fifty taels. Rotten-Eye Hu hadn't escaped notice either—fifty taels for him as well.
 
-Now, all the heroes in Guangzhou city were red-eyed. Naturally, he couldn't stay in Guangzhou—this place had faintly become the world of the Bald Thieves. He couldn't go back to Qiongzhou Prefecture either. He had no choice but to go back to Rotten-Eye Hu to be a bandit.
+Every desperado in Guangzhou burned with avarice. Naturally, he couldn't remain there—the city had subtly transformed into the Bald Thieves' domain. Returning to Qiongzhou Prefecture proved equally impossible. He'd had no choice but to rejoin Rotten-Eye Hu as a bandit.
 
-In the bandit gang, he held the status of "advisor" and was the sworn brother of Rotten-Eye Hu, considered a figure at the "leader" level. He lived a life that could be called "carefree" in the mountain stronghold, but compared to his past life as a "local gentry," it was far worse. Dwelling in the wilderness, living in crude houses, eating rough food, mingling with a group of vulgar mountain villagers all day, even the women snatched for venting were mostly ugly and crude. His family business destroyed, his son's life uncertain, and himself living such a life... The fire of revenge in him did not weaken with age but burned more and more vigorously.
+Within the bandit gang, he held "advisor" status and ranked as Rotten-Eye Hu's sworn brother—a figure at the "leadership" level. Life in the mountain stronghold could be termed "carefree" in one sense, yet compared to his former existence as "local gentry," it fell pitifully short. Dwelling in wilderness, inhabiting crude structures, consuming coarse fare, mingling daily with vulgar mountain folk—even the women captured for their pleasure were largely homely and rough. His family enterprise destroyed, his son's fate uncertain, himself reduced to such circumstances... The flames of vengeance within him hadn't dimmed with age but burned ever more fiercely.
 
-Unexpectedly, this opportunity was delivered right before his eyes!
+Then, unexpectedly, opportunity delivered itself directly to his doorstep!
 
-The bandits learned the news of the Bald Thieves capturing Wuzhou immediately. For bandit gangs, the time when a great army passed through and war raged was an excellent opportunity to get rich—like hyenas eating carrion behind a lion. Taking advantage of the Ming army's collapse and the fall of Wuzhou, the local bandit gangs made quite a fortune. Rotten-Eye Hu and his gang were no exception.
+The bandits learned immediately of the Bald Thieves capturing Wuzhou. For bandit gangs, periods when great armies passed through and warfare raged presented prime opportunities for enrichment—like hyenas feasting on carrion in a lion's wake. Exploiting the Ming army's collapse and Wuzhou's fall, local bandit gangs profited handsomely. Rotten-Eye Hu's gang proved no exception.
 
-However, while hyenas could benefit from the lion's light when foraging, they couldn't get too close to the lion, especially since this lion was the Bald Thieves! Rotten-Eye Hu's gang had all suffered greatly from the Bald Thieves, so they were very cautious.
+Yet hyenas benefited from the lion's leavings only by maintaining distance—especially when that lion was the Bald Thieves! Rotten-Eye Hu's gang had suffered grievously at their hands, breeding extreme caution.
 
-The bandits had informants in the city. Gou Xunli more or less knew a bit about the situation after the Bald Thieves entered the city. Driven by the fire of revenge, he paid even more attention to the movements of the Australians in the city. Wuzhou was broken, and the people's hearts in the city were unstable; recently, with the Yao caves rebelling, the main army of the Bald Thieves retreated from Wuzhou in a panic, leaving only a small number of troops in Wuzhou city. Gou the Second knew: the opportunity had come.
+The bandits maintained informants within the city. Gou Xunli had ascertained the general situation following the Bald Thieves' occupation. The fires of revenge drove him to monitor Australian movements with particular intensity. Wuzhou broken, popular sentiment unstable, and with the recent Yao cave rebellions prompting the Bald Thieves' main army to withdraw from Wuzhou in panic, leaving only a skeleton garrison—Gou the Second recognized his moment had arrived.
 
-The bandits didn't have much passion for loyalty to the monarch and patriotism, but Wuzhou as a spoil of war was a "fat meat" that countless local bandits wouldn't dare to dream of. Moreover, if they really could win a battle in Wuzhou and kill a few True Balds or Fake Balds, the Imperial Court would definitely grant rewards—for bandits, "amnesty" to gain a status and "bring glory to ancestors" was also extremely attractive. Therefore, Gou Xunli didn't spend much effort to persuade Rotten-Eye Hu and the entire gang.
+The bandits lacked passion for monarchical loyalty or patriotism, yet Wuzhou as plunder represented "fat meat" countless local bandits dared only dream of claiming. Moreover, if they could genuinely achieve victory in Wuzhou and kill several True Balds or Fake Balds, the Imperial Court would certainly reward them lavishly. For bandits, "amnesty" offering legitimacy and the chance to "glorify their ancestors" held tremendous appeal. Consequently, Gou Xunli required minimal effort to persuade Rotten-Eye Hu and the entire gang.
 
-But their gang only had a hundred or so people. Rotten-Eye Hu and the others had fought with the Australians and knew their power well. Even if there were only a hundred or so "Fake Balds" in the city, they would definitely not be opponents in a pitched battle; as for roping in other bandit gangs to work together, Rotten-Eye Hu had tasted the bitterness of this kind of "joint venture" in Vietnam. It was okay to pull them in to boost momentum and attract the Bald Thieves' firepower, but to make them exert deadly effort was impossible.
+Yet their gang numbered merely a hundred-odd men. Rotten-Eye Hu and the others had fought the Australians and comprehended their strength well. Even with only a hundred or so "Fake Balds" in the city, they'd prove overwhelming in pitched battle. As for recruiting other bandit gangs for cooperative action, Rotten-Eye Hu had tasted the bitterness of such "joint ventures" in Vietnam. They might serve to create momentum and draw Australian fire, but expecting them to exert deadly effort was pure fantasy.
 
-"We need to borrow strength, but the various starts on the mountain are unreliable. We still have to rely on the Imperial Court!" Gou Xunli thought again and again and said to Rotten-Eye Hu.
+"We need to borrow strength, but the various mountain gangs are unreliable. We must still rely on the Imperial Court!" Gou Xunli deliberated extensively before addressing Rotten-Eye Hu.
 
-"You mean, go find Xiong Wencan?" Rotten-Eye Hu blinked his scarred eyelids and asked.
+"You mean, seek out Xiong Wencan?" Rotten-Eye Hu blinked his scarred eyelids questioningly.
 
-"We are weak and isolated; going directly to Xiong Wencan won't work. We might not even see him." Gou Xunli said, "There must be someone to recommend us!"
+"We're weak and isolated. Approaching Xiong Wencan directly won't succeed. We might not even secure an audience." Gou Xunli paused
+
+
+. "We require someone to recommend us!"

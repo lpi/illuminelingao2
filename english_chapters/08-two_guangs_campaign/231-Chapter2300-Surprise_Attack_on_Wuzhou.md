@@ -1,139 +1,137 @@
 # Chapter 2300 - Surprise Attack on Wuzhou
 
-After Jiang Suo and Song Ming's men climbed over the wall and entered the city, they immediately slipped into a narrow alley behind the Prefectural Yamen. Jiang Suo and Yi Haoran had already scouted this spot, eyeing three adjacent civilian houses.
+After scaling the wall and entering the city, Jiang Suo, Song Ming, and their men slipped into a narrow alley behind the Prefectural Yamen. Jiang Suo and Yi Haoran had scouted this location beforehand, marking three adjacent civilian houses as their staging point.
 
-A night watchman was beating the watches in the back alley. A personal guard rushed forward a few steps and cut him down with a slash to the waist. Someone immediately donned his tattered clothes, picked up the clapper and lantern, and began to beat the watch.
+A night watchman was making his rounds in the back alley. One of the personal guards rushed forward and cut him down with a slash across the waist. Another man immediately stripped off the watchman's tattered clothes and donned them himself, picking up the clapper and lantern to continue the patrol.
 
-The others flipped over the walls into the houses and opened the courtyard gates. Dozens of people surged into the courtyards in an instant, closing the doors and windows to hide.
+The rest vaulted over the courtyard walls, opened the gates from inside, and dozens of men surged into the courtyards. Doors and windows were quickly sealed as they concealed themselves within.
 
-Jiang Suo followed the crowd inside and saw seven bodies of women, children, and the elderly lying across the courtyard ground. His heart could not bear it. He turned his head and saw someone bringing four bound people into the yard, pressing them to the ground and raising a blade to strike.
+Jiang Suo followed the group inside and found seven bodies sprawled across the courtyard—women, children, and elderly. His stomach turned. As he looked away, he saw soldiers dragging four bound captives into the yard, forcing them to their knees with blades raised to strike.
 
-Jiang Suo saw that they were either very old or very young; the youngest was just a child. Their mouths were stuffed with cloth strips, and their faces were filled with terror. Seeing the corpses on the ground, they writhed in fear, whimpering for mercy.
+The prisoners were either very old or very young; the youngest was just a child. Cloth strips gagged their mouths, and terror contorted their faces. Seeing the corpses on the ground, they writhed and whimpered for mercy.
 
-"Spare them." Jiang Suo couldn't bear it and said to Song Ming, "These are all innocent commoners. Why kill them?"
+"Spare them," Jiang Suo said to Song Ming. "These are innocent commoners. Why must they die?"
 
-Song Ming laughed. "General Jiang, you truly have a Bodhisattva's heart. Soldiers fighting wars must be decisive in killing. Although they are innocent, if they cry out, wouldn't it ruin the affair? Since ancient times, those who achieve great things do not bother with trifles, nor do they talk of small kindnesses or mercies. Only those who dare to kill can save the state!" With a wave of his hand, he whispered, "Execute them!"
+Song Ming laughed. "General Jiang, you truly have a Bodhisattva's heart. A soldier must be decisive. Though they are innocent, a single cry would ruin everything. Since ancient times, those who achieve great things do not fret over trifles or speak of small mercies. Only those who dare to kill can save the state!" He waved his hand and whispered, "Execute them."
 
-His personal guards responded, raised their broadswords, and with one chop for each, decapitated all four in an instant. The courtyard was immediately awash in blood. Jiang Suo couldn't bear to watch and turned his head away. Over the years, his heart had hardened significantly, but this kind of reckless slaughter still disgusted him.
+His guards complied. Broadswords rose and fell, and all four heads dropped in an instant. Blood pooled across the courtyard. Jiang Suo couldn't bear to watch and turned away. Years of warfare had hardened his heart considerably, but senseless slaughter still disgusted him.
 
-Whether it was the bandits or the government troops, they were all bloodthirsty by nature, treating commoners like grass.
+Whether bandits or government troops, they were all bloodthirsty by nature, treating common folk like weeds to be cut down.
 
-Song Ming did not care about his inner thoughts. He called over two meticulous guards and ordered them to quietly sneak along the back wall to the rear gate and listen for any movement inside.
+Song Ming paid no attention to his discomfort. He called over two of his most meticulous guards and ordered them to creep along the back wall to the rear gate of the Yamen and listen for any movement inside.
 
 ***
 
-Xie Erren's eyes were red. The anger over Cai Lan's betrayal still lingered in his heart, making the surrounding naturalized staff silent as cicadas in winter, daring not even to breathe loudly.
+Xie Erren's eyes were bloodshot. The fury over Cai Lan's betrayal still burned within him, keeping the naturalized staff around him silent as cicadas in winter, afraid to even breathe too loudly.
 
-When Zhao Fengtian came to report the latest situation, Xie Erren showed no expression. After listening, he said, "In that case, continue interrogating them. See what treasures they are hiding..."
+When Zhao Fengtian arrived to report the latest situation, Xie Erren's expression remained blank. After listening, he said flatly, "Very well. Continue the interrogation. Find out what treasures they're hiding..."
 
-"Chief, would you like to rest first..."
+"Chief, perhaps you should rest first..."
 
-"I'm not sleepy." Xie Erren didn't feel a shred of drowsiness. At this moment, the drum tower in the city struck the third watch. It was the deepest part of the night. He felt bored. He stood up and took a few steps in the flower hall that served as his office to loosen his muscles.
+"I'm not tired." Sleep was the furthest thing from Xie Erren's mind. The drum tower struck the third watch—the deepest hour of the night. Feeling restless, he rose from his chair and paced around the flower hall that served as his office, stretching his stiff muscles.
 
-Suddenly, a dull explosion came from outside the city.
+A muffled explosion suddenly rumbled from beyond the city walls.
 
-Xie Erren was startled. That was the sound of a gunpowder explosion. There had been very little fighting around Wuzhou recently, let alone cannon fire like this. He immediately stood up and asked, "What's happened? Who is firing cannons?"
+Xie Erren froze. That was gunpowder. There had been little fighting around Wuzhou lately, certainly nothing involving artillery. He sprang to his feet. "What's happening? Who's firing cannons?"
 
-Before long, the duty officer came in to report: "The explosion came from the direction of Sanhezu..."
+Before long, the duty officer rushed in to report: "The explosion came from Sanhezu—"
 
-Before his voice fell, a succession of explosions rang out. Xie Erren's face changed drastically, and his calves trembled involuntarily: Could this be a massive counterattack by the Ming army? Wuzhou City didn't have many troops...
+His words were cut short by a succession of blasts. Xie Erren's face drained of color, his legs trembling involuntarily. Could this be a massive counterattack by the Ming army? Wuzhou had so few troops...
 
-He hurriedly stood up and said, "Quick! Quick! Assemble everyone, enter a state of alert." After speaking, he felt he was too uncomposed, so he hurriedly ordered again, "Call Qian Duo and Zhu Si!"
+"Quick! Assemble everyone, full alert!" He paused, aware of how panicked he sounded, and forced himself to speak more evenly. "Send for Qian Duo and Zhu Si!"
 
-Qian Duo was at the Three Generals' Office and would take some time to arrive. Zhu Si was right in the Prefectural Yamen. He had been asleep but was awakened by the explosion and rushed over after putting on his uniform.
+Qian Duo was stationed at the Three Generals' Office and would take time to arrive. Zhu Si, however, was already in the Prefectural Yamen. The explosion had jolted him from sleep, and he came running in his hastily donned uniform.
 
-"What's the situation outside now?" As soon as he entered, Xie Erren asked him abruptly, leaving him confused. He had come in a hurry and hadn't had time to inquire.
+"What's the situation outside?" Xie Erren demanded the moment he entered, catching him off guard. Zhu Si had rushed over without stopping to gather information.
 
-"Report to the Chief! I haven't had time to find out..."
+"Sir, I haven't had time to find out—"
 
-"Then go find out quickly and see what the hell is going on!" Xie Erren said, then stopped Zhu Si just as he was leaving. "Gather all your men!"
+"Then find out! Go see what the hell is going on!" As Zhu Si turned to leave, Xie Erren stopped him. "Gather all your men!"
 
-"Chief, I have no men right now," Zhu Si said hurriedly. "The Second Squadron went to receive the convoy..."
+"Chief, I have no men right now," Zhu Si said quickly. "The Second Squadron went to receive the convoy..."
 
-Only then did Xie Erren come to his senses, remembering that Zhu Si, the Battalion Commander of the Wuzhou National Army, was currently a commander without troops; the only remaining unit, the Third Squadron, was outside the city.
+Only then did Xie Erren remember that Zhu Si, Battalion Commander of the Wuzhou National Army, was currently a commander without troops. The only remaining unit, the Third Squadron, was stationed outside the city.
 
-"Take my guard detail. Patrol along the city gates first. If you see any place that needs reinforcement, add a few men."
+"Take my guard detail. Patrol the city gates first. If anywhere needs reinforcement, send men there."
 
-Xie Erren had five guards around him, selected from the Garrison Battalion by the General Security Bureau. But there were too few of them. After arriving in Wuzhou, he had recruited some young men with clean backgrounds and reliable families from the National Army and Detective Team to form a "Guard Squad." This was the last reserve force in his hands.
+Xie Erren had five guards around him, handpicked from the Garrison Battalion by the General Security Bureau. But that was far too few. After arriving in Wuzhou, he had recruited several young men with clean backgrounds and reliable families from the National Army and Detective Team to form a "Guard Squad." This was his last reserve.
 
-"Yes, I'll go right away," Zhu Si said. "I'll take two squads and leave one here."
+"Yes sir, I'll go immediately," Zhu Si said. "I'll take two squads and leave one here."
 
-"Go quickly, go quickly!" Xie Erren waved his hand impatiently. "What can happen here? Defending the city is the priority!"
+"Go, go!" Xie Erren waved impatiently. "What could possibly happen here? The city walls are the priority!"
 
-Zhu Si hurriedly left to execute the order. Xie Erren was anxious. Hearing the explosions coming one after another from outside, occasionally mixed with the sound of gunfire and muskets, he stopped by the window to watch. He saw what seemed to be firelight flashing in the sky in the direction of Sanhezu.
+Zhu Si hurried out. Xie Erren's anxiety mounted as explosion after explosion echoed from beyond the walls, punctuated by the crack of gunfire and the boom of muskets. He moved to the window and saw what appeared to be firelight flickering in the sky over Sanhezu.
 
-*Bad!* He thought. *Sanhezu must have been attacked by the enemy.* The Third Squadron was isolated there without support; protecting themselves shouldn't be a problem, but the prisoner camp would most likely be overrun by the enemy!
+*This is bad,* he thought. *Sanhezu is under attack.* The Third Squadron was isolated there without support. They could probably defend themselves, but the prisoner camp would almost certainly be overrun.
 
-Most of those held in the prisoner camp were captured Ming officers, soldiers, and local officials. Once the camp was broken, these people would inevitably scatter, not only becoming a new hidden danger in the rear but also marking two big red crosses on his merit book for the governance of Wuzhou!
+Most of those held in the camp were captured Ming officers, soldiers, and local officials. If the camp fell, these prisoners would scatter—not only creating new threats in the rear but also marking two large black marks on his record for the governance of Wuzhou.
 
-Thinking of this, his back sweated slightly. Just as he was at a loss, Qian Duo arrived.
+Cold sweat trickled down his back. Just as he stood there paralyzed with indecision, Qian Duo arrived.
 
-"What is the specific situation?"
+"What's the situation?"
 
-"I've already been up on the city tower to look." Qian Duo hadn't rested; he was on duty at the Three Generals' Office. He had ascended the tower as soon as the explosions started to observe the situation outside. "The explosions came from the camp. The camp is now on fire, and there are flames on the Third Squadron's ramparts. It seems a force has attacked Sanhezu."
+"I've already been up on the tower to look." Qian Duo hadn't been resting; he was on duty at the Three Generals' Office. He had climbed the wall the moment the explosions began. "The blasts came from the camp. It's on fire now, and there are flames at the Third Squadron's ramparts. Some force has attacked Sanhezu."
 
-"What is the scale of the attack?"
+"How large?"
 
-" impossible to judge right now. But judging by the size of the fire, the enemy should have already rushed into the camp—the camp's own defenses are limited. Now it depends on whether Jiang Yougong can retake it quickly..." Qian Duo said. "I launched a signal rocket just now to ask about the status, but..."
+"Impossible to judge at this point. But judging by the size of the fire, the enemy has already breached the camp—the camp's own defenses were never strong. Everything depends on whether Jiang Yougong can retake it quickly..." Qian Duo hesitated. "I launched a signal rocket to request status, but..."
 
 "But what?"
 
-"As soon as we launch a rocket here, the enemy launches multiple rockets simultaneously to jam the signal rocket from the Second Squadron at Sanhezu. We can't interpret Sanhezu's reply."
+"Every time we launch a rocket, the enemy launches multiple rockets simultaneously to jam our signals. We can't interpret Sanhezu's reply."
 
-"Isn't there an optical signal device..."
+"What about the optical signal device..."
 
-"The fire interference at Sanhezu is too great right now; we can't make out the situation at all."
+"The fire at Sanhezu creates too much interference. We can't make out anything."
 
-"Damn it!" Xie Erren thought. *Those people in the Industry Sector who work on wireless radios should all be shot!*
+*Damn it!* Xie Erren fumed silently. *Those people in the Industry Sector working on wireless radios should all be shot!*
 
-"Let's go, we'll go up to the city tower to take a look!" Xie Erren thought that spinning around here wouldn't help, so he might as well go to the tower to see the situation. Thinking of this, he asked again: ""
+"Let's go. We'll observe from the tower." Pacing here accomplished nothing; he might as well see the situation firsthand. They left the Prefectural Yamen and climbed to the Nanxun Gate. Leaning over the battlements, they saw flames roaring skyward over Sanhezu, with faint sounds of battle drifting on the wind. Fires dotted the riverbank, and signal rockets streaked into the sky one after another.
 
-The two left the Prefectural Yamen and ascended the Nanxun Gate. Leaning over the battlements to look out, they saw firelight skyrocketing in the direction of Sanhezu, and faint sounds of shouting and killing could be heard. There were fires everywhere along the riverbank, and signal rockets rose into the sky one after another.
+"Company Commander Qian," Xie Erren said urgently. The situation looked dire—not only was Sanhezu likely lost, but the Third Squadron appeared to be in mortal danger. "Assemble your troops immediately. Send a platoon out to rescue Sanhezu. If we don't act, Jiang Yougong's entire squadron will be wiped out!"
 
-"Company Commander Qian," Xie Erren was burning with anxiety. It looked like not only was Sanhezu lost, but the Third Squadron was also in imminent danger. "Assemble your troops immediately and send a platoon out to rescue Sanhezu. If we don't rescue them, I'm afraid Jiang Yougong's Third Squadron will be completely wiped out!"
+"Chief, that's not wise," Qian Duo said hesitantly. "Sending a small unit out of the city in the middle of the night to provide support... what if they walk into an ambush? Besides, we have too few troops in the city as it is..."
 
-"Chief, this isn't appropriate," Qian Duo hesitated. "Sending a small unit out of the city in the middle of the night to support... what if they walk into an ambush? Besides, there are too few troops in the city..."
+"Then—then what do we do?" Xie Erren's voice cracked.
 
-"Then, then, then what do we do..." Xie Erren was in turmoil.
+"I'll send a few capable men to rappel down the wall and scout the situation, then make a decision based on what they find." Qian Duo's mind was already made up. Neither the Third Squadron nor the prisoner camp were truly important targets. Wuzhou itself, and Elder Xie, were what he had to protect. Moreover, the chaos outside suggested the enemy was bluffing—trying to draw reinforcements from the city and ambush them on the way.
 
-"I'll send a few capable soldiers to rappel down the wall to reconnoiter the situation, and then make a decision based on the situation..." Qian Duo made up his mind instantly. Neither the Third Squadron nor the prisoner camp were important targets; Wuzhou and Elder Xie were the objects he had to protect—moreover, looking at the situation outside, it was highly likely the government troops were bluffing to attract support from the city and ambush them halfway.
+"All right, all right. Send men quickly."
 
-"Alright, alright, send men quickly."
-
-"Please go back first, Chief. I will preside here. I will send someone to report as soon as there is a situation." Seeing Xie Erren's soul-lost appearance, Qian Duo knew this Elder was unreliable and would only be trouble if he stayed on the tower.
+"Please return to the Yamen, Chief. I'll take charge here and send word as soon as we learn anything." Seeing Xie Erren's rattled demeanor, Qian Duo knew the Elder was unreliable right now and would only be a hindrance if he stayed on the wall.
 
 ***
 
-In the back alley, Song Ming and the others heard the cannon fire outside and knew Sanhezu had already launched its move. There was a commotion on the streets outside. The group remained silent, waiting quietly.
+In the back alley, Song Ming and his men heard the cannon fire and knew the Sanhezu operation had begun. Shouts and commotion echoed from the streets beyond. The group remained silent, waiting.
 
-After an unknown amount of time, there were suddenly three light knocks on the courtyard gate. Song Ming's spirits lifted, and he immediately ordered the door opened.
+After what felt like an eternity, three soft knocks sounded at the courtyard gate. Song Ming's pulse quickened, and he immediately ordered the door opened.
 
-The personal guard posing as the watchman made a gesture toward the back door of the Prefectural Yamen. Song Ming and Jiang Suo felt their hearts pounding wildly: Everything was going smoothly!
+The personal guard posing as the watchman gestured toward the rear door of the Prefectural Yamen. Song Ming and Jiang Suo felt their hearts pounding wildly. Everything was going smoothly.
 
-Who would have thought that this heavily guarded Wuzhou City was so empty inside!
+Who would have thought that this heavily defended Wuzhou was so hollow inside?
 
-With a wave of Song Ming's hand, several guards formed a human ladder and quickly climbed over the wall to open the back door. The soldiers filed in silently.
+At Song Ming's signal, several guards formed a human ladder and quickly scaled the wall to open the rear door. The soldiers filed in without a sound.
 
-Xie Erren returned to the Prefectural Yamen from the city tower, feeling quite shaken. He hadn't expected the Ming army to still have such strength, actually able to infiltrate this far into the rear... It seemed the strategy for Liangguang was adventurism.
+Xie Erren returned from the tower feeling shaken. He hadn't expected the Ming army to still possess such strength—to penetrate this deep into enemy territory... It seemed the Liangguang strategy had been overly ambitious.
 
-He sat in his chair, feeling somewhat weary. At this time, Zhu Si sent someone to report: Enemy activity was suspected outside various city gates, but no attacks had occurred. Defenses at all gates had been strengthened and should be secure.
+He sank into his chair, exhaustion washing over him. Moments later, Zhu Si sent a messenger to report: enemy activity had been spotted outside various gates, but no attacks had materialized. Defenses at all gates had been strengthened and were holding.
 
-"That's good, that's good." Xie Erren breathed a sigh of relief. It seemed the enemy wasn't here to attack the city; Wuzhou should be in no danger...
+"Good, good." Xie Erren exhaled in relief. The enemy apparently wasn't here to storm the city. Wuzhou should be safe...
 
-Before his voice had faded, a burst of clamor, screams, and cries of agony came from outside, followed by several gunshots. Xie Erren was shocked: What was happening?
+Before he could finish the thought, a burst of clamor erupted outside—screams, cries of agony, then gunshots. Xie Erren bolted upright. What was happening now?
 
-While he was hesitating, his security secretary stumbled in, covered in blood, one arm already missing.
+As he hesitated, his security secretary stumbled through the door, drenched in blood, one arm missing entirely.
 
-"Enemy attack..." he shouted, then collapsed to the ground, dead.
+"Enemy attack—" he shouted, then collapsed dead on the floor.
 
-Xie Erren was astounded: This was the Wuzhou Prefectural Yamen. Although there weren't many soldiers in the city, it was surrounded by high walls on four sides, and there was the city wall outside. The Baojia system inside the city was also extremely strict. Where did enemies pop out from in the dead of night?
+Xie Erren was thunderstruck. This was the Wuzhou Prefectural Yamen. Though the garrison was small, high walls surrounded it on all sides, and the city wall lay beyond. The Baojia system within the city was strict as well. Where had enemies materialized in the dead of night?
 
-He reached into the drawer to retrieve his pistol, but before he could pull it out, a dozen men in black surged in. The leader, a short and wiry man, pressed the tip of a border army war saber against Xie Erren's chest.
+His hand shot into the drawer for his pistol, but before he could draw it, a dozen men in black surged into the room. Their leader, a short, wiry man, pressed the tip of a border army war saber against Xie Erren's chest.
 
 "Let go!"
 
-Although the man spoke with a thick accent, Xie Erren immediately and obediently let go.
+Though the man's accent was thick, Xie Erren immediately released the pistol.
 
-"Chief Xie," the visitor said in a low voice, "We invite you to come with us! Don't move recklessly, and we won't harm your life!"
+"Chief Xie," the intruder said in a low voice, "you're coming with us. Don't try anything foolish, and we won't harm you."
 
 **(End of Chapter)**

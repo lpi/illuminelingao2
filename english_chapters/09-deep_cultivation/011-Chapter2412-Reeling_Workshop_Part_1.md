@@ -1,85 +1,85 @@
 # Chapter 2412: Reeling Workshop (I)
 
-"This is the *Zhudie Mu* (Beater Stick), used to guide the reed," Chen Lin didn't know what this Australian woman was thinking and introduced.
+"This is the *Zhudie Mu*—the beater stick," Chen Lin explained, unaware of what thoughts were running through the Australian woman's mind. "It's used to guide the reed."
 
-At the tail of the jacquard loom was the warp beam, used to roll silk threads. In the middle were two *Zhudie Mu* for beating the weft, vertically passing through two wooden sticks about four *chi* long. The two ends of the wooden sticks were inserted into the reed.
+At the rear of the jacquard loom sat the warp beam for winding silk threads. In the middle, two *Zhudie Mu* hung vertically, each about four *chi* long, their ends inserted into the reed to beat the weft.
 
-"This *Zhudie Mu* appears plain and unremarkable, but it is a crucial component," Chen Lin continued. "Its purpose is to beat the weft. By adjusting *Zhudie Mu* of different sizes and weights, one can regulate the magnitude of the tangential force component and weave various fabrics: for weaving light and thin silk fabrics like *Sha* and *Luo*, the weight should be light. Conversely, it should be heavier. A single Flower Loom being able to weave endless varieties of silk fabrics all depends on this *Zhudie Mu*."
+"The *Zhudie Mu* may appear plain and unremarkable, but it's actually a crucial component," Chen Lin continued. "Its purpose is to beat the weft tight. By adjusting the size and weight of the beater sticks, you can regulate the force applied and weave different fabrics. For light, airy silks like *Sha* and *Luo*, you want a lighter stick. For denser weaves, heavier. A single Flower Loom can produce an endless variety of silk fabrics—all depending on this simple stick."
 
-Li Yao'er nodded silently. Such a large machine actually relied on the manpower of two workers to operate. Although the products made were exquisite, the production efficiency was also too low. In the past, she read the history of silk development, which said that places like Suzhou and Hangzhou produced hundreds of thousands of bolts of silk annually, but then thinking about it, these major silk weaving towns had tens of thousands of looms. That is to say, each loom only produced a few dozen bolts per year.
+Li Yao'er nodded silently. Such an enormous machine, yet it required two workers to operate by hand. The products were exquisite, certainly, but the production efficiency was abysmal. She remembered reading about the history of silk development, where places like Suzhou and Hangzhou supposedly produced hundreds of thousands of bolts annually. But then she considered that these silk-weaving centers had tens of thousands of looms—meaning each loom produced only a few dozen bolts per year.
 
-After viewing the Grand Flower Tower Loom, Li Yao'er took Chen Lin to "Workshop Two." This workshop was converted from the original wing rooms and part of the courtyard, used for centrally arranging "Waist Looms." The twenty waist looms that Fenshenghe originally owned scattered in various places were all consolidated and placed here. The original ceiling height of the wing rooms was not as high as the main house where the Flower Tower Looms were installed, so skylights were added during the renovation to increase light. In the absence of industrial lighting, natural light was utilized as much as possible.
+After viewing the Grand Flower Tower Loom, Li Yao'er led Chen Lin to "Workshop Two." This space had been converted from the original wing rooms and part of the courtyard, now serving as a centralized facility for waist looms. The twenty looms that Fenshenghe had previously scattered across various locations were all consolidated here. Since the wing rooms had lower ceilings than the main hall where the Flower Tower Looms stood, skylights had been added during renovation to increase natural light. Without industrial lighting, one had to make the most of the sun.
 
-Seeing such a renovation, Chen Lin was quite puzzled. Centralized layout looked impressive, but he didn't think it had any practical significance. But since the Chief made such changes, there must be a reason. Never questioning elders to their faces was something Chen Lin had always been praised for as a "virtue," so he naturally remained silent at this moment.
+Chen Lin found this renovation puzzling. A centralized layout looked impressive, but what practical purpose did it serve? Yet if the Chief had ordered these changes, there must be a reason. Never questioning one's elders to their faces was a virtue Chen Lin had always been praised for, so he held his tongue.
 
-"These are what the workers call Waist Looms," Li Yao'er said. "Why are they called Waist Looms?"
+"These are what the workers call waist looms," Li Yao'er said. "Why that name?"
 
-"Chief, please see that wide leather strap. When weaving, the worker wears it around the waist. When weaving, the power comes entirely from the waist and hips, hence the name Waist Loom."
+"Chief, do you see that wide leather strap? When weaving, the worker wears it around the waist. All the power comes from the waist and hips—hence the name."
 
-Chen Lin said this was a new loom that had only appeared in the last decade or so. It couldn't weave complex patterns and could only be used to weave *Juan*, *Chou*, *Luo*, and the like with simple patterns that didn't require jacquard. However, the weaving speed was fast, and product quality was good.
+Chen Lin explained that this was a relatively new loom, appearing only in the last decade or so. It couldn't weave complex patterns and was limited to simple weaves like *Juan*, *Chou*, and *Luo* that didn't require jacquard mechanisms. However, it wove quickly and produced high-quality fabric.
 
-"I see it has some similarities to the cotton cloth looms in Hainan."
+"I notice it resembles the cotton looms used in Hainan," Li Yao'er observed.
 
-"The Chief speaks correctly. Waist Looms can also be used to weave kudzu cloth, hemp cloth, and cotton cloth, and the cloth woven is neat and fine, with a solid texture and luster. It is a very useful loom. It's just that it's not yet widely used. If I were to open a cotton weaving workshop, I would use all this kind of Waist Loom."
+"The Chief speaks correctly. Waist looms can also weave kudzu cloth, hemp, and cotton. The fabric comes out neat and fine, with good texture and luster. It's a very versatile loom, though not yet widely used. If I were to open a cotton weaving workshop, I would use waist looms exclusively."
 
-"Oh? You've also thought about opening a textile factory?" Li Yao'er became interested.
+"Oh? You've thought about opening a textile factory?" Li Yao'er's interest sharpened.
 
-Chen Lin secretly thought he had let slip! But thinking again, it didn't matter to tell the Chief; he just shouldn't reveal the key person, his cousin-uncle.
+Chen Lin cursed himself for the slip. But then again, telling the Chief wouldn't hurt—as long as he didn't reveal the key person behind it, his cousin-uncle.
 
-"Yes, this small one heard in Guangzhou that the Senate has a policy encouraging everyone to open cotton spinning factories, helping to provide equipment and technology, and even managing sales. I thought that there are many sandy fields here, and there are quite a few farmers who grow cotton. With existing weaving workshops and looms, wouldn't opening a cotton spinning factory achieve twice the result with half the effort?" He sighed. "Unexpectedly, Father met with misfortune, and the village was also looted. If the Chief hadn't come to take over Fenshenghe, this weaving workshop would probably be in a sorry state. So I dared not think about it anymore."
+"Yes, this humble one heard in Guangzhou that the Senate has a policy encouraging cotton spinning factories. They help provide equipment and technology, and even assist with sales. I thought—there are many sandy fields here, plenty of farmers who grow cotton, and existing weaving workshops with looms. Wouldn't opening a cotton spinning factory achieve twice the result with half the effort?" He sighed. "But then Father met with misfortune, and the village was looted. If the Chief hadn't come to take over Fenshenghe, this workshop would probably be in ruins. So I dared not think about it anymore."
 
-"Your idea is not bad." Li Yao'er's heart suddenly stirred.
+"Your idea isn't bad." Something stirred in Li Yao'er's heart.
 
-Her focus in coming here for silk industry improvement was still on the two links of raising silkworms and reeling silk. Weaving was not the emphasis. Because currently, outsiders were more concerned with raw silk production rather than producing various colorful satins.
+Her focus for silk industry improvement had always been the upstream processes—raising silkworms and reeling silk. Weaving wasn't the priority because foreign buyers cared more about raw silk than finished fabrics of various colors and patterns.
 
-In terms of patterns and colors, the aesthetic tastes of various countries differed greatly. Back when other countries had not yet mastered sericulture techniques, silks exported from China to Byzantium and Persia were mostly unraveled into threads and then re-dyed and woven. In Ming and Qing silk exports, raw silk also held the primary position.
+In matters of design and aesthetics, different countries had vastly different tastes. In earlier centuries, before other nations mastered sericulture, silk exported from China to Byzantium and Persia was often unraveled into thread, then re-dyed and rewoven to local preferences. Even during the Ming and Qing dynasties, raw silk dominated the export trade.
 
-Therefore, whether it was the foreign trade or industrial departments, there wasn't much interest in improving satin weaving. Naturally, Li Yao'er couldn't get many resources either.
+Consequently, neither the foreign trade nor industrial departments showed much interest in improving satin weaving, which meant Li Yao'er couldn't secure many resources for it.
 
-Although ultimately through the efforts of the foreign trade department, she obtained some resource investment and also got Fenshenghe, in the field of weaving, she could only make do and improve existing equipment. This was also why she was so interested in Fenshenghe.
+Through persistent effort with the foreign trade department, she had eventually obtained some investment and gained control of Fenshenghe. But in the weaving sector, she could only make do with improving existing equipment—which was precisely why Fenshenghe had caught her interest.
 
-The textile department under the Senate's industrial system was originally a neglected weak unit. Over the years, apart from setting up a textile factory in Qiongshan and Lingao each specifically for special textile products, there were no other textile enterprises. The varieties produced by these two factories were quite numerous, involving clothing, household, industrial, military, and shipping areas, but all products were internally allocated with no external sales. Cotton cloth for civilian use was all obtained from the Great Ming or India.
+The textile department under the Senate's industrial system had always been a neglected backwater. Over the years, apart from establishing one textile factory each in Qiongshan and Lingao for specialized products, no other textile enterprises existed. These two factories produced a wide variety of goods for clothing, household use, industry, military, and shipping—but everything was internally allocated with nothing sold externally. Cotton cloth for civilians came entirely from Great Ming or India.
 
-It was only recently that the Planning Agency launched the "Textile Promotion Act" as part of the "Industrial and Commercial Promotion Act," opening it to private capital in the Two Guangs region.
+Only recently had the Planning Agency launched the "Textile Promotion Act" as part of the broader "Industrial and Commercial Promotion Act," opening the sector to private capital in the Two Guangs region.
 
-Although encouraging private capital investment, apart from money, private capital had to rely on the Senate for equipment, technology, and technical workers. Since encouraging cotton spinning, resources inevitably tilted towards the cotton spinning field. The resources the silk weaving industry could get became pitifully few. Among the new textile equipment mass-produced by the Bairen Machinery General Factory, only reeling equipment made the list; satin looms only had a few prototypes made and some upgrade kits for old-style machines.
+Though private investment was encouraged, investors still depended on the Senate for equipment, technology, and skilled workers. With cotton spinning being the priority, resources inevitably tilted that way, leaving silk weaving with precious little. Among the new textile equipment mass-produced by the Bairen Machinery General Factory, only reeling machines made the list. For satin looms, only a few prototypes existed, along with some upgrade kits for old-style machines.
 
-However, these pieces of equipment all required external power without exception. They were not like Flower Tower Looms or Waist Looms that could be driven by workers treading with feet, throwing with hands, or exerting waist and hip strength. External power equipment had to be used.
+But all this equipment required external power. Unlike Flower Tower Looms or waist looms that workers could drive with foot pedals, hand throws, or hip movements, these new machines needed mechanical power sources.
 
-Steam engines were out of the question. In the factory construction technical guidance plan given by the Planning Agency for cotton textile factories, water-powered machines were recommended.
+Steam engines were out of the question. The Planning Agency's factory construction guidelines for cotton textile operations recommended water-powered machinery instead.
 
-Water-powered machines not only had much greater output power than animal-powered or wind-powered machines, but the output power was also stable, very suitable for scaled machine production. The first to achieve industrial production in the British Industrial Revolution were water-powered textile factories.
+Water-powered machines produced far greater and more stable output than animal- or wind-powered alternatives, making them ideal for large-scale production. The first industrial textile factories of the British Industrial Revolution had been water-powered.
 
-But its problems were also obvious. It required certain water flow conditions: it had to be close to a river with sufficient water volume; secondly, the investment was large. Using water-powered machines required a large amount of construction work.
+But the drawbacks were equally obvious. You needed suitable water conditions—proximity to a river with sufficient flow—and the investment was substantial. Building water-powered facilities required extensive construction work.
 
-Given the current priority level of the silk weaving industry in the Planning Agency, it was impossible for Li Yao'er to get a corresponding power equipment quota and investment, so upgrading equipment could only be a pipe dream. Even the higher-priority reeling machines could only use the foot-pedal basin-beating machines used in Hangzhou.
+Given silk weaving's low priority at the Planning Agency, Li Yao'er had no hope of obtaining a power equipment quota or the necessary investment. Upgrading equipment remained a pipe dream. Even the higher-priority reeling machines could only use the foot-pedal basin-beating models from Hangzhou.
 
-If this young Chen wanted to open a cotton spinning factory and could pull it off, he could apply for a water-powered machine quota. Then those retrofit parts and samples that were limited by lack of power could all be put into use.
+But if this young Chen wanted to open a cotton spinning factory and could make it happen, he could apply for a water-powered machine quota. Then all those retrofit parts and prototypes sitting idle for lack of power could finally be put to use.
 
-Thinking of this, Li Yao'er immediately became energized and asked probingly, "Your idea is very good! However, opening an Australian-style cotton spinning factory is a big business. Not a single inch of cloth is woven, but the investment is already thousands upon thousands. Can you find the capital?"
+The thought energized Li Yao'er immediately. She probed: "Your idea is excellent! However, opening an Australian-style cotton spinning factory is a major undertaking. Before a single inch of cloth is woven, the investment already runs into the thousands. Can you raise the capital?"
 
-"At the beginning, naturally it can't be that big. There are quite a few cotton-growing households locally. Let's first open a yarn spinning factory, spin the yarn and sell it to the textile factories in the prefectural city." When his cousin-uncle talked to him about opening a textile factory, he had already thought through the key points. There were many sandy fields in the Xiangshan area, and many people grew cotton. Cousin-uncle had also bought many sandy fields to prepare to grow cotton himself. The cotton supply should be no problem. First get the yarn factory up and running—since everyone was opening textile factories, demand for cotton yarn would be great; this business could be considered a sure profit without loss.
+"At the start, it naturally wouldn't be that large. Many local households grow cotton. We'd first open a yarn spinning factory—spin the yarn and sell it to textile factories in the prefectural city." When his cousin-uncle had discussed opening a textile factory with him, Chen Lin had already worked through the key points. The Xiangshan area had plenty of sandy fields, and many farmers grew cotton. His cousin-uncle had also purchased sandy fields in preparation for growing his own cotton. The supply shouldn't be a problem. Get the yarn factory running first—with everyone opening textile factories, demand for cotton yarn would be strong. This business was practically guaranteed to profit.
 
-"As for capital, indeed this small one miscalculated. After being looted by the chaotic soldiers, there's nothing to count on." He deliberately sighed.
+"As for capital, I admit I miscalculated." He sighed deliberately. "After being looted by the soldiers, there's nothing left to count on."
 
-"Didn't expect you to be quite smart." Li Yao'er nodded approvingly. She already had her calculations in mind, but just as she was about to speak, she held back. She and this young Chen had only met on the first day. She still knew little about this person's specific situation and background. The factory matter could take its time; no need to rush. First see what this person was made of.
+"You're quite clever for your age," Li Yao'er said with an approving nod. She already had her calculations in mind, but just as she was about to speak, she held back. She had only just met this young Chen today and still knew little about his background or character. The factory matter could wait—no need to rush. First she would see what he was made of.
 
-Beside the second courtyard, there were east and west side courtyards. Now the east courtyard had been converted by Li Yao'er into a reeling workshop, prepared to install the same equipment "Jiqi Dajie" (Steam-powered Reeling Machine) that was used in the small reeling factory at Hangzhou's Phoenix Villa. The entire workshop was arranged according to the training workshop model from back then. For this purpose, a boiler was specifically introduced to provide hot water and steam for reeling.
+Beside the second courtyard lay east and west side courtyards. Li Yao'er had converted the eastern one into a reeling workshop, installing the same equipment—the *Jiqi Dajie* (steam-powered reeling machines)—used at the small reeling factory in Hangzhou's Phoenix Villa. The entire workshop was arranged according to that training facility's model. A boiler had been specifically brought in to provide hot water and steam for reeling.
 
-However, in terms of scale, this was much smaller than the training workshop reeling section in Hangzhou, with only a mere one hundred workstations. Any bigger, and the existing boiler couldn't supply it.
+In scale, however, this was much smaller than the Hangzhou training workshop, with only one hundred workstations. Any larger and the existing boiler couldn't keep up.
 
 "This is an Australian-style reeling room," Li Yao'er said.
 
-Chen Lin looked at this completely transformed reeling workshop with some surprise. He saw this workshop was like other workshops, with ventilation windows on both sides of the walls and skylights on the roof. Only the walls and ceiling were crisscrossed with various pipes and valves—what were all these?
+Chen Lin surveyed the transformed workshop with surprise. Like the other workshops, it had ventilation windows on both side walls and skylights in the roof. But the walls and ceiling were crisscrossed with various pipes and valves—what were all these for?
 
-These pipes were each connected to the reeling workstations. Here, like the training factory in Hangzhou, improved foot-pedal reeling machines were used. Foot-pedal reeling machines existed in the Ming Dynasty and were not anything new. It was just that the reeling machines made by the Lingao Machinery Factory had many mechanical improvements, with many components made of metal and bearings installed on rotating parts, so the rotation was smooth and use was more flexible.
+The pipes connected to each reeling workstation. Here, as in the Hangzhou training factory, improved foot-pedal reeling machines were used. Foot-pedal reeling machines existed during the Ming Dynasty and were nothing new. However, the machines from the Lingao Machinery Factory incorporated numerous mechanical improvements—many components were metal with bearings installed on rotating parts, making the rotation smooth and the operation more flexible.
 
-However, Chen Lin immediately noticed the differences. First was the stove basin beside the reeling machine—it had changed.
+But Chen Lin immediately spotted the differences. First was the stove basin beside the reeling machine—it had changed.
 
-Traditional Chinese reeling techniques had undergone multiple improvements. By the Ming Dynasty, two reeling methods had basically formed.
+Traditional Chinese reeling techniques had undergone multiple refinements. By the Ming Dynasty, two main methods had emerged.
 
-One was called the "Fire Silk Method," also called the "Hot Cauldron Method." The process was to use one large pot for both cooking cocoons and reeling silk. The pot was placed directly on the stove, with a silk reel installed horizontally above the pot. When reeling, the water temperature was extremely high, which could increase the amount of cocoons cooked in a short time. At the same time, by adjusting the water temperature, thick and thin silk could be reeled. Roughly speaking, for reeling thick silk, the water temperature should be high; for reeling thin silk, the water temperature should be low.
+The first was called the "Fire Silk Method," also known as the "Hot Cauldron Method." A single large pot served for both cooking cocoons and reeling silk, placed directly over the stove with a silk reel mounted horizontally above. During reeling, the water temperature ran extremely high, which increased the number of cocoons that could be cooked in a short time. Adjusting the water temperature controlled the thickness of the silk—higher temperatures for thick silk, lower for thin.
 
-The advantage of the Fire Silk Method was high efficiency in cooking cocoons and fast reeling. However, because reeling was fast, it was not easy to control the thickness of the silk output, and quality was not ideal. Therefore, it was gradually replaced by the Cold Basin Method.
+The Fire Silk Method's advantage was efficiency: cocoons cooked quickly and reeling was fast. But because the pace was so rapid, controlling the silk's thickness proved difficult, and quality suffered. It was gradually superseded by the Cold Basin Method.
 
 **(End of Chapter)**

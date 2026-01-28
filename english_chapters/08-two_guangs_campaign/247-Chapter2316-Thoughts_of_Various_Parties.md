@@ -1,110 +1,109 @@
 # Chapter 2316 - Thoughts of Various Parties
 
-"Since it involves her maiden family, it should still be investigated to the end. The losses at Sanhezu were so great; there cannot be no explanation. The matters inside must be investigated clearly." Luo Yangming immediately stated his position.
+"Since it involves her maiden family, we should still investigate thoroughly. The losses at Sanhezu were too great—there must be an accounting. Everything must be investigated clearly." Luo Yangming immediately stated his position.
 
-"This Jiang Rongxian is quite cunning. When we detained him for questioning, he pretended to be apprehensive and fearful, crying bitterly, but didn't confess a single key thing." Zhao Fengtian continued, "If we hadn't found out about the seals today, he probably would have slipped past, and those illicit money and goods would have been theirs for cheap!"
+"This Jiang Rongxian is quite cunning. When we detained him for questioning, he put on a show of apprehension and fear, crying bitterly, yet didn't confess a single crucial detail." Zhao Fengtian continued. "If we hadn't traced the seals today, he probably would have slipped through, and that illicit fortune would have remained in their hands."
 
-Luo Yangming knew this was Zhao Fengtian "setting the tone" for the Jiang family. However, leadership might "suppress first then praise" or "praise first then suppress," so there was no need to rush to state a position. Thus, he didn't pick up the conversation directly, only saying lukewarmly:
-"Merchants seek only profit; it has been so since ancient times."
+Luo Yangming recognized that Zhao Fengtian was "setting the tone" for the Jiang family. However, leadership might "suppress first then praise" or "praise first then suppress," so there was no need to rush to a position. Thus he responded lukewarmly: "Merchants have always sought only profit—that's been true since ancient times."
 
-Zhao Fengtian couldn't see through Luo Yangming's meaning. His plan was to seize this matter to make a big fuss, pushing the main problems of the Wuzhou riot onto Jiang Yougong and Liu Youwang. So the Jiang siblings became important "witnesses."
+Zhao Fengtian couldn't read Luo Yangming's intent. His plan was to make a major issue of this, pushing the primary blame for the Wuzhou riot onto Jiang Yougong and Liu Youwang. That made the Jiang siblings important "witnesses."
 
-Needless to say, once the case was handled via this path, the fate of the Jiang siblings needed no asking—Jiang Qiuchan was already deeply involved, and now her big brother was clearly involved too. Although they might not lose their lives, the Jiang family was basically finished.
+Needless to say, once the case proceeded along this path, the Jiang siblings' fate required no asking—Jiang Qiuchan was already deeply implicated, and now her elder brother was clearly involved too. Though they might not lose their lives, the Jiang family was essentially finished.
 
-However, Luo Yangming had shown intention to protect Jiang Qiuchan before this. After all, he was a Hidden Cadre of the Political Security Bureau, and his reports could go straight to Lingao. Although this was business, Chief Xie had too many weak spots here. Although he just stated "investigate to the end," if he defied Xie's wishes too much, a report sent up could at worst sideline Chief Xie, but he, the "Chief Secretary," would have to report to Fu Youdi (Director of the Political Security Bureau, though context suggests maybe head of discipline/audit or something similar, likely Fu Youdi is meant to be a terrifying figure).
+However, Luo Yangming had previously shown intention to protect Jiang Qiuchan. After all, he was a Hidden Cadre of the Political Security Bureau, and his reports could go straight to Lingao. Although this was business, Chief Xie had too many vulnerabilities here. Though Luo Yangming had just stated "investigate to the end," if he defied Xie's wishes too much, a report sent up could at worst sideline Chief Xie—but he, the "Chief Secretary," would have to answer to Fu Youdi.
 
-He calculated slightly; Luo Yangming mainly protected Jiang Qiuchan, probably because of his wife's entrustment. There shouldn't be too much interest involvement with the Jiang family itself.
+He calculated briefly. Luo Yangming was mainly protecting Jiang Qiuchan, probably at his wife's request. There shouldn't be much involvement with the Jiang family's interests.
 
-"For Liu Youwang's case, it seems we can only start investigating from the Jiang family." Zhao Fengtian said, "Jiang Qiuchan is a married daughter; she probably can't speak much in the family. She and her brother's cases can be handled separately."
+"For Liu Youwang's case, it seems we can only start investigating from the Jiang family." Zhao Fengtian said. "Jiang Qiuchan is a married daughter—she probably has little say in family affairs. Her case and her brother's can be handled separately."
 
-Luo Yangming nodded: "You are right."
+Luo Yangming nodded. "You're right."
 
-Zhao Fengtian looked at his watch: "It's getting late. I'll go arrange the public trial rally. This is also a heavy scene."
+Zhao Fengtian glanced at his watch. "It's getting late. I'll go arrange the public trial rally. That's quite an undertaking too."
 
-Ever since Yi Haoran agreed to cooperate, the Australians gave him some "preferential treatment," arranging solitary confinement, treating his torture wounds, and providing relatively superior food.
+Ever since Yi Haoran agreed to cooperate, the Australians had granted him some "preferential treatment"—solitary confinement, treatment for his wounds, and relatively superior food.
 
-Sitting idly in the cell, Zhao Fengtian came to see him, holding the Four Treasures of the Study.
+Sitting idle in his cell, he received a visit from Zhao Fengtian, who carried the Four Treasures of the Study.
 
 "Is the gentleman well?"
 
-"My body is very well now." Yi Haoran sneered. "Many thanks for showing mercy."
+"My body is quite well now." Yi Haoran sneered. "Many thanks for showing mercy."
 
-"Not at all, not at all." Zhao Fengtian put down the brush, ink, paper, and inkstone on the table. "This is also each serving his master; presumably the gentleman understands."
+"Not at all." Zhao Fengtian placed the brush, ink, paper, and inkstone on the table. "This is simply each serving his master—presumably the gentleman understands."
 
-"Winners becomes kings, losers become bandits; it is a matter of course since ancient times." Yi Haoran was indifferent for a long time, asking: "Where is Cai Lan now?"
+"Winners become kings, losers become bandits—it has always been thus." Yi Haoran was silent for a long moment before asking, "Where is Cai Lan now?"
 
-"She has already martyred herself." Zhao Fengtian said, "I have arranged to handle her funeral well. Gentleman need not worry."
+"She has already martyred herself." Zhao Fengtian said. "I've arranged to handle her funeral properly. The gentleman need not worry."
 
-"Good." Yi Haoran looked up and sighed. Originally he had little affection for Cai Lan and little apology for dragging her into the water, always regarding her as a "person who should die." But hearing she had committed suicide now, guilt arose spontaneously in his heart.
+"Good." Yi Haoran looked up and sighed. Originally he had felt little affection for Cai Lan and little remorse for dragging her into this, always regarding her as "someone who should die." But hearing now that she had taken her own life, guilt arose spontaneously in his heart.
 
-A bitter-fated woman. Although the Australians attacked without the Way and caused her to be displaced, in the end, it was he who personally forced her to die. No matter how many books of sages and men of virtue Yi Haoran had read, he couldn't defy his own conscience.
+A bitter-fated woman. Though the Australians' unprincipled attack had caused her displacement, in the end it was he who had personally driven her to death. No matter how many books of sages and worthies Yi Haoran had read, he couldn't silence his own conscience.
 
-"As for the whole Luo Yangming family, naturally there is no issue. Even his position in the Aftermath Bureau hasn't been moved. As for Jiang Qiuchan, she was merely used by you and Cai Lan. It was an unintentional fault. After the public trial, some punishment is inevitable, but she won't suffer great sin. In these things, we are trustworthy."
+"As for the entire Luo Yangming family, naturally there's no issue. Even his position in the Aftermath Bureau hasn't been touched. As for Jiang Qiuchan—she was merely used by you and Cai Lan. It was an unintentional fault. After the public trial, some punishment is inevitable, but she won't suffer severely. In these matters, we are trustworthy."
 
-"Many thanks to Mr. Zhao for the trouble." Yi Haoran nodded calmly in thanks. "I wonder how many days this student has left?"
+"Many thanks for your trouble, Mr. Zhao." Yi Haoran nodded calmly in acknowledgment. "I wonder how many days this student has remaining?"
 
 "Three to five days."
 
-"This student's confession hasn't been written yet." Yi Haoran said, "Is there a draft?"
+"This student's confession hasn't been written yet." Yi Haoran said. "Is there a draft?"
 
-Zhao Fengtian came to see him personally for this matter; the specific effort just now was also for this. Seeing him cooperating very well, he took out the draft he drafted from his pocket.
+Zhao Fengtian had come specifically for this purpose; his earlier courtesies had served this end. Seeing Yi Haoran cooperating so readily, he produced the draft from his pocket.
 
-"You just copy according to the draft."
+"Simply copy according to the draft."
 
-Yi Haoran unfolded the draft and couldn't help sniffing at it. He originally saw Zhao Fengtian's behavior and conversation were not bad, thinking he was a scholar. Unexpectedly, not only was the calligraphy crooked and rotten, but the text was also very crude.
+Yi Haoran unfolded it and couldn't help but sniff disdainfully. From Zhao Fengtian's bearing and conversation, he had assumed the man was a scholar. Unexpectedly, not only was the calligraphy crooked and clumsy, but the prose was crude as well.
 
-"This student's confession cannot be written like this." Yi Haoran said slightly proudly, "Wait for me to rewrite it."
+"This student's confession cannot be written this way." Yi Haoran said with a hint of pride. "Allow me to rewrite it."
 
-Immediately he fetched water to grind ink, picked up the brush, and polished it according to the content of the confession, writing a new one.
+He fetched water to grind ink, picked up the brush, and polished the confession according to its content, producing an entirely new version.
 
 "Take it."
 
-Zhao Fengtian took it and looked. Not only was the calligraphy beautiful, but the article was also written wonderfully. He read it through briefly. Except for several metaphors and allusions he couldn't understand, the meaning of the whole piece was clear, not a bit different from the draft he wrote regardless.
+Zhao Fengtian examined it. Not only was the calligraphy beautiful, but the writing was elegant. He read through it briefly. Apart from several metaphors and allusions he couldn't understand, the meaning was entirely clear and didn't differ from his draft in any substance.
 
-"Gentleman indeed has great talent." Zhao Fengtian complimented, putting away both the written confession and the draft. He told Yi Haoran if he had any last words, he might as well write them down. If he wanted to write a testament to his family, the Australians could try to deliver it for him.
+"The gentleman indeed possesses great talent." Zhao Fengtian complimented him, putting away both the written confession and the original draft. He told Yi Haoran that if he had any final words, he might as well write them down. If he wished to write a testament to his family, the Australians could attempt to deliver it for him.
 
-"Is it okay for this student to write anything?"
+"Is this student permitted to write anything?"
 
-"Of course it's okay," Zhao Fengtian said. "Presumably the gentleman still has many words to say; might as well leave them all. In the future, perhaps someone can understand the gentleman's painstaking efforts."
+"Of course," Zhao Fengtian said. "Presumably the gentleman still has much to say—you might as well leave it all. Perhaps in the future, someone will understand the gentleman's intentions."
 
-Zhao Fengtian bid farewell and left, but Yi Haoran's heart surged with thoughts. Although he didn't understand why Zhao Fengtian gave him paper and pen, he indeed had the impulse to write down what he saw, heard, and thought.
+After Zhao Fengtian bid farewell and departed, Yi Haoran's thoughts surged. Though he didn't understand why Zhao Fengtian had given him paper and brush, he indeed felt the urge to record what he had seen, heard, and contemplated.
 
-Yi Haoran had been in Liaodong for many years and followed Sun Chengzong, so he could be called knowledgeable. However, he rarely had the mind to write about Liaodong affairs. Instead, the few years in Xiong Wencan's staff—especially the days after meeting Jiang Suo—gave him many reflections.
+Yi Haoran had spent many years in Liaodong and had followed Sun Chengzong, so he could be called well-informed. Yet he had rarely felt moved to write about Liaodong affairs. Instead, these few years on Xiong Wencan's staff—especially the days after meeting Jiang Suo—had given him much to reflect upon.
 
-The Australians were just a handful of overseas barbarians of unknown origin. Saying "Descendants of Great Song," anyone with a bit of knowledge would sniff at it. If forced to say they were descendants of Hua Xia, maybe they could fit—after all, they had the appearance of Hua Xia commoners, spoke Chinese that was understandable though strange in pronunciation, and wrote Chinese characters... although their Chinese characters were not even as good as those written by a few Koreans Yi Haoran saw in the capital.
+The Australians were merely a handful of overseas barbarians of unknown origin. This claim of being "Descendants of the Great Song"—anyone with a modicum of knowledge would scoff at it. If forced to say they were descendants of Hua Xia, perhaps that could fit—after all, they had the appearance of common Hua Xia people, spoke Chinese that was comprehensible despite strange pronunciation, and wrote Chinese characters... though their Chinese characters weren't even as good as those written by a few Koreans Yi Haoran had encountered in the capital.
 
-It was just such a small handful of people, relying on a big iron ship, who conquered cities and seized land in just ten years, repeatedly defeating government troops. By now they could even sweep across Liangguang, faintly surpassing the Eastern Barbarians (Manchus) and Roving Bandits to become the number one confidant danger of the Imperial Court.
+Yet just such a small handful of people, relying on a great iron ship, had conquered cities and seized land in just ten years, repeatedly defeating government forces. By now they could sweep across Liangguang, faintly surpassing the Eastern Barbarians and Roving Bandits to become the Imperial Court's number one threat.
 
-Ever since he arrived under Governor Xiong, this matter always made him feel incredible. Speaking of the Eastern Barbarians, Old Nu (Nurhaci) was once the Dragon-Tiger General ennobled by the Great Ming, a local tyrant in Jianzhou, and had been sheltered by Li Chengliang for many years. Although he raised the flag to rebel and established a country explicitly, how the Eastern Barbarians rose and succeeded held no mystery for people like Yi Haoran who lived in Liaodong for a long time. Whether Old Nu or the current Huang Taiji, although their systems had unique points, they mostly imitated the Great Ming, copying the gourd.
+Ever since arriving under Governor Xiong, this had always seemed incredible to him. Speaking of the Eastern Barbarians, Old Nu had once been the Dragon-Tiger General ennobled by the Great Ming, a local tyrant in Jianzhou, long sheltered by Li Chengliang. Though he had raised the flag of rebellion and explicitly founded a state, how the Eastern Barbarians rose and succeeded held no mystery for someone like Yi Haoran who had lived in Liaodong for so long. Whether Old Nu or the current Huang Taiji, though their systems had unique aspects, they mostly imitated the Great Ming, copying the gourd.
 
-However, these Kuns coming from the sea were different. From them, Yi Haoran couldn't see half a shadow of the Great Ming—let alone the Great Song.
+But these Kuns coming from the sea were different. In them, Yi Haoran could not see even half a shadow of the Great Ming—let alone the Great Song.
 
-Although Yi Haoran had strong interest in the Kun thieves, he couldn't find the door for a long time. Whether rumors, Australian goods, or Australian books, none could tell him the definite answer. Only until he met Jiang Suo was the door to knowing the Australians truly opened for him. Although Jiang Suo wasn't literate and stayed in the penal colony for a long time among the Australians, his experiences were more than many naturalized citizens. From his mouth, Yi Haoran obtained many deeds and systems of the Australians, and more or less understood how the Kun thieves governed the people, and what those Fake Kuns who willingly attached to the Kuns thought.
+Though Yi Haoran had strong interest in the Kun thieves, he couldn't find the door for a long time. Whether rumors, Australian goods, or Australian books—none could give him a definitive answer. Only upon meeting Jiang Suo was the door to understanding the Australians truly opened. Though Jiang Suo was illiterate and had spent a long time in the penal colony among the Australians, his experiences exceeded those of many naturalized citizens. From him, Yi Haoran learned many deeds and systems of the Australians, and came to roughly understand how the Kun thieves governed the people, and what those Fake Kuns who willingly attached themselves to the Kuns actually thought.
 
-He long had the idea to record his hearings and thoughts about the Kun thieves with a pen. Now, this was probably the last chance.
+He had long wished to record with his brush what he had heard and contemplated about the Kun thieves. Now, this was probably his last chance.
 
-Thinking of this, he sat down at the table and picked up the pen.
+Thinking this, he sat at the table and picked up his brush.
 
 The formal report of the Wuzhou Incident finally arrived in Lingao after the Plague Report.
 
-Because the news of the plague outbreak in Guangzhou was too explosive, it instantly attracted the attention of almost all Senators. So much so that the Wuzhou Incident report was delayed in the Senate for several days before being brought up for discussion.
+Because news of the plague outbreak in Guangzhou was so explosive, it instantly captured the attention of nearly all Senators. Consequently, the Wuzhou Incident report sat delayed in the Senate for several days before being raised for discussion.
 
-Probably because the news was too impactful, and the Senators immersed under the huge threat of the plague hadn't recovered yet, the Senate was completely dazed when this matter was raised.
+Perhaps because the news was so impactful, and Senators immersed in the enormous threat of the plague hadn't yet recovered, the Senate seemed completely dazed when this matter was brought up.
 
-Probably knowing this matter was significant, and even more afraid that expressing opinions rashly would be seized by opponents as handles, the various factions in the Senate actually didn't rush to state their positions, only saying some absolutely correct clichés of "serious concern."
+Perhaps knowing the matter was significant, and fearing that hasty opinions might be seized as ammunition by opponents, the various factions in the Senate actually refrained from rushing to state positions, offering only safe platitudes of "serious concern."
 
-In the end, the only resolution reached by the Senate regarding this matter was to immediately establish a Wuzhou Incident Investigation Team to rush to Wuzhou to investigate the course of events.
+In the end, the only resolution the Senate reached regarding this matter was to immediately establish a Wuzhou Incident Investigation Team to travel to Wuzhou and investigate the sequence of events.
 
-However, on the key issue of who would serve as the investigator, all parties had considerable debate. Finally, it was decided that this thorny case would be investigated by Ji Xin—after all, he handled the maid disturbance back then, and all parties were satisfied with his integrity and investigation conclusions.
+However, on the crucial question of who would serve as investigator, all parties debated considerably. Finally, it was decided that this thorny case would be investigated by Ji Xin—after all, he had handled the maid disturbance back then, and all parties were satisfied with his integrity and conclusions.
 
-Because this matter also involved the issue of insiders, the Political Security Bureau sent Chen Baibin, who had served in the internal investigation work of the Hangzhou Station, to assist his work. After all, the handling of the Hangzhou Station back then was also quite subtle. Although Chen Baibin wasn't responsible for drawing the final conclusion, everyone was generally satisfied with his investigation, and he counted as a non-controversial figure.
+Because this matter also involved the insider issue, the Political Security Bureau sent Chen Baibin, who had served in internal investigation work at the Hangzhou Station, to assist. After all, the handling of the Hangzhou Station affair had also been quite delicate. Though Chen Baibin wasn't responsible for drawing the final conclusion, everyone was generally satisfied with his investigation, and he was considered an uncontroversial figure.
 
-"Presumably you can also see that the inside story of the Wuzhou Incident is probably not that simple." Xiao Zishan invited Ji Xin to the General Office for "tea and chat" before Ji Xin's departure.
+"Presumably you can also see that the inside story of the Wuzhou Incident is probably not that simple." Xiao Zishan invited Ji Xin for "tea and a chat" at the General Office before his departure.
 
-"Indeed not simple, but not complicated to the point of being confusing and blurred." Ji Xin said frankly, "I think, on the contrary, many people view the matter as too complicated."
+"Indeed not simple, but not so complicated as to be unfathomable." Ji Xin said frankly. "I think, on the contrary, many people are viewing the matter as too complicated."
 
-"Perhaps." Xiao Zishan nodded to express seconding. "Now everyone knows not to express opinions easily. Even Shan Liang and the others have to wait and see the wind direction."
+"Perhaps." Xiao Zishan nodded in agreement. "Right now everyone knows not to express opinions easily. Even Shan Liang and the others are waiting to see which way the wind blows."
 
-"They think too much, so naturally they are hesitant." Ji Xin smiled slightly. "Actually, this matter is nothing. No matter how everyone considers and weighs it, there is always only one truth."
+"They think too much, so naturally they hesitate." Ji Xin smiled slightly. "Actually, this matter is nothing special. No matter how everyone calculates and weighs, there is always only one truth."
 
 **(End of Chapter)**
