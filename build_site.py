@@ -27,6 +27,14 @@ HTML_TEMPLATE = """<!DOCTYPE html>
     <meta name="viewport" content="width=device-width, initial-scale=1.0">
     <title>{title}</title>
     <link rel="stylesheet" href="{root_path}style.css">
+    <!-- Google tag (gtag.js) -->
+    <script async src="https://www.googletagmanager.com/gtag/js?id=G-8CFYRY46VP"></script>
+    <script>
+      window.dataLayer = window.dataLayer || [];
+      function gtag(){{dataLayer.push(arguments);}}
+      gtag('js', new Date());
+      gtag('config', 'G-8CFYRY46VP');
+    </script>
 </head>
 <body>
     <header>
