@@ -1,134 +1,136 @@
 # Chapter 29: The Disappearance of Director Wen
 
-"My head's so heavy..." Xiao Zishan awoke from sleep feeling dizzy and profoundly uncomfortable. These past few days he had been sleeping remarkably well—Ming-era Guangzhou had not only fresh air but no early-morning roar of cars. Sleep had been remarkably sweet.
+"My head..." Xiao Zishan groaned as consciousness dragged him unwillingly from sleep. His skull felt packed with wet sand, and a nauseating heaviness pressed behind his eyes. Strange—these past few days he'd been sleeping better than he had in years. Ming-era Guangzhou offered clean air and blissful silence, unmarred by the early-morning roar of traffic. Sleep here came deep and sweet.
 
-Earlier, during their crossing trades, everyone had been too nervous to spend the night in the Ming dynasty. Before nightfall they would always leave, preferring to return another day. But now, as their business and connections grew more established, the work to be done on the Ming side increased daily. To extend the wormhole's lifespan, staying a few days after each crossing had become routine. Moreover, these days they could live decadently with servants attending to their every need—there was almost a feeling of never wanting to leave.
+In the early days of their crossing trades, everyone had been too anxious to spend nights in the Ming dynasty. They would conclude their business before nightfall and return, preferring the familiarity of the modern world. But as their operations expanded and their connections with local merchants solidified, the work on this side of the wormhole demanded longer stays. To preserve the passage's lifespan, lingering for a few days after each crossing had become routine. Besides, there was something dangerously seductive about living like lords with servants attending their every need. Sometimes Xiao Zishan caught himself never wanting to leave.
 
-But today his head was terribly heavy. He forced his eyes open; beyond the gauze window, after the rain, bright sunshine flooded in. It looked close to ten o'clock. He felt puzzled—in this era with no television or internet, even when everyone discussed and chatted together, they went to bed early, so each morning they naturally woke around seven. Why so late today?
+But this morning was different. He forced his eyes open. Beyond the gauze window, post-rain sunlight flooded the room with a brilliance that suggested mid-morning—close to ten o'clock, he guessed. That made no sense. In this era without television or internet, even their longest evening discussions wound down early, and everyone naturally rose around seven. Why had he slept so late?
 
-He sat up and surveyed the room—and was shocked. The room was a chaotic mess; nearly every drawer and cabinet had been opened; things were strewn across the floor.
+He pushed himself upright—and froze. The room had been ransacked. Every drawer gaped open, every cabinet door flung wide. His belongings lay scattered across the floor in chaotic heaps.
 
-*Robbed!*
+*Robbed.*
 
-The thought flashed immediately. He grew anxious—the cash and goods from this trade were still piled in the room! If... He hardly dared think about it. He hurried to dress and put on shoes—and suddenly realized his socks and hiking boots were missing! They'd actually been robbed! Some woven straw slippers sat in a corner; he quickly put them on, threw on his clothes, and hurried out.
+The word struck like ice water. Panic surged through him—the cash and merchandise from this trade were still stored in the compound. If those were gone... He scrambled to dress, reaching for his shoes—and found them missing. His socks and hiking boots had vanished. They'd actually been robbed. He spotted a pair of woven straw slippers in the corner, jammed his feet into them, threw on his clothes, and rushed outside.
 
-The moment he stepped outside, he saw Beiwei rushing from his room. Xiao Zishan noticed Beiwei was also wearing straw slippers—his combat boots were gone!
+He nearly collided with Beiwei in the courtyard. One glance at Beiwei's feet confirmed his fears—straw slippers. The combat boots were gone.
 
-"Something happened!" Beiwei said, succinct and to the point.
+"Something happened," Beiwei said flatly.
 
-"What happened?"
+"What?"
 
-"Director Wen is missing!"
+"Director Wen is missing."
 
-"What!" The words left Xiao Zishan's hands and feet ice-cold. Director Wen missing! This wasn't twenty-first-century Guangzhou where Director Wen knew people everywhere and "China's safest city" police were on call—in seventeenth-century Guangzhou, beyond these walls, they didn't know a single person. They didn't even know which direction to flee.
+The words turned Xiao Zishan's blood to ice. Director Wen—missing. This wasn't twenty-first-century Guangzhou, where Director Wen knew half the city and could summon the police with a phone call. This was seventeenth-century Guangzhou. Beyond these walls, they knew no one. They didn't even know which direction to run.
 
-The two ran frantically from room to room. Engineer Wang was still fast asleep. At the servants' quarters in the third courtyard, Gao Qing's family and Sun Chang were also deep in slumber. They woke everyone up—all were dizzy and nauseous. Gao Lujie and Gao Di wouldn't wake no matter how they called and shook them. While they fumbled about, Sun Chang suggested washing faces with cold water.
+The two men tore through the compound, checking room after room. Engineer Wang lay in deep, unnatural slumber. In the servants' quarters of the third courtyard, they found Gao Qing's family and Sun Chang equally comatose. They roused everyone they could—all complained of dizziness and nausea. Gao Lujie and Gao Di wouldn't wake no matter how much they were shaken or called.
 
-"Master Xiao, something's very wrong." Sun Chang watched as Gao Qing's family scrambled to bring water. Only after washing did everyone begin to feel slightly clearer.
+"Master Xiao," Sun Chang said as they fumbled about in confusion, "try cold water on the face."
 
-"What?!"
+Gao Qing's family scrambled to fetch basins. Only after splashing their faces did anyone's head begin to clear.
 
-"This is clearly knockout incense poisoning."
+"This is very wrong," Sun Chang said, studying their symptoms with grim recognition.
 
-"Knockout incense?" For some reason, the first image that popped into Xiao Zishan's mind was Sun Erniang from the *Water Margin*.
+"What is it?"
 
-"Yes, knockout incense." Sun Chang had wandered from his famine-stricken hometown to Guangzhou, begging along the way. He had seen much of the *jianghu* underworld. "Are the masters missing anything?"
+"Knockout incense poisoning. Without question."
 
-This reminder sent both of them sprinting to the west chamber of the middle courtyard. This room served as their main warehouse and crossing point; the Executive Committee had made some non-period modifications here—bricking up windows and extra doors, and creating a fortified inner chamber using barbed-wire-wrapped steel fencing and a security door. Xiao Zishan saw that the padlock on the outer wooden door was missing; his heart sank. He pushed the door open—the steel grating and security door were intact; a full cartload of goods was still neatly stacked. He exhaled in relief.
+The words conjured an immediate image in Xiao Zishan's mind: Sun Erniang from the *Water Margin*, drugging travelers at her roadside inn.
 
-It seemed the thieves hadn't succeeded. Twenty-first-century security measures still worked. The problem was they had lost Director Wen! That was far worse than losing goods or money. Money could be earned back, but losing a living person in the Ming Dynasty—that was another matter entirely.
+Sun Chang had wandered far from his famine-stricken hometown, begging his way to Guangzhou. He had seen much of the *jianghu* underworld along the road. "Are the masters missing anything of value?"
 
-"Who could have taken Director Wen?" Xiao Zishan's mind raced like a windmill. Was this a random incident or premeditated? Hard to say. If premeditated, only the Gao household knew they were here; otherwise they had no other contact with the entire city. What would Gao household people gain from kidnapping Director Wen? If random, could some master thief have broken in for valuables, failed, and simply taken Director Wen hostage? That was also possible.
+The question sent Xiao Zishan and Beiwei sprinting to the west chamber of the middle courtyard. This room served as their primary warehouse and crossing point. The Executive Committee had made certain non-period modifications here: windows and extra doors bricked shut, and the interior fortified with a cage of barbed-wire-wrapped steel fencing and a modern security door. As they approached, Xiao Zishan's heart sank—the padlock on the outer wooden door was gone. He shoved the door open and exhaled with relief. The steel grating stood intact, the security door undisturbed. A full cartload of goods remained neatly stacked inside.
 
-The three searched Director Wen's room repeatedly but found nothing conclusive. His clothes, shoes, and hat were all gone—and his stab-resistant vest that he always wore on crossings, his pepper spray, his stun gun—were all missing too.
+The thieves had failed to breach their twenty-first-century defenses. But the relief was hollow. They had lost Director Wen—and that was infinitely worse than losing merchandise or money. Money could be earned back. A living person, lost somewhere in the Ming Dynasty? That was another matter entirely.
 
-After looking for a while, Xiao Zishan couldn't help saying:
+"Who could have taken him?" Xiao Zishan's mind churned through possibilities. Random crime or premeditated attack? Impossible to say. If premeditated, only the Gao household knew they were staying here—they had no other contacts in the entire city. But what would Gao Ju's people gain from kidnapping Director Wen? If random, perhaps some master thief had broken in seeking valuables, failed to crack the security measures, and snatched Director Wen as a consolation prize. That seemed plausible enough.
 
-"Old Bei, see anything? Aren't you a recon soldier?"
+They searched Director Wen's room again and again but found nothing conclusive. His clothes, shoes, and hat were all gone—along with the stab-resistant vest he always wore on crossings, his pepper spray, and his stun gun.
 
-Beiwei spread his hands. "I'm a recon soldier, not a detective. We need someone from criminal investigation."
+After another fruitless sweep, Xiao Zishan turned to Beiwei. "See anything useful? Aren't you supposed to be a recon soldier?"
 
-"Let's find someone in criminal investigation. Ran Yao used to be a police officer." Xiao Zishan remembered.
+Beiwei spread his hands. "Recon soldier, not detective. We need someone from criminal investigation."
 
-"Get him over here quickly. And those mystery buffs who haunt the detective-novel forums—bring a few of them too." Engineer Wang saw Gao Xian about to come in and clean up. He immediately shouted: "Don't move! Preserve the scene!" Gao Xian fled in fright.
+"Then let's get one. Ran Yao used to be a police officer."
 
-After discussion: Engineer Wang would first take the goods and money back through the crossing and report to the Executive Committee, then summon professionals to examine traces. Xiao Zishan and Beiwei would stay here to investigate.
+"Get him here fast," Engineer Wang agreed. "And those mystery buffs who haunt the detective-novel forums—bring a few of them too." He spotted Gao Xian approaching with cleaning supplies and shouted: "Don't move anything! We need to preserve the scene!" Gao Xian fled in alarm.
 
-Xiao Zishan called Gao Qing's family and Sun Chang over, questioning them about anything unusual that had happened recently, including at the Gao mansion. After much questioning, he learned only from Sun Chang that: recently a "Young Eunuch Yang" from Beijing was coming to visit Master Gao, and Master Gao seemed to have something on his mind.
+After quick deliberation, they formed a plan: Engineer Wang would take the goods and cash back through the crossing, report to the Executive Committee, and summon professionals to examine the evidence. Xiao Zishan and Beiwei would remain to investigate.
 
-Gao Qing learned of this and became even more worried; he retreated to the front courtyard to sweep. Sun Chang remained calmer; he came forward to report: "There's no need to panic yet. If the thieves have kidnapped Master Wen, they'll surely send a letter. At that time, whether to report to officials or pay ransom, the masters can decide."
+Xiao Zishan summoned Gao Qing's family and Sun Chang, questioning them about anything unusual that had occurred recently—including events at the Gao mansion. After much probing, Sun Chang offered the only lead worth noting: a "Young Eunuch Yang" from Beijing had been visiting Master Gao lately, and the old merchant seemed to have something weighing on his mind.
 
-"Report to officials?" Xiao Zishan smiled bitterly. They were all "illegal entrants"—how could they involve Ming Dynasty authorities? Besides, he knew ancient law-enforcement mentality: unless it was armed murder or arson in broad daylight, the officials couldn't be bothered—not without being heavily bribed. In that case, they might as well just pay the ransom.
+This news only deepened Gao Qing's anxiety; he retreated to the front courtyard to sweep and calm his nerves. Sun Chang remained more composed. "There's no need to panic just yet," he counseled. "If the thieves have kidnapped Master Wen, they'll send a ransom letter. When that arrives, the masters can decide whether to pay or involve the authorities."
 
-"Yes," Sun Chang said quietly. "The masters are not Ming subjects and shouldn't appear publicly. But you could ask Master Gao to handle it and have the officials deal with it quietly." He glanced at Xiao Zishan. "Master Gao's word carries weight in the Prefecture and both counties."
+"Involve the authorities?" Xiao Zishan laughed bitterly. They were all illegal entrants to this era—how could they possibly bring in Ming officials? Besides, he understood ancient law enforcement well enough: unless the crime involved armed murder or arson in broad daylight, officials couldn't be bothered to act without substantial bribes. At that point, they might as well just pay the ransom directly.
 
-"Mm." Xiao Zishan was noncommittal, but suspicion grew in his heart. Before Sun Chang arrived, everything had been normal; he'd been here a few days and Director Wen vanished...
+"True," Sun Chang said quietly. "The masters are not Ming subjects and shouldn't appear publicly. But you could ask Master Gao to handle the matter—have him deal with the authorities discreetly." He glanced at Xiao Zishan. "Master Gao's word carries considerable weight in the Prefecture and both counties."
 
-As he was pondering, Beiwei walked in. Sun Chang quickly withdrew.
+Xiao Zishan gave a noncommittal grunt, but suspicion coiled in his chest. Before Sun Chang's arrival, everything had been perfectly normal. The man had been here only a few days, and now Director Wen had vanished...
 
-"Found traces!"
+As he mulled this over, Beiwei strode in. Sun Chang quickly withdrew.
 
-"Oh? Where?" Xiao Zishan perked up.
+"Found something," Beiwei announced.
 
-"The group came in by climbing the wall from the small lane behind the third courtyard. They knocked off a lot of tiles from the wall coping—scattered on the ground. There are also friction marks on the wall."
+Xiao Zishan straightened. "Where?"
+
+"They came in by climbing the wall from the small lane behind the third courtyard. Knocked off a bunch of tiles from the wall coping—scattered all over the ground. There are friction marks on the wall face too."
 
 "And they left the same way?"
 
-"Yes, they went back the way they came. I checked other spots—no wall-climbing marks elsewhere."
+"Same route out. I checked other spots around the perimeter—no wall-climbing marks anywhere else."
 
-"I recall Master Gao saying the back lanes are all locked at the intersections with wooden gates—ordinary people can't get in."
+"I remember Master Gao mentioning that the back lanes are locked at each intersection with wooden gates. Ordinary people can't get in."
 
-"I don't think they came from there," Beiwei said. "The front entrance uses main roads—too conspicuous. If I were doing this, I'd come over the city wall."
+"I don't think they came through the lanes," Beiwei said. "The front entrance uses main roads—too conspicuous for this kind of work. If I were running this operation, I'd come over the city wall."
 
 "The city wall?"
 
-"Yes. The back courtyards of all these houses abut the city wall." Beiwei nodded. "Though there are no ramps up or down, the wall is virtually deserted during normal times. Once you're up there, it's like a highway circling the entire city."
+"The back courtyards of all these houses butt right up against it." Beiwei nodded. "There are no ramps up or down, but the wall is virtually deserted most of the time. Once you're up there, it's like a highway circling the entire city."
 
-"Right, right—that's very possible!"
+"That makes sense. That makes a lot of sense."
 
-"The other day when someone tried to sneak in and eavesdrop, I threw a rock. That person ran off toward the city wall. I think it's probably the same group."
+"Remember when someone tried to sneak in and eavesdrop the other day? I threw a rock at them. That person ran off toward the city wall. I think we're dealing with the same group."
 
-"So it was premeditated. But who would do this?"
+"So this was premeditated. But who would do this? And why?"
 
-"That I don't know. Anyway, we need to get Director Wen back first. We'll decide after the professionals come to examine the scene."
+"No idea. But we need to get Director Wen back first. We'll figure the rest out once the professionals arrive to examine the scene."
 
-"Right. We should also notify Gao Ju and ask him to help look. He is the local strongman after all—he knows people."
+"Agreed. We should also notify Gao Ju and ask him to help search. He's the local strongman—he knows people."
 
-"Could Gao Ju be involved?"
+"What if Gao Ju is involved?"
 
-"Probably not—what good would kidnapping Director Wen do him?"
+"I doubt it. What would he gain from kidnapping Director Wen?"
 
-"Can't rule it out though. Let me check around again. Damn, my knife is gone too!" Beiwei fumed. He had paid good money for that blade on a sword-collecting website—now it, along with his 3515-brand '02 combat boots, had vanished.
+"Still can't rule it out." Beiwei's expression darkened. "Damn it, my knife is gone too." He'd paid good money for that blade on a sword-collecting website. Now it had vanished along with his 3515-brand military boots.
 
-Xiao Zishan sat in the study, repeatedly thinking through the cause and effect. No matter how he analyzed it, Master Gao was the prime suspect—after all, only he knew they lived here. But what was the motive? Xiao Zishan firmly believed everything in this world had a motive. What did Gao Ju hope to gain? Extorting money? He was already making good money from their trade. That didn't add up. Perhaps he wanted to use Director Wen as a hostage to guarantee exclusive monopoly on all Australian goods going forward—that was possible. But then there was no need for such elaborate measures: wall-climbing, knockout incense...
+Alone in the study, Xiao Zishan sat turning the puzzle over in his mind. No matter how he analyzed it, Master Gao remained the prime suspect—he was the only one who knew they lived here. But what was the motive? Xiao Zishan believed firmly that everything in this world had a motive. What could Gao Ju hope to gain? Extortion seemed pointless; the merchant was already profiting handsomely from their trade. Perhaps he wanted to use Director Wen as leverage to guarantee exclusive monopoly on all Australian goods going forward—that was conceivable. But even so, why resort to such elaborate measures? Wall-climbing, knockout incense...
 
-Wall-climbing, knockout incense...
+Wall-climbing. Knockout incense.
 
-When you got down to it, this was the work of *jianghu* underworld figures!
+When you stripped it down, this was the work of *jianghu* professionals.
 
-Xiao Zishan began to understand. He called Sun Chang back in.
+Understanding began to crystallize. Xiao Zishan called Sun Chang back.
 
-"Are you familiar with the street gangs and underworld rats of Guangzhou?"
+"Are you familiar with the street gangs and underworld elements in Guangzhou?"
 
-"No," Sun Chang reported. "I'm not a local, and I'm not Cantonese. Besides, I've always worked in the Gao mansion; the Gao family scrutinizes the backgrounds of all household servants very strictly. Anyone connected with unsavory elements is never hired."
+"No," Sun Chang replied. "I'm not a local, and I'm not Cantonese. Besides, I've always worked within the Gao mansion. The family scrutinizes the backgrounds of all household servants very strictly—anyone with connections to unsavory elements is never hired."
 
-Xiao Zishan nodded. This statement largely cleared Sun Chang of suspicion. Sun Chang hesitated a moment, seeming to have more to say. Xiao Zishan said: "If you have something to say, say it. I believe in trusting those I employ and employing those I trust."
+Xiao Zishan nodded. That statement went a long way toward clearing Sun Chang of suspicion. The servant hesitated, seeming to have more to say.
 
-"Yes!" Encouraged, Sun Chang spoke up. "I have an idea."
+"If you have something on your mind, speak freely," Xiao Zishan said. "I believe in trusting those I employ and employing those I trust."
 
-"Go ahead."
+"Yes, Master." Encouraged, Sun Chang spoke. "I have a suggestion."
 
-"In Nanhai County, there's an escort agency called the Qiwei Escort Bureau." Sun Chang said. "It's a small bureau; their routes aren't long. But they have a specialty: 'store-sitting.'"
+"Go on."
+
+"In Nanhai County, there's an escort agency called the Qiwei Escort Bureau. It's a small operation—their routes aren't long. But they have a specialty: 'store-sitting.'"
 
 "Store-sitting?"
 
-"Yes. The masters may not know: shopkeepers are often harassed and extorted by street thugs, so they hire escort guards to sit in the shop and keep order."
+"Yes. The masters may not know: shopkeepers are often harassed and extorted by street thugs, so they hire escort guards to sit in their shops and keep order."
 
-"Like security guards." Xiao Zishan understood.
+"Like security guards," Xiao Zishan said, understanding.
 
-Sun Chang didn't know what "security guards" meant, so he just said "yes" and continued:
-
-"Escort guards who sit in shops know the street thugs and lowlifes very well. If we ask for their help, they can definitely find out information. If this was just ordinary underworld rats, they might even be able to rescue the hostage."
+Sun Chang didn't recognize the term but agreed anyway and continued: "Escort guards who sit in shops know the local street thugs and lowlifes intimately. If we engage their help, they can certainly gather information for us. And if this was the work of ordinary underworld rats, they might even be able to rescue the hostage."
 
 ---
 

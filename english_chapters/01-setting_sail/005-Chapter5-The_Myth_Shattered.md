@@ -2,47 +2,47 @@
 
 The seventh year of Tianqi—1627 AD.
 
-This month, the Later Jin attacked Joseon, forcing the Korean kingdom to submit. The Great Ming's eastern tributary had fallen into Jurchen hands.
+That spring, the Later Jin swept into Joseon and forced the Korean kingdom to its knees. The Great Ming's eastern tributary had fallen into Jurchen hands. By May, Hong Taiji had laid siege to Ningyuan and Jinzhou, only to be driven back by Ming defenders in what history would remember as the Great Victory of Ningyuan and Jinzhou. But victory bred cunning: Hong Taiji resolved to change tactics entirely, bypassing the Ningyuan-Jinzhou-Shanhaiguan defensive line to strike directly through the mountain passes. Over the next seventeen years of the Chongzhen reign, he would breach those passes five times, bringing devastation to the Central Plains and heaping fresh calamity upon an empire already staggering toward collapse.
 
-In May, Hong Taiji besieged Ningyuan and Jinzhou but was repelled by Ming forces—what came to be known as the Great Victory of Ningyuan and Jinzhou. Hong Taiji thereupon changed strategy, resolving to bypass the Ningyuan-Jinzhou-Shanhaiguan defensive line and invade directly through the passes. Over the next seventeen years of the Chongzhen reign, he would breach the passes five times, bringing devastation to the Central Plains and heaping calamity upon the already tottering Great Ming.
+In July, the Tianqi Emperor fell gravely ill, and the all-powerful "Nine-Thousand-Year-Old" began his precipitous fall from grace. By November, Wei Zhongxian had been stripped of his property and driven to take his own life. The eunuch faction's destruction cast a fleeting ray of hope across the political sky of the late Ming—but it vanished as quickly as a meteor. Cutting away one festering sore could not resurrect a patient already rotting from within. The Great Ming—the last Han Chinese dynasty of the Central Plains—was beyond saving, already set upon the road to ruin.
 
-In July, the Tianqi Emperor fell gravely ill, and the all-powerful "Nine-Thousand-Year-Old" began his fall from grace. That November, Wei Zhongxian was stripped of his property and took his own life. The destruction of the eunuch faction brought a fleeting ray of hope to the political sky of the late Ming—then vanished like a meteor. Cutting away one festering sore could not resurrect a patient already rotting from head to toe. The Great Ming—the last Han Chinese dynasty of the Central Plains—was beyond saving, set upon the road to ruin.
+The three transmigrators fell silent. The atmosphere turned heavy with the weight of what they knew.
 
-The three transmigrators fell silent for a moment. The atmosphere grew heavy.
+Master Gao gave a light cough, stroked his beard, and asked in an unhurried tone: "Since our honored guests are sea merchants, might you have goods for sale?"
 
-Master Gao gave a light cough, stroked his beard, and asked slowly: "Since our honored guests are sea merchants, might you have goods for sale?"
+Wen Desi and Xiao Zishan exchanged a glance—at last, they were getting to the point. Master Gao noticed that glance keenly.
 
-Wen Desi and Xiao Zishan exchanged a glance—now they were getting to the point. That glance was keenly noticed by Master Gao.
+"We do indeed have some goods we wish to sell," Wen Desi said, affecting reluctance. "But having just arrived, we're unfamiliar with the proper channels..."
 
-"We do indeed have some goods we wish to sell," Wen Desi feigned difficulty. "But having just arrived, we are unfamiliar with the channels..."
+Master Gao chuckled. "That's easily managed. I've been in the foreign-goods trade here in Guangzhou for many years. If you'd place your trust in me, I'd be happy to serve as your broker."
 
-"Ha ha, that's easily managed," Master Gao laughed. "I have been in the foreign-goods trade in this city of Guangzhou for many years. If you trust me, I could be of service."
+"Then we shall trouble Master Gao." Wen Desi could not hide his delight.
 
-"Then we shall trouble Master Gao." Wen Desi was delighted.
+Xiao Zishan spoke softly as he began removing items from his backpack, one by one: "These are samples of our wares."
 
-"These are samples of our wares." Xiao Zishan spoke softly, taking items out of his backpack one by one.
+Having already seen the powder compact, Master Gao held great interest in what else they might produce. First came another compact like the one before, though this one bore a pale, sickly green hue. Then a completely transparent glass cup etched with pretty patterns. Its clarity far exceeded any cup Master Gao had ever seen, yet glass was glass—it did not exceed his frame of reference, and he felt a twinge of disappointment. Next came several pieces of what appeared to be porcelain: bowls and dishes of unremarkable shape and glaze. Picking one up, he found it surprisingly light; the texture lacked the familiar chill of true porcelain, and he realized it must be something else entirely. He was just thinking the object had little value when Xiao Zishan, as if reading his thoughts, swept the bowls and dishes off the table with a dramatic gesture.
 
-Having seen the powder compact, Master Gao held great interest in their merchandise. First came a compact like the one before, only in a pale, sickly green. Then a completely transparent glass cup bearing some pretty patterns. Though this cup's transparency far exceeded any cup Master Gao had ever seen, it did not exceed his frame of reference, so he was somewhat disappointed. Next came several pieces of various porcelain—their shapes and glazes unremarkable. Picking one up, he found it very light; the texture lacked the chill of porcelain, so he knew it was something else entirely. Just as he was thinking this object had little value, Xiao Zishan, as if reading his thoughts, swept the bowls and dishes off the table. Master Gao startled—but saw that these things did not shatter on the brick floor; they merely spun a few times and remained completely intact.
+Master Gao startled—but the pieces did not shatter on the brick floor. They merely spun a few times and came to rest, completely intact.
 
-A nearby servant hurried to pick them up. Master Gao snatched them away and examined each piece for a long time—not a crack or chip to be found. *These people's goods are strange indeed*, he thought.
+A nearby servant hurried to retrieve them, but Master Gao snatched the pieces away and examined each one at length. Not a crack or chip to be found. *These people's goods are strange indeed*, he thought.
 
-Then came some transparent boxes, some square, some round, all fitted with lids that sealed tightly. They resembled glassware Master Gao had purchased from the Folangjiren, but weighed far less and didn't break.
+More items followed: transparent boxes of various shapes, some square, some round, all fitted with lids that sealed tightly. They resembled glassware Master Gao had purchased from the Folangjiren, but weighed far less and wouldn't break. There were shiny little knives, a hooded poncho made of some material that looked like glass yet repelled water like oilcloth—all manner of curious things.
 
-There were also shiny little knives, a hooded poncho made of some material that looked like glass yet was waterproof like oilcloth... all sorts of curious things. Master Gao surveyed the table laden with goods, equal parts astonished and delighted. Delighted that these were rare treasures he could resell at good prices; wary that these people behaved furtively and their background was unclear. After a moment's hesitation, the desire for profit overcame his misgivings. Besides, his own business was foreign trade and smuggling—what did it matter whether they were Folangjiren or Australians? Since they had come to his residence, it made no sense to turn away windfall profit.
+Master Gao surveyed the table now laden with goods, caught between astonishment and delight. Delight, because these were rare treasures he could resell at handsome prices. Wariness, because these people behaved furtively and their origins remained unclear. After a moment's hesitation, the desire for profit won out. Besides, his business *was* foreign trade and smuggling—what did it matter whether they were Folangjiren or Australians? Since they had come to his residence, it made no sense to turn away such windfall profit.
 
-"What price do you wish for these rare goods?" Master Gao asked carefully, having made up his mind.
+"What price do you wish for these rare goods?" Master Gao asked carefully, his mind made up.
 
-Wen Desi pointed to the glass cup—that staple treasure of time-travel novels—and said: "One thousand taels per cup."
+Wen Desi pointed to the glass cup—that legendary staple treasure of time-travel novels—and declared: "One thousand taels per cup."
 
-The three expected this fair, refined Ming-era gentleman to purchase such a priceless rarity without hesitation. Instead, they saw his face fill with astonishment, as if looking at madmen.
+The three expected this refined Ming-era gentleman to purchase such a priceless rarity without hesitation. Instead, his face filled with astonishment, as if he were looking at madmen.
 
-"That is... truly too dear." Master Gao shook his head repeatedly. "Such glassware is also brought by the Folangjiren from Aomen. Large glass bowls and bottles fetch no more than three taels apiece. Small ones, only about a tael. This cup..." He shook his head again—implying three taels at most.
+"That is... truly too dear." Master Gao shook his head repeatedly. "Such glassware is also brought by the Folangjiren from Aomen. Large glass bowls and bottles fetch no more than three taels apiece—small ones, only about a tael. This cup..." He shook his head again, the implication clear: three taels at most.
 
-The three felt as though cold water had been poured over them. They stared at each other: so the legendary must-have time-travel commodity—the glass cup—was not actually valuable...
+The three felt as though cold water had been dashed over their heads. They stared at one another in dismay: the legendary must-have time-travel commodity—the glass cup—was not actually valuable.
 
-Seeing the negotiation was about to fall apart, Xiao Zishan surmised that their estimates had been off. He cupped his hands and said: "Having lived overseas for so long, we are ignorant of local prices. May we ask Master Gao for guidance?"
+Seeing the negotiation about to collapse, Xiao Zishan surmised that their estimates had been wildly off. He cupped his hands and said: "Having lived overseas for so long, we are ignorant of local prices. Might we ask Master Gao for his guidance?"
 
-Gao Ju understood this was an invitation for him to name his own prices. He pondered, then gave his figures:
+Gao Ju understood this as an invitation to name his own prices. He pondered for a moment, then offered his figures:
 
 - Powder compact: ten taels of silver each.
 - Glass cup: one tael each.
@@ -51,23 +51,23 @@ Gao Ju understood this was an invitation for him to name his own prices. He pond
 - Plastic raincoat: one *qian* each.
 - Small knives: five *qian* each.
 
-The traditional transmigrator's money-printing device—the glass cup—had utterly failed! From a thousand taels down to one—the drop was too enormous. Diamonds had become... well, glass.
+The traditional transmigrator's money-printing device—the glass cup—had utterly failed. From a thousand taels down to one: the drop was staggering. Diamonds had become... well, glass.
 
-On the other hand, the unassuming little plastic compact had suited the Ming-era merchant's appetite quite well. It was a lesson that assumptions had no place in business. Xiao Zishan asked about the maritime trade in Guangzhou, casually probing for the other party's views on their merchandise.
+The unassuming little plastic compact, on the other hand, had suited the Ming-era merchant's appetite quite well. It was a lesson that assumptions had no place in business.
 
-It turned out that Guangzhou's overseas trade was monopolized by the Folangjiren. No matter where foreign merchants came from, their ships could only anchor in Aomen, where they awaited measurement and taxation before selling their goods. Only Folangjiren merchants could enter Guangzhou to trade. In the city, there were the Thirty-Six Hongs specializing in export goods—they did business with the Folangjiren, ordering vast quantities of porcelain, raw silk, sugar, and other products each year.
+Xiao Zishan asked about the maritime trade in Guangzhou, casually probing for the merchant's views on their merchandise. It emerged that overseas trade in Guangzhou was monopolized by the Folangjiren. No matter where foreign merchants hailed from, their ships could only anchor in Aomen, where they awaited measurement and taxation before selling their goods. Only Folangjiren merchants could enter Guangzhou proper to trade. Within the city, the Thirty-Six Hongs specialized in export goods—they did business with the Folangjiren, ordering vast quantities of porcelain, raw silk, sugar, and other products each year.
 
-Master Gao and his fellow Haopan Street merchants, however, operated by a different system. Though Gao did not spell it out, Xiao Zishan had read about it in later-period documents.
+Master Gao and his fellow Haopan Street merchants, however, operated by a different system entirely. Though Gao did not spell it out, Xiao Zishan had read about their methods in later-period documents.
 
-What interested Master Gao most was the mirror inside the compact. He explained that such things were occasionally brought by Folangjiren traders; large mirrors could fetch hundreds of taels. Their small mirrors were indeed small, but far clearer and brighter than the Western ones. If they could bring larger sizes, price would not be an issue. As for the "soft porcelain"—the melamine dishes—in terms of texture, feel, and pattern, there was nothing remarkable; their only virtue was their lightness and unbreakability. The "soft glass bowls"—plastic lunch boxes—though unbreakable, lacked the crystalline brilliance of glass bowls. As for the plastic raincoat and knives, in Master Gao's view, these were mere trifles.
+What interested Master Gao most was the mirror inside the compact. He explained that such items were occasionally brought by Folangjiren traders; large mirrors could fetch hundreds of taels. The transmigrators' mirrors were indeed small, but far clearer and brighter than the Western ones. If they could bring larger sizes, price would not be an issue. As for the "soft porcelain"—the melamine dishes—in terms of texture, feel, and pattern, there was nothing remarkable about them; their only virtue was their lightness and durability. The "soft glass bowls"—the plastic lunch boxes—though unbreakable, lacked the crystalline brilliance of true glassware. As for the plastic raincoat and little knives, in Master Gao's view, these were mere trifles.
 
-Everyone was chagrined: even our proud advantage of several centuries' extra knowledge could not necessarily best these people.
+Everyone felt chagrined. Even their proud advantage of several centuries' worth of extra knowledge could not necessarily best these people.
 
-During the conversation, Master Gao also probed them about Australia's customs and conditions. Xiao Zishan deflected with vagueness, saying only that their nation favored blue, that master craftsmen abounded and produced curious wares, that they built their nation on industry and commerce, that the people loved empty talk and constantly formed factions around various causes, but such mobs assembled and scattered just as quickly. When asked who their ruler was, he said: "Our nation has one lord, titled 'Bachi.' Below him is a powerful minister who handles military and civil affairs, titled 'Xiaomi.' Noble and commoner alike worship a divine messenger called 'Admin.'" Master Gao clicked his tongue in wonder.
+During the conversation, Master Gao also probed them about Australia's customs and conditions. Xiao Zishan deflected with vague answers, saying only that their nation favored the color blue, that master craftsmen abounded and produced curious wares, that they had built their nation on industry and commerce, that the people loved empty talk and constantly formed factions around various causes—though such mobs assembled and scattered just as quickly. When asked who their ruler was, he replied: "Our nation has one lord, titled 'Bachi.' Below him is a powerful minister who handles military and civil affairs, titled 'Xiaomi.' Noble and commoner alike worship a divine messenger called 'Admin.'" Master Gao clicked his tongue in wonder.
 
-As the conversation went on, the three completely forgot their earlier warning not to drink the tea; by the time they rose to take their leave, they had drained their cups dry. This earned a private sneer from Master Gao. Before departing, they closed the deal: the "Australian sea merchants" would supply the first batch of goods in three days, with a promise to bring more novelties.
+As the conversation wore on, the three completely forgot their earlier warning not to drink the tea; by the time they rose to take their leave, they had drained their cups dry. Master Gao privately sneered at this. Before departing, they closed the deal: the "Australian sea merchants" would supply the first batch of goods in three days, with a promise to bring more novelties.
 
-However, their manner of departure left Master Gao deeply puzzled. These three refused to leave by the main gate, insisting on going to a secluded spot in the back courtyard, and requiring everyone to withdraw. Still uneasy, Gao sent a bold and careful servant to watch from a distance: he saw the three looking furtively about, then suddenly turn into a corner behind the wall. By the time the servant hurried over to check, they had vanished without a trace.
+Their manner of departure, however, left Master Gao deeply puzzled. The three refused to leave by the main gate, insisting instead on being taken to a secluded spot in the back courtyard—and requiring everyone to withdraw. Still uneasy, Gao sent a bold and careful servant to watch from a distance. The man saw the three glancing furtively about, then suddenly turn into a corner behind the wall. By the time the servant hurried over to investigate, they had vanished without a trace.
 
 ---
 

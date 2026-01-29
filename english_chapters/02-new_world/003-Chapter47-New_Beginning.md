@@ -1,87 +1,83 @@
 # Chapter 47: New Beginning
 
-"Captain, there's fire on the beacon tower!" reported Mei Wan, who was on lookout.
+"Captain, the beacon tower's been lit!" Mei Wan called from her lookout position.
 
-Beiwei looked up. A bonfire had already ignited on the tower; in the dim pre-dawn sky, a column of thick smoke rose straight into the clouds.
+Beiwei looked up. A bonfire blazed atop the tower, and in the dim predawn sky, a column of thick smoke climbed straight toward the clouds. They had anticipated this, but disappointment still flickered through him—it would have been far better to neutralize the lookout post silently. His proposal for a covert approach had been vetoed by Xi Yazhou. Special operations required too much preparation time, and the transmigrators needed to land quickly and establish their foothold before word spread. The Qiongzhou Strait had served as a major maritime thoroughfare and fishing ground since ancient times. Once the sun climbed fully above the horizon, a fleet this advanced couldn't hide from anyone. Whether they took out the beacon tower or not, the difference amounted to an hour or two at most.
 
-Though this situation had been anticipated, he still felt a pang of disappointment—it would have been better to silently neutralize the lookout post. But his proposal had been vetoed by Xi Yazhou—preparing for special operations took too much time. The transmigrators needed to begin landing quickly, establishing a foothold before word spread. The Qiongzhou Strait had been a major maritime thoroughfare and fishing ground since ancient times. Once the sun was fully up, a fleet this far ahead of its time couldn't be hidden from anyone. Taking out the beacon tower or not—the difference was only an hour or two.
+"Ignore it," Beiwei ordered. "Continue sounding. Getting the ships into harbor—that's what matters."
 
-"Ignore it. Continue sounding." Beiwei ordered. Getting the ships into harbor as fast as possible was what truly mattered.
+Still, tension ran through the crew. While recording depth readings, Mei Wan quietly asked him, "Will Ming troops come as reinforcements?" It was the stuff of countless movies and novels: once the beacon was lit, forces would converge from all directions.
 
-Still, the crew was somewhat tense. While recording depth readings, Mei Wan quietly asked Beiwei:
+"They won't." In truth, Beiwei wasn't entirely certain. Yu Eshui had assured them solemnly that Lingao town had no garrison, that the beacon served only as an early warning. Though Beiwei didn't fear any small Ming military unit or local force, less bloodshed was always preferable.
 
-"Will Ming troops come as reinforcements?" Once the beacon was lit, forces would converge from all directions—this was a common trope in movies and novels.
+The boat pressed forward, sounding depths and dropping navigation markers to chart the channel. The tide was rising, waves pushing into the river mouth. With almost no need to paddle, the current carried them to the dock below the beacon tower. A cluster of low tile-roofed buildings huddled at the tower's base, a flagpole standing by the entrance—this had to be the Bopu Patrol Office mentioned in their intelligence reports.
 
-"They won't." Actually, Beiwei himself wasn't entirely certain. Yu Eshui had solemnly assured them that Lingao town had no garrison; the beacon served only as early warning. Though Beiwei didn't fear small Ming military units or any local force, less unnecessary bloodshed was always better.
+The entrance stood deserted. On the tall flagpole, a lantern marked "Patrol Office" still hung unextinguished.
 
-The boat progressed, sounding depths and dropping navigation markers to chart the channel for the ships. The tide was rising; waves pushed into the river. With almost no need to paddle, the current carried them to the dock below the beacon tower. Beneath the tower were low tile-roofed buildings with a flagpole by the door—this was presumably the Bopu Patrol Office mentioned in intelligence.
+Beiwei raised his hand. "Fix bayonets! Recon squad, target that building. First, second, third squads—with me!" He thumbed off his safety and was first to leap from the boat onto the dock.
 
-The patrol office entrance was deserted. On the tall flagpole, a lantern marked "Patrol Office" still hung, not yet extinguished.
+They executed the assault by the book, but the first Ming government office the transmigrators occupied turned out to be empty. The bed mats in the side rooms still held residual warmth. In the kitchen, a pot of water sat on the stove, fire crackling beneath it. The occupants had fled mere minutes before.
 
-Beiwei raised his hand: "Fix bayonets! Recon squad, target: building ahead. First, second, third squads—with me!" At his command, he thumbed off the safety and was first to leap from the boat onto the dock.
+The patrol office's purpose was inspection and warning—there was no reason for its staff to fight desperately against fierce pirates. They knew the terrain; they could vanish and return after the bandits departed. Pirates never stayed long, and the patrol office held nothing but tables, chairs, and kitchen utensils. Pirates knew there was nothing worth taking here, so they rarely bothered entering at all.
 
-Though everyone executed this assault by the book, the first Ming government office the transmigrators occupied was empty. The bed mats in the side rooms still held residual warmth; in the kitchen, a pot of water sat on the stove, fire still burning. The occupants had fled mere minutes ago.
+But this particular group of twenty-first-century transmigrators not only searched every corner and examined everything with fascination—to them, these mundane objects were genuine antiques—they also intended to stay. Buildings backing onto the beacon tower on the coastal high ground, plus a dock: here was a ready-made landing command post.
 
-The patrol office's job was inspection and warning—naturally there was no need to fight desperately against fierce pirates. They knew the terrain; they could simply vanish. Pirates never stayed long. They'd return after the bandits departed—the patrol office held nothing but tables, chairs, and kitchen utensils, worth little. Pirates knew there was nothing valuable here either, so they didn't even bother entering.
+Beiwei dispatched one squad up the beacon tower to search, extinguish the fire, and stand guard. Another squad took positions on the patrol office roof to cover the surroundings. Then he reported via walkie-talkie to the flagship: landing successful, Bopu Patrol Office occupied, no casualties.
 
-But this group of twenty-first-century transmigrators not only searched everywhere and examined everything with great interest—to them, these were all antiques—they also meant to stay. Buildings backing onto the beacon tower—the coastal high ground—plus a dock: this was a ready-made landing command post.
+Report complete, he summoned two squad members. "Return to the boat. Deploy smoke markers along the channel to guide the following ships into harbor."
 
-Beiwei ordered one squad up the beacon tower to search, extinguish the fire, and stand guard. Another squad took positions on the patrol office roof to cover the surroundings. He reported via walkie-talkie to the flagship: landing successful, Bopu Patrol Office occupied, no casualties.
+In the *Fengcheng*'s superstructure, those who had been watching the smoke column with clenched jaws finally relaxed. Bopu Port—Lingao's gateway—lay open to the transmigrators.
 
-Report complete, he summoned two squad members: "Return to the boat. Deploy smoke markers along the channel to guide the following ships into harbor."
+Ma Qianzhu suppressed his excitement and said to Meng De with affected calm, "Begin."
 
-In the *Fengcheng*'s superstructure, those who had been tensely watching the smoke column all relaxed. Bopu Port—Lingao's gateway—was open to the transmigrators.
+The order rippled out to every vessel. On each ship, the same command echoed: "Weigh anchor!"
 
-Ma Qianzhu suppressed his excitement and said with affected calm to Meng De: "Begin!"
+Two fishing boats led the way; two more brought up the rear. The *Fengcheng* and the self-propelled barge sailed abreast while the North American Branch's sailboat unfurled its white canvas. The fleet churned white wake as it sailed majestically toward the harbor. Behind them, a red sun burst above the horizon, painting the sky crimson and scattering gold across the South China Sea. For the first time, the dawn of the New World shone upon the transmigrators. Those on deck rose involuntarily, hearts swelling with emotion.
 
-The order was immediately transmitted to all vessels. On every ship, the same command echoed: "Weigh anchor!"
+*I am witnessing history. I am also making it.*
 
-Two fishing boats led; two brought up the rear. The *Fengcheng* and the self-propelled barge sailed abreast; the North American Branch's sailboat unfurled its white sails. The fleet churned white wake and sailed majestically toward the harbor. Behind them, a red sun burst above the horizon, painting the sky crimson. The South China Sea glittered golden. For the first time, the dawn of the New World shone upon the transmigrators. Those on deck rose involuntarily, hearts overwhelmed with emotion:
-
-*I am witnessing history. I am also making history!*
-
-This feeling intoxicated them. Someone began singing "Ode to the Motherland":
+The feeling intoxicated them. Someone began singing "Ode to the Motherland":
 
 > *The five-starred red flag flutters in the wind,*
 > *How bright the songs of victory;*
 > *Singing of our dear motherland,*
 > *From now on toward prosperity and strength...*
 
-First one person, then many, then everyone. Loud and clear, the singing soared to the heavens, resounding through the New World.
+First one voice, then many, then everyone. The singing rose loud and clear, soaring to the heavens, resounding through the New World.
 
 "Sound the whistle!" the Executive Committee ordered as they approached the harbor.
 
-"WHOOOOO—" The steam whistle sounded—a trumpet from another timespace's civilization, proclaiming a new era's arrival.
+"WHOOOOO—" The steam whistle bellowed—a trumpet from another timespace's civilization, heralding the arrival of a new era.
 
-Though everyone was eager to set foot in the New World, for now they had to remain aboard until dock construction was complete. Professional engineers and unskilled laborers—the latter organized into five-person teams—moved in batches onto small boats and ferried ashore.
+Though everyone ached to set foot in the New World, for now they had to remain aboard until dock construction was complete. Professional engineers and unskilled laborers—the latter organized into five-person teams—moved in batches onto small boats and ferried ashore.
 
-The engineers first needed to establish a port area as a staging base for pushing inland.
+The engineers' first priority was establishing a port area as a staging base for pushing inland. As a seaport, Bopu's geography left much to be desired. The bay had a ten-meter-deep channel, and Red Stone Island plus the silted sandbars served as natural breakwaters, but the shelter wasn't all-weather—the northwest lay almost completely exposed. Northwest winds would create heavy swells. The transmigrators couldn't use it as a permanent base; annual typhoon-driven storm surges also made it unsuitable for settlement.
 
-As a seaport, Bopu's geography wasn't ideal. Though the bay had a ten-meter-deep channel and Red Stone Island plus silted sandbars served as natural breakwaters, the shelter wasn't all-weather—the northwest was almost completely exposed. Northwest winds would create heavy swells. The transmigrators couldn't use it as a permanent base; annual typhoon-driven storm surges also made it unsuitable for settlement.
+Modern Bopu Port occupied the bay's southern end, where the water ran deepest. The engineers selected the same spot for landing and cargo staging. Normally, such a port required breakwater construction, various docks and piers, unloading machinery, and extensive warehousing. For the transmigrators, all of that remained pure fantasy.
 
-Modern Bopu Port was at the bay's southern end, where water was deepest. The engineers selected the same spot for landing and cargo staging. Normally, such a port required breakwater construction, various docks and piers, unloading machinery, and extensive warehousing. For the transmigrators, this was pure fantasy.
+Using landing craft for ship-to-shore transport was possible but painfully slow. Manually building piers would take forever and demand specialized equipment. So before crossing, Yan Quezhi and several engineers had agreed on the simplest solution: floating docks.
 
-Using landing craft for ship-to-shore transport was possible but painfully slow. Manually building piers would take forever and require specialized equipment. So before crossing, Yan Quezhi and several engineers had agreed on the simplest method: floating docks.
+Modern floating docks were mostly used for small-craft passenger embarkation, rarely for cargo. But anyone with military-history knowledge knew the Normandy landings had relied on floating docks extensively—the famous "Mulberries"—enabling the Allies to land one hundred thousand tons of supplies and fifty thousand vehicles without capturing a port. Though a subsequent storm had battered the floating docks and quickly rendered them unusable, their effectiveness had been proven beyond doubt.
 
-Modern floating docks were mostly used for small-craft passenger embarkation, rarely for cargo. But anyone with military-history knowledge knew that the Normandy landings had used floating docks extensively (the famous "Mulberries"), enabling the Allies to land 100,000 tons of supplies and 50,000 vehicles without capturing a port. Though the floating docks suffered heavily in a subsequent storm and quickly became unusable, their effectiveness was fully proven.
+The transmigrators couldn't match Normandy's scale—their floating docks didn't even have breakwaters—nor did they need that magnitude. They simply needed to transfer personnel and materials ashore quickly. Their floating docks used sealed two-hundred-liter drums arranged in rows, connected with angle iron into modular units. Connection points had scrap tires hung as bumpers, and corrugated steel sheets welded on top. According to the Engineering Group's calculations, each unit could support forty tons of buoyancy—more than sufficient for ordinary vehicles, machinery, and materials.
 
-The transmigrators couldn't match Normandy's scale—their floating docks didn't even have breakwaters—nor did they need such magnitude. They just needed to transfer personnel and materials ashore quickly. So the floating docks used sealed 200-liter drums arranged in rows, connected with angle iron into small units. Connection points had scrap tires hung as bumpers; corrugated steel sheets were welded on top. According to the Engineering Group's calculations, each unit could support forty tons' buoyancy—sufficient for ordinary vehicles, machinery, and materials.
+The drawback was connection difficulty. Standard military pontoon bridges had specialized bolts for precise joining. These drum docks, though fitted with angle-iron frames and pre-welded connection ears, had unpredictable tolerances.
 
-The drawback of these drum-dock units was connection difficulty. Standard military pontoon bridges had specialized bolts for precise joining. These drum docks, though fitted with angle-iron frames and pre-welded connection ears, had unpredictable tolerances.
+The fishing boats towed floating-dock units into the bay one after another. Without military high-powered motorboats, only the small craft from the *Fengcheng*—limited in power—could push and pull the units roughly into position. The *Fengcheng* had anchored a full one hundred fifty meters from shore. They had enough units, but assembly proved far harder than anyone had imagined. Wave motion made bolt alignment nearly impossible. The engineers had no experience with this work, and in the chaos, people focused so intently on their tasks that they tumbled overboard. Fortunately, all wore life vests and carried whistles; the Landing Command had organized strong swimmers in rowboats to patrol and rescue. The Engineering Department managed not to become the first group with casualties.
 
-The fishing boats towed floating-dock units into the bay one after another. Without military high-powered motor boats, only the small motorboats from the *Fengcheng*—limited in power—could push and pull the units roughly into position. The *Fengcheng*'s anchorage was a full 150 meters from shore. They had enough units, but assembly proved far harder than anyone had imagined. Wave motion made bolt alignment difficult; the engineers had no experience; in the chaos, people focused on work and fell overboard. Fortunately, all wore life vests and carried whistles; the Landing Command organized strong swimmers on rowboats to patrol and rescue. The Engineering Department managed not to become the first group with casualties.
+The grapnel anchors installed during pontoon construction proved decisive. Four small grapnels per unit significantly reduced the pitching. By late morning, a one-hundred-fifty-meter-long, eight-meter-wide floating pier had taken shape—though the units still occasionally showed ankle-crushing gaps in the waves, accompanied by terrifying straining sounds.
 
-The grapnel anchors installed during pontoon construction proved decisive. Four small grapnels per unit significantly reduced pontoon pitching. By late morning, a 150-meter-long, 8-meter-wide floating pier had taken shape—though these units still occasionally showed ankle-crushing gaps in the waves, accompanied by terrifying straining sounds.
+Executive Committee members watched from the *Fengcheng* as the transmigrators' first project reached completion. Hearts brimming, Ma Qianzhu announced, "I propose naming this pier 'Project One'! A monument should be erected here, to be recorded forever in the crossing nation's history!"
 
-Executive Committee members watched from the *Fengcheng* as the transmigrators' first project was completed. Hearts brimming, Ma Qianzhu announced: "I propose naming this pier 'Project One'! A monument should be erected here, to be recorded forever in the crossing nation's history!"
+"A monument is fine," Wen Desi replied. "But we'll need to replace this with permanent facilities before next year's typhoon season. If a typhoon carries it away, we'll be out all those drums and steel."
 
-"A monument is fine," Wen Desi replied. "But we'll need to replace this with permanent facilities before next year's typhoon season. If a typhoon carries it away, we'll lose badly—all those drums and steel!"
+Ma Qianzhu was about to respond when a foreign woman popped onto the bridge, camera clicking away. Everyone froze for a moment before remembering—this was Ding Ding's Western girlfriend, Panpan. Ding Ding followed close behind, recorder in hand, asking Ma Qianzhu for his feelings about the landing. The restless journalist had already recruited some people who knew printing and was preparing to publish the transmigrators' first newspaper. He'd even allocated shares and given his future publication an unimaginative name: *The Lingao Times*.
 
-Ma Qianzhu was about to respond when a foreign woman popped onto the bridge, camera clicking away. Everyone was momentarily stunned—then remembered this was Ding Ding's Western girlfriend Panpan. Ding Ding followed, holding a recorder, asking Ma Qianzhu for his feelings about the landing. This restless journalist had already recruited some people who knew printing, preparing to publish the transmigrators' first newspaper. He'd even allocated shares and given his future publication an unimaginative name: *The Lingao Times*.
+"No particular feelings." Ma Qianzhu wore an uncooperative expression. His heart was actually surging—he simply disliked interviews. He'd rather write his memoirs quietly later than have a recording device thrust in his face.
 
-"No particular feelings." Ma Qianzhu wore an uncooperative expression. His heart was actually surging today—he just disliked interviews. He'd rather quietly write memoirs later than be poked with a recording device.
+"Director Wen?" Ding Ding pivoted immediately. "Please share your thoughts."
 
-"Director Wen? Please share your thoughts." Ding Ding immediately pivoted. Panpan turned and snapped a burst at Wen Desi.
+Panpan turned and snapped a burst of photos at Wen Desi.
 
 "A historic day," Wen Desi said.
 

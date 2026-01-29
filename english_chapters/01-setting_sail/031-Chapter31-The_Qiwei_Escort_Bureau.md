@@ -1,86 +1,82 @@
 # Chapter 31: The Qiwei Escort Bureau
 
-"Help rescue a hostage?" The elderly manager of the Qiwei Escort Bureau, Sun Kecheng, rolled his eyes and fixed them on Sun Chang, who had come to summon him.
+"Help rescue a hostage?" The elderly manager of the Qiwei Escort Bureau, Sun Kecheng, rolled his eyes and fixed them on Sun Chang, who had come bearing the summons.
 
-This Sun Chang fellow—by martial lineage his disciple-nephew and also a distant relative—but his too-blunt personality made him unpopular. After drifting to Guangzhou, he had simply become someone's slave. Sun Kecheng often felt regret about this: what a waste of his martial skills.
+This Sun Chang was his disciple-nephew by martial lineage and a distant blood relative besides, yet his blunt personality had always made him unpopular. After drifting to Guangzhou with nothing to show for it, the man had simply sold himself into servitude. Sun Kecheng often brooded over this—what a waste of genuine martial skill.
 
-He had considered finding Sun Chang a place at the escort bureau, but the market for escort services had been poor these past years, and business was far worse than before. An escort bureau wasn't like other trades where adding a person just meant another pair of chopsticks. In the escort business, each position served a purpose: when you had work, you had people; more work meant hiring more, which meant more expenses with little profit margin. When business was slow, you didn't lay off—everyone tightened their belts together. With business down, naturally they couldn't add staff.
+He had considered finding Sun Chang a position at the bureau, but times had been lean. The escort trade wasn't like other businesses where adding a person merely meant another pair of chopsticks at the table. In this line of work, every position served a purpose: when contracts flowed, you hired; more work meant more hands, which meant higher expenses eating into slim margins. When business dried up, you didn't dismiss anyone—the whole company tightened its belt together. With things as they were, taking on new staff was out of the question.
 
-"Yes, my masters request that you come to discuss the matter."
+"Yes," Sun Chang said. "My masters request that you come to discuss the matter."
 
-Sun Kecheng was somewhat confused. He recalled that Sun Chang served at the mansion of the great Haopan Street merchant Gao Ju. This Master Gao was a well-connected figure in Guangzhou—why, when robbed, would he seek them out instead of official channels?
+Sun Kecheng frowned in confusion. He recalled that Sun Chang now served at the Haopan Street mansion of Gao Ju, a merchant of considerable standing. Master Gao was a well-connected figure in Guangzhou—why seek out an escort bureau instead of going through official channels when someone had been snatched?
 
-As for hostage rescue, escort bureaus weren't particularly interested. Relations between escort services and bandits were based on harmony—using secret argot, "making friends"—not all-out, life-or-death battles. To rescue a hostage was like snatching meat from a wolf's jaws. Anyone bold enough to kidnap someone in the provincial capital was no petty thief—it meant a vicious fight to the death. Win or lose, once their identity was exposed through involvement, they'd have made enemies with the bandits for good.
+As for hostage rescue, escort bureaus generally wanted no part of it. The relationship between escort services and bandits was built on harmony—what the *jianghu* called "making friends"—not on life-or-death battles. Rescuing a hostage meant snatching meat from a wolf's jaws. Anyone bold enough to kidnap someone in the provincial capital was no petty thief; it would mean a vicious fight, and win or lose, once the bureau's involvement was known, they would have made blood enemies of dangerous men.
 
-But the current situation was difficult. Since the first year of Tianqi, disorder had grown everywhere, escort routes had become increasingly perilous, and income kept dropping. The bureau had a hundred mouths to feed, top to bottom...
+Still, the current situation was desperate. Since the first year of Tianqi, disorder had spread everywhere, escort routes had grown increasingly perilous, and income kept dwindling. The bureau had a hundred mouths to feed...
 
-After much deliberation, he finally agreed to take the job. First, this business could relieve half the bureau's financial strain. Second, according to his disciple-nephew, these new masters were Australian sea merchants—this piqued Sun Kecheng's interest. Australian goods had gained sudden fame recently. These merchants were not only wealthy but treated people generously; they had even permitted Sun Chang to restore his original surname. They were benevolent gentlemen. For reasons of both sentiment and profit, he should help.
+After considerable deliberation, he finally agreed to take the job. First, this commission could relieve half the bureau's financial strain. Second, according to his disciple-nephew, these new masters were Australian sea merchants—and this piqued Sun Kecheng's interest. Australian goods had gained sudden fame in recent months. These merchants were not only wealthy but treated their people generously; they had even permitted Sun Chang to restore his original surname. Clearly they were benevolent gentlemen. For reasons of both sentiment and profit, he owed them his help.
 
-Xiao Zishan and Ran Yao viewed the Qiwei Escort Bureau manager that Sun Chang had strongly recommended with some skepticism. They had expected a burly giant with a bearded face—the type from martial-arts films. Instead, what arrived was a middle-aged man wearing a plain silk cap and a cross-collared jacket, just like ordinary folk on the street. Though his steps were still steady, he didn't look like a martial-arts hero.
+Xiao Zishan and Ran Yao regarded the escort bureau manager with some skepticism when Sun Chang's recommendation finally walked through their door. They had expected a burly giant with a bearded face—the heroic type from martial arts tales. Instead, what arrived was an ordinary middle-aged man wearing a plain silk cap and a cross-collared jacket, indistinguishable from common folk on any Guangzhou street. Though his steps remained steady and sure, he hardly looked the part of a martial hero.
 
-But they urgently needed someone to gather information. Gao Di had already volunteered to go out, but no one dared pin all hopes on a few children. They recounted the whole affair, including the investigation results.
+But they needed someone who could gather information, and quickly. Gao Di had already volunteered to go out scouting, but no one dared pin all their hopes on a handful of children. They recounted the entire affair, including all of Ran Yao's investigative findings.
 
-After hearing Xiao Zishan's briefing and investigative conclusions, Sun Kecheng nodded:
+After hearing Xiao Zishan's briefing and the conclusions they had drawn, Sun Kecheng nodded slowly.
 
-"The masters have an expert here."
+"You have an expert among you, I see."
 
-"We're strangers to this place and don't understand the city's ways. We must trouble Manager Sun for assistance."
+"We're strangers here and don't understand the city's ways," Xiao Zishan replied. "We must trouble Manager Sun for assistance."
 
-"Of course, of course." Sun Kecheng smiled and nodded. "Sun Chang is favored by you. For that alone, the Qiwei Escort Bureau must give its full support."
+"Of course, of course." Sun Kecheng smiled. "Sun Chang has found favor with you. For that alone, the Qiwei Escort Bureau will give its full support." He paused, considering. "You mentioned there was one barefoot person among the intruders. In this city, even villagers coming to town wear at least wooden clogs or straw sandals. The only people who go barefoot year-round are one kind: the *Danjia* boat people."
 
-"What is Manager Sun's assessment?"
+"*Danjia*?" Xiao Zishan seemed to recognize the term—something about an ancient lowborn caste.
 
-"Didn't that Master Ran just say there was one barefoot person? In this Guangzhou city, even villagers coming into town at least wear wooden clogs or straw sandals. The only people who go barefoot year-round are one kind: the *Danjia* boat people."
-
-"*Danjia*?" Xiao Zishan seemed to have heard this term—apparently a type of ancient lowborn caste.
-
-"Exactly. The masters don't know about the *Danjia*?" Sun Kecheng explained that the so-called *Danjia*, also called "egg households," were water-dwelling residents distributed along the coastal bays and inland rivers of Fujian, Guangdong, and Guangxi provinces. "Their descendants take boats as homes and fishing as livelihood. They identify hidden currents by reading water colors; in ancient times they were called 'dragon households.' Common folk call them '*Danjia*.'"
+"Exactly. The masters don't know about the *Danjia*?" Sun Kecheng settled into explanation. The so-called *Danjia*, also known as "egg households," were water-dwelling people distributed along the coastal bays and inland rivers of Fujian, Guangdong, and Guangxi provinces. "Their descendants take boats as homes and fishing as livelihood. They read hidden currents by the color of the water; in ancient times they were called 'dragon households.' Common folk call them *Danjia*."
 
 "They're fishermen?"
 
-"Though the *Danjia* make their living on the water, some are fishermen. But not all fishermen are *Danjia*." He explained that the *Danjia* engaged in all kinds of water-based trades; their boats could be found at almost every inlet and fork of the Pearl River.
+"Though the *Danjia* make their living on the water, only some are fishermen. But not all fishermen are *Danjia*." He explained that the *Danjia* engaged in every kind of water-based trade imaginable; their boats could be found at almost every inlet and fork of the Pearl River.
 
-If there was a *Danjia* person among the kidnappers, things became much clearer. Director Wen was very likely being held on some boat on the water. This was the South City—climb over the city wall and you were at the Pearl River. Once the criminals boarded a boat, they had the whole sea to escape to. Moreover, the *Danjia* were an extremely closed community with dialects and customs distinct from land-dwellers. Without someone familiar with their inner circles, gathering information would be very difficult.
+If there was a *Danjia* person among the kidnappers, things became much clearer. Director Wen was very likely being held on some boat. This was the South City—climb over the city wall and you were at the Pearl River. Once the criminals boarded a vessel, they had the whole sea as an escape route. Moreover, the *Danjia* formed an extremely closed community with dialects and customs entirely distinct from land-dwellers. Without someone familiar with their inner circles, gathering information would be nearly impossible.
 
-Hearing this, everyone's hearts sank. This was bad.
+Hearing this, everyone's hearts sank.
 
-"There are thousands, if not tens of thousands, of boats on the water. Even an inspection would take a month or more." Ran Yao grew frustrated—forgetting that in this timespace he had no authority to conduct any inspection.
+"There are thousands of boats on the water, if not tens of thousands," Ran Yao said, frustration rising. "Even an inspection would take a month or more." He forgot, momentarily, that in this time and place he had no authority to conduct any inspection.
 
-"The masters needn't despair. It's not that difficult. Though the *Danjia* and land-dwellers have no dealings and are mutually hostile, they wouldn't be behind a kidnapping. It must be outside criminals in league with pleasure-boat prostitutes. These prostitutes often engage in illicit activities—that knockout incense isn't something common in the *jianghu* underworld; it's more like what water-based prostitutes use to rob men of their money."
-
-He smiled confidently. "Master Wen should be on one of those flower boats."
+"The masters needn't despair. It's not as difficult as it seems." Sun Kecheng raised a calming hand. "Though the *Danjia* and land-dwellers keep separate and bear each other no love, they wouldn't be behind a kidnapping. This must be outside criminals working in league with pleasure-boat prostitutes. These women often engage in illicit activities—that knockout incense isn't something common in the *jianghu* underworld. It's more like what water-based prostitutes use to rob men of their money." He smiled confidently. "Master Wen should be on one of those flower boats."
 
 "Where do these flower boats moor?"
 
-"The *Danjia* flower boats are mostly around Shicui Islet at White Goose Pool. I'll send out escort guards when I return. There are a few things I must make clear to you all—heed them carefully.
+"The *Danjia* flower boats gather mostly around Shicui Islet at White Goose Pool. I'll send out escort guards as soon as I return." He paused, his expression growing serious. "But there are a few things I must make clear—heed them carefully.
 
-"First: avoid reporting to officials. Though Master Gao's influence could dispatch all the constables of the prefecture and two counties with a single card, those men are rogues themselves. A fat sheep at their door won't move them without being stuffed with silver. They might even collude with the criminals.
+"First: avoid reporting to the officials. Though Master Gao's influence could dispatch every constable in the prefecture and both counties with a single calling card, those men are rogues themselves. A fat sheep at their door won't move them without their palms being greased with silver. They might even collude with the criminals.
 
-"Second: don't seize whoever delivers the ransom letter. Such people are either street beggars hired temporarily or common thugs—they won't know the criminals. Grabbing them is useless and will alert the other side. After dark, the city gates close. We don't know the terrain out here—fighting them on their ground, we might not have the upper hand. Night blindness in the Ming era may not be as common as imagined.
+"Second: don't seize whoever delivers the ransom letter. Such people are either street beggars hired temporarily or common thugs—they won't know the real criminals. Grabbing them is useless and will only alert the other side. After dark, the city gates close. We don't know the terrain beyond the walls—fighting them on their ground, we might not have the upper hand.
 
-"Finally: don't act rashly. They certainly have lookouts around your residence. But these lookouts are also hired helpers who can't tell you much."
+"Finally: don't act rashly. They certainly have lookouts watching your residence. But these watchers are also hired helpers who can't tell you much."
 
-After seeing Manager Sun off, everyone discussed that simply waiting for news wasn't the answer. Fortunately, if the other side wanted ransom, there would have to be letters exchanged—this was a thread leading to the kidnappers. Though tailing people in Ming-era Guangzhou was impossible, modern surveillance technology could certainly work. They immediately installed cameras throughout the compound and set up a monitoring station in the courtyard, powered by banks of batteries—24-hour continuous surveillance of the surroundings. Lin Shenhe walked a circuit and installed several wireless cameras on the front courtyard roof to watch the street. He himself put on a camouflage jacket, took binoculars, night-vision goggles, walkie-talkie, and rifle, and climbed the compound's only large tree. Among the dense branches, he set up a platform and took turns with Beiwei standing watch, ready to respond at any moment.
+After seeing Manager Sun off, everyone agreed that simply waiting for news wasn't the answer. Fortunately, if the other side wanted ransom, there would have to be letters exchanged—this was a thread leading to the kidnappers. Tailing someone through Ming-era Guangzhou was impossible for them, but modern surveillance technology certainly could work.
 
-Ran Yao changed into servant's clothes, clipped a DV camera to his waist, and walked up and down Haopan Street several times, guided by Sun Chang.
+They immediately installed cameras throughout the compound and established a monitoring station in the courtyard, powered by banks of batteries—twenty-four-hour continuous surveillance of every approach. Lin Shenhe walked a circuit of the perimeter and mounted several wireless cameras on the front courtyard roof to watch the street. Then he donned a camouflage jacket, took up binoculars, night-vision goggles, a walkie-talkie, and a rifle, and climbed the compound's only large tree. Among the dense branches, he constructed a platform and began trading shifts with Beiwei on overwatch, ready to respond at a moment's notice.
 
-"Found the surveillance!" He came back and tossed the DV on the table.
+Ran Yao changed into servant's clothes, clipped a DV camera to his waist, and walked up and down Haopan Street several times with Sun Chang as his guide.
 
-Everyone perked up and crowded around.
+"Found the surveillance!" He came back and tossed the camera on the table.
 
-"There are four people watching." Ran Yao played the DV for them. "Look here"—he pointed at a peddler on the screen—"absent-minded, eyes constantly glancing at Master Gao's front gate.
+Everyone perked up and crowded around as he played back the footage.
 
-"This one—dressed as a beggar, but instead of begging on the busy street, he's hiding in the dead-end alley by the Gao mansion's side gate.
+"There are four people watching." He pointed at a peddler on the screen. "See this one—absent-minded, eyes constantly drifting toward Master Gao's front gate.
+
+"This one's dressed as a beggar, but instead of working the busy street, he's hiding in the dead-end alley by the Gao mansion's side gate.
 
 "This one is watching our front entrance.
 
-"And this one—sitting alone drinking tea in the teahouse—probably the leader. They may have one or two more as runners to report. Let's print out photos of these people first—one copy for everyone."
+"And this fellow—sitting alone drinking tea in the teahouse—he's probably the leader. They likely have one or two more serving as runners to relay reports." Ran Yao looked up. "Let's print out photos of these people—one copy for everyone."
 
-"Good!"
+"Good."
 
 "Should we grab them?"
 
-"These people are probably just outer-ring members—they may not know the details."
+"These people are probably just outer-ring members. They may not know the real details."
 
 "If only we could tail them. The leader should be meeting with the main conspirators."
 
@@ -88,41 +84,43 @@ Everyone perked up and crowded around.
 
 "What about planting a wireless beacon on him?"
 
-"Better to just put the beacon in the ransom. That way we can go straight to their lair."
+"Better to just put the beacon in the ransom. That way we can track it straight to their lair."
 
-"Theoretically possible. But here we have no map, no GPS—we can't do precise positioning from the signal. We can only use radio direction-finding for rough positioning, and the terrain is too complex."
+"Theoretically possible." Lin Shenhe shook his head. "But here we have no map, no GPS—we can't do precise positioning from the signal. All we can manage is radio direction-finding for rough positioning, and the terrain is too complex."
 
 "The key problem is no map."
 
-"The Ming should have maps, right? Have someone go buy a few."
+"The Ming should have maps. Have someone go buy a few."
 
-"Sun Chang already bought one, but this map... is really useless." Ming-era cartography was still quite primitive; modern mapping techniques were roughly introduced to China by Matteo Ricci around this time.
+"Sun Chang already bought one, but this map..." Someone unfolded it with a grimace. "It's really useless." Ming-era cartography remained quite primitive; modern mapping techniques had only begun reaching China with Matteo Ricci around this period.
 
 "Still, it's an option. Who knows radio direction-finding?"
 
-"I can do it." Beiwei said.
+"I can do it," Beiwei said.
 
 "Then it'll be up to you when the time comes."
 
-"Best if we can find out the location and just go rescue him directly."
+"Best if we can just find out the location and go rescue him directly."
 
-"Shouldn't be a problem. From Manager Sun's tone, he'll have the whereabouts in a few days."
+"Shouldn't be a problem. From Manager Sun's tone, he'll have the whereabouts within a few days."
 
 "I wonder how Director Wen is doing right now."
 
 ---
 
-Manager Sun returned to the escort bureau, drank several pots of strong tea, and thought for a while. He had thumped his chest at the Australian merchants' place; inwardly, he was already seven or eight parts confident. That water-based prostitutes were involved was certain—even if the Australian constable Ran hadn't mentioned the barefoot footprints, the scent he'd detected in the room told him as much. But how to investigate was tricky—escort bureau rules forbade setting foot in brothels and flower boats. He wasn't familiar with the people inside.
+Manager Sun returned to the escort bureau, drank several pots of strong tea, and sat thinking. He had thumped his chest with confidence at the Australian merchants' residence, and in truth he was already seven or eight parts certain. That water-based prostitutes were involved was beyond doubt—even if the Australian constable Ran hadn't mentioned the barefoot footprints, the lingering scent Sun Kecheng had detected in the room told him as much.
 
-Fortunately, flower boats still depended on land-based vendors for food and supplies. From those small merchants who specialized in serving the flower boats, they could surely learn something. If nothing else, an extra person aboard meant considerably more provisions.
+But how to investigate presented its own difficulties. Escort bureau rules forbade setting foot in brothels and flower boats, and he knew no one inside those circles.
 
-He called over several escort guards and split them into two groups: one would disguise as traveling merchants and make discreet inquiries; the other would question familiar vendors. Having given these instructions, he added:
+Fortunately, flower boats still depended on land-based vendors for food and supplies. From those small merchants who specialized in serving the boats, they could surely learn something. If nothing else, an extra person aboard meant considerably more provisions each day.
+
+He summoned several escort guards and split them into two groups: one would disguise themselves as traveling merchants and make discreet inquiries; the other would question familiar vendors. After giving these instructions, he added one final thought:
 
 "Pay attention to whether any boat has recently taken on a charter customer, or which boat has suddenly stopped receiving clients."
 
 Flower boats were small; it was impossible to hide a hostage while still entertaining guests.
 
-Once they located where the hostage was hidden, rescue would be straightforward. Manager Sun had done hostage rescues for several old clients before. He knew kidnappers rarely stayed with the hostages; those guarding the captive were usually small fry. This was both to avoid showing their faces to the victim and to ensure that if the hiding place was discovered by authorities, they themselves wouldn't go down with it.
+Once they located where the hostage was hidden, the rescue itself would be straightforward. Manager Sun had handled hostage recoveries for several old clients before. He knew kidnappers rarely stayed with their captives; those guarding the prisoner were usually small fry. This served two purposes—to keep the real criminals from being seen by the victim, and to ensure that if authorities discovered the hiding place, the masterminds wouldn't go down with it.
 
 But as that Constable Ran had said: the escort bureau's main job was to gather intelligence. How to act in the end was their decision.
 

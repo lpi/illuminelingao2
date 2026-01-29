@@ -1,59 +1,59 @@
 # Chapter 7: Kraak Porcelain (Part Two)
 
-After Wen Desi sold the gold—its purity was lacking—he netted roughly 270,000 yuan. He then found a small smelting plant to recast the silver into standard 925 industrial silver, which fetched another 200,000 yuan.
+The gold's purity left something to be desired, but Wen Desi still walked away with roughly 270,000 yuan after selling it. He then located a small smelting plant willing to recast the silver to standard 925 industrial grade, which brought in another 200,000.
 
-The several hampers of porcelain couldn't stay in the hotel room. But hauling them all at once would raise questions about how such goods had suddenly appeared. So they stayed on a few extra days, taking turns carrying pieces out in travel bags.
+The porcelain presented a different problem. Several hampers of antique ceramics couldn't very well sit in a hotel room indefinitely, yet hauling them all out at once would invite awkward questions about how such goods had materialized from thin air. So they lingered a few extra days, taking turns smuggling pieces out in travel bags until the room was clear.
 
-They counted: two hundred pieces total, mostly plates of various sizes, plus bowls and vases. They knew it was Kraak porcelain, but they were all antiques laymen.
+Their final count came to two hundred pieces—mostly plates of various sizes, along with an assortment of bowls and vases. They knew enough to identify the haul as Kraak porcelain, but beyond that, all three were hopeless amateurs when it came to antiques.
 
-Wen Desi recalled meeting a Professor Ma at some past dinner—he taught history at a local university and dabbled in antiques with a modest reputation in collecting circles. After much rummaging through his business-card holder, he found the number and arranged lunch.
+Wen Desi remembered meeting a Professor Ma at some long-ago dinner party. The man taught history at a local university and dabbled in antique collecting, having built a modest reputation in those circles. After considerable rummaging through his business card holder, Wen Desi found the number and arranged a lunch meeting.
 
-"That's right, this is Kraak porcelain," Professor Ma examined the plate. "Typical export ware. Wide rims, predominantly blue-and-white, with compartments and circular medallions decorated with landscapes, figures, flowers, and fruit."
+"Yes, this is Kraak porcelain," Professor Ma confirmed, turning the plate in his hands. "Typical export ware. You can always identify it by the wide rims, the predominantly blue-and-white palette, and these compartmentalized sections with circular medallions. The decorations feature the usual motifs—landscapes, figures, flowers, fruit."
 
-Wen Desi adopted an attitude of humble receptiveness.
+Wen Desi adopted an expression of humble receptiveness and let the professor continue.
 
-"Kraak porcelain divides by period into Wanli and Kangxi. This is Wanli. You can tell by the circles in the pattern—drawn with two strokes joined together. Characteristic of late-Ming to early-Qing brushwork."
+"Kraak porcelain falls into two main periods: Wanli and Kangxi. This piece is Wanli. See how these circles in the pattern are drawn? Two brushstrokes joined together—characteristic of late-Ming to early-Qing technique."
 
-*This is actually from the Tianqi reign*, Wen Desi thought.
+*Actually, it's from the Tianqi reign*, Wen Desi thought but kept to himself.
 
 "So this plate is quite valuable?"
 
-"Don't think of money the moment you hear 'antique.'" Professor Ma's expression turned disdainful. "Cultural relics matter mainly for their historical significance."
+Professor Ma's expression soured. "Don't immediately think of money the moment you hear 'antique.' Cultural relics derive their importance primarily from historical significance."
 
-He turned the plate over and over, reluctant to put it down. Then he frowned. "This plate still has its kiln fire—it hasn't been properly aged. Could it be a high-quality replica? Where did you get it?"
+Even as he delivered this admonishment, he continued turning the plate over in his hands, clearly reluctant to set it down. Then his brow furrowed. "Strange. This plate still has its kiln fire—it hasn't aged properly. Could it be a high-quality reproduction? Where did you acquire it?"
 
-Wen Desi could hardly say he'd brought it fresh from the kiln in another timespace. "I was in the countryside on business and saw a villager with a stall. The patterns were unusual, so I picked up a few pieces."
+Wen Desi could hardly explain that he'd brought it fresh from the kiln in another timespace. "I was in the countryside on business and noticed a villager selling odds and ends from a stall. The patterns caught my eye, so I picked up a few pieces."
 
-"Good eye." Professor Ma nodded. "Kraak porcelain was actually made-to-order. The decorative patterns catered to European tastes—some were painted directly from European designs."
+"Good eye," Professor Ma conceded with a nod. "Kraak porcelain was actually made to order for export. The decorative patterns were designed to cater to European tastes—some pieces were painted directly from European designs shipped to China."
 
-"So it should be genuine?" Wen Desi affected eager curiosity.
+"So it should be genuine?" Wen Desi asked, affecting eager curiosity.
 
-"Should be." Professor Ma pondered. "However, this type isn't abundant in China. Most pieces on the market were salvaged from the sea. But this plate has clearly never been submerged."
+"Should be." The professor considered. "Though pieces like this aren't common in China. Most Kraak on the market was salvaged from shipwrecks. But this plate has clearly never seen seawater."
 
-"If it's real, what's the market rate?"
+"If it's authentic, what's the going rate?"
 
-"The ceramics market is complex, and it's been cool lately. But Kraak porcelain is hot—highest transaction rate among ceramics—though individual pieces aren't enormously valuable. A plate like this could sell for three to four thousand yuan."
+"The ceramics market is complicated, and things have been cool lately. That said, Kraak porcelain remains hot—highest transaction rate of any ceramic category—though individual pieces don't fetch enormous sums. A plate like this might sell for three to four thousand yuan."
 
-"Not bad." Wen Desi adopted the smug air of a bargain-hunter.
+"Not bad at all," Wen Desi said, allowing himself the smug air of a man who'd stumbled onto a bargain.
 
-"The problem is authenticity remains unclear," Professor Ma leaned back, a subtle smile behind his glasses. "Everything checks out except that kiln fire. Normally there aren't many high-quality Kraak fakes; I've never heard of any mines being planted."
+Professor Ma leaned back, a subtle smile playing behind his glasses. "The problem is that authenticity remains uncertain. Everything checks out except that kiln fire. Normally there aren't many high-quality Kraak forgeries on the market—I've never heard of anyone salting the field with fakes."
 
-Wen Desi put on an anxious expression. "Professor Ma, can you tell me whether it's real or not?"
+Wen Desi arranged his features into an expression of anxiety. "Professor Ma, is there any way to determine for certain whether it's real?"
 
-Professor Ma thought for a moment. "I have a friend who specializes in porcelain collecting—an expert. I'll give you his number. Let him look. If it's genuine, he'll want it."
+The professor thought for a moment. "I have a friend who specializes in porcelain collecting—a genuine expert. I'll give you his number. Have him take a look. If the piece is authentic, he'll want to buy it."
 
-The expert was also surnamed Ma, though unrelated. A big name in collecting circles. The moment Wen Desi showed him the goods, Expert Ma wanted all two hundred pieces. He strongly suspected Wen Desi had unearthed a porcelain trove in Fujian. Not only were the pieces in excellent condition, but the implication was clear: more where those came from. Kraak porcelain, moderately priced, sold easily. A stable supply was exactly what he wanted. Keep bringing more.
+The expert was also surnamed Ma, though the two were unrelated. He was a major figure in collecting circles, and the moment Wen Desi showed him the goods, Expert Ma wanted all two hundred pieces. He strongly suspected Wen Desi had unearthed some hidden porcelain trove in Fujian—not only were the pieces in excellent condition, but their very existence implied more where they came from. Kraak porcelain, moderately priced and easy to sell, represented exactly the kind of stable supply he coveted. Keep bringing more, he urged.
 
-After selling gold, silver, and porcelain, this first trip netted roughly three million yuan. With this seed capital, the Executive Committee began taking further action.
+Between the gold, silver, and porcelain, their first expedition netted roughly three million yuan. With this seed capital secured, the Executive Committee began planning their next moves.
 
-Continuing to rent hotel rooms was impractical. Wen Desi decided to set up a company. For 20,000 yuan, he had all the paperwork processed and a trading company was born. Xiao Zishan had been informed his labor contract wouldn't be renewed, so he simply went full-time as Administrative Manager. Wen Desi also wanted to resign, but his company was busy and his supervisor had treated him fairly—he couldn't just walk out. After much negotiation, he arranged to leave in three months. Wang Luobin was more casual: resignation letter submitted, straight to Guangzhou, where he joined a small machinery factory as a worker, saying he wanted to "get familiar with the craft."
+Continuing to rent hotel rooms was impractical for the long term. Wen Desi decided to establish a proper company. For 20,000 yuan, he had all the necessary paperwork processed, and a trading company was born. Xiao Zishan had already been informed that his labor contract wouldn't be renewed, so he simply transitioned to full-time work as Administrative Manager. Wen Desi also wanted to resign, but his company was in a busy period and his supervisor had always treated him fairly—he couldn't justify walking out. After considerable negotiation, he arranged to depart in three months. Wang Luobin took the most casual approach: he submitted his resignation letter and headed straight for Guangzhou, where he joined a small machinery factory as a worker. He wanted, he said, to "get familiar with the craft."
 
-The new company had nothing to its name. Fortunately, Xiao Zishan had spent years in Guangzhou building connections. Money in hand made everything easier. For an office, they rented a long-term business suite in the same hotel—self-contained with a private entrance bypassing the lobby, quiet, underground parking. Very convenient. Xiao Zishan designated a small storage room as the wormhole crossing point and installed a security door. For bulk cargo transport, he purchased a hydraulic hand truck.
+The new company had nothing to its name beyond the three of them. Fortunately, Xiao Zishan had spent years in Guangzhou cultivating connections, and money in hand made everything easier. For an office, they rented a long-term business suite in the same hotel—a self-contained space with a private entrance that bypassed the lobby, underground parking, and blessed quiet. Very convenient indeed. Xiao Zishan designated a small storage room as the wormhole crossing point and installed a heavy security door. For moving bulk cargo, he purchased a hydraulic hand truck.
 
-On the matter of a company vehicle, the Executive Committee had its first disagreement. Xiao Zishan favored a seven-seat minivan like the Changan Star—cheap, carried many people, hauled cargo, fuel-efficient. Wang Luobin argued that since they were ultimately headed to the seventeenth century, such a vehicle couldn't be used there. The Ming dynasty had no gasoline, and the roads weren't suited for small cars. He proposed a four-wheel-drive diesel SUV—diesel substitutes being comparatively easy to obtain.
+On the question of a company vehicle, however, the Executive Committee encountered its first genuine disagreement. Xiao Zishan favored a practical seven-seat minivan like the Changan Star—cheap to buy, capable of carrying passengers and cargo alike, easy on fuel. Wang Luobin countered that since they were ultimately bound for the seventeenth century, such a vehicle would prove useless there. The Ming dynasty had no gasoline, and the roads weren't suited for small cars anyway. He proposed a four-wheel-drive diesel SUV instead, reasoning that diesel substitutes would be comparatively easy to obtain in that era.
 
-After hours of discussion, the Executive Committee decided on an SUV. The car saleswoman was puzzled by their choice: they rejected the more fuel-efficient fuel-injected models and bought an older Cherokee Jeep—four-wheel drive, manual transmission, diesel engine, self-recovery winch.
+After hours of deliberation, the Executive Committee voted for the SUV. The car saleswoman was visibly puzzled by their preferences: they rejected the more fuel-efficient fuel-injected models and instead purchased an older Cherokee Jeep—four-wheel drive, manual transmission, diesel engine, complete with a self-recovery winch.
 
-They had the car. They had a revenue channel. What next? The three Executive Committee members sat around the conference table, discussing the next phase.
+Now they had their vehicle. They had a revenue channel established. What came next? The three Executive Committee members gathered around the conference table to discuss the next phase of operations.
 
 **(End of Chapter)**

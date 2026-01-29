@@ -1,97 +1,95 @@
 # Chapter 15: The Conference — Energy Issues
 
-"Let's start with energy." Xiao Zishan turned toward the Energy Group. "Energy is key to everything. As long as we have electricity, we can use tools from modern machinery to computers—advantages that completely surpass the ancients. What does Energy have to say about power supply?"
+"Let's begin with energy," Xiao Zishan said, turning to face the Energy Group. "Power is the foundation of everything else. As long as we have electricity, we can operate modern machinery, run computers—all the advantages that would make us utterly superior to the ancients. So what does Energy have to say about our power supply?"
 
-The speaker from the Energy Group was Chang Kaishen. As a temp worker, he had been employed at a power corporation subsidiary for five years—the type who did the most work, got the lowest pay, received no credit, and took all the blame.
+The speaker for the Energy Group was Chang Kaishen. For five years he'd worked as a temp at a power corporation subsidiary—the type of worker who shouldered the heaviest loads, earned the lowest wages, received none of the credit, and took all of the blame.
 
-"Given our situation, a strategy of hydropower as the main source, supplemented by thermal and wind, is most suitable.
+"Given our circumstances," he began, "the optimal strategy is hydropower as our primary source, supplemented by thermal and wind generation. The benefits of hydropower are numerous—I won't belabor them—but for our purposes, the greatest advantage is that it requires no fuel replenishment. Once constructed, a hydroelectric station runs almost indefinitely.
 
-"The benefits of hydropower are many—I won't elaborate. For our team, the greatest advantage is that it doesn't require fuel replenishment; once built, it operates almost indefinitely.
+"Modern small-scale rural hydropower equipment is remarkably simple. Installation difficulty is low, engineering investment minimal. Power is generated through diversion channels; a head of just five or six meters is sufficient. The technology is mature. Small and micro units are manufactured in standardized domestic series—easy to maintain and inexpensive.
 
-"Currently, small rural hydropower equipment is quite simple—low installation difficulty, minimal engineering investment. Power is generated via diversion channels; a head of 5–6 meters is sufficient. This technology is mature. Small and micro units are manufactured in standardized domestic series; they're easy to maintain and inexpensive.
+"At the same time, we'll need thermal power. There are various options for thermal prime movers, but diesel generators will be our workhorse in the early landing phase. They're convenient, require no supporting infrastructure, and aren't constrained by environment."
 
-"At the same time, we'll need thermal power. Thermal prime movers can use various methods. Diesel generators are convenient, require no infrastructure, and aren't limited by environment—they'll be our main power source in the early landing phase."
+Someone raised a hand. "Diesel will run out eventually. What then?"
 
-Someone raised a hand: "Diesel will run out eventually. What then?"
+"Diesel engines can use substitutes fairly easily," another member of the Energy Group offered. "I recall you can even run them on peanut oil."
 
-"Diesel engines can use substitutes relatively easily—I recall you can use peanut oil," someone from the Energy Group said.
+"I don't know about peanut oil," Chang Kaishen said thoughtfully, "but diesel engines can certainly convert to producer gas. When I was in the countryside, I saw plenty of small power stations running on gas engines. Shouldn't be difficult."
 
-"Heh, I don't know about peanut oil, but diesel engines can convert to producer gas." Chang Kaishen thought. "When I was in the countryside, I saw many small power stations using gas engines. Shouldn't be difficult."
+"I believe we'll eventually produce our own diesel," Xiao Zishan interjected. "Please continue."
 
-"I believe we'll eventually produce diesel." Xiao Zishan said. "Continue."
+"All right." Chang Kaishen nodded. "Based on the principle of not putting all our eggs in one basket, we should prepare small-to-medium diesel generators, small hydro units, and small wind turbines. We should also bring medium-capacity hydro equipment for future expansion once we've developed sufficient engineering capability. Wind turbines have low output and unstable generation, but they're simple to set up—suitable as backup power for living areas, outposts, and system redundancy."
 
-"All right," he went on. "Based on not putting all eggs in one basket, we need small-to-medium diesel generators, small hydro, and small wind turbines. We should also bring medium-capacity hydro units for future expansion once we have sufficient engineering capability. As for wind turbines—though they have low output and unstable generation—they're simple to set up and suitable as backup for living areas, outposts, and system redundancy."
+He smiled. "Of course, power generation is only part of the picture. Transmission, distribution, voltage transformation—these are all highly technical matters. I won't go into detail here. A concrete plan will take time to develop."
 
-He smiled. "Of course, power isn't that simple—transmission, distribution, voltage transformation are all quite technical. I won't go into detail. A concrete plan will take time."
+The next topic also fell to the Energy Group: petroleum substitutes. The transmigrators would need more than generators; they would need motorcycles, automobiles, and small boats. Neither gasoline nor diesel could be stored indefinitely. Without fuel self-sufficiency, there was little point in bringing large numbers of such vehicles.
 
-The next topic was also for Energy: substitutes for petroleum products. The transmigrators needed more than generators; they needed motorcycles, cars, and small boats. Neither gasoline nor diesel could be stored long-term. Without fuel self-sufficiency, there was no point bringing many such vehicles.
+"I'm afraid I can't agree with the moderator's framing," announced Luo Duo, who had contributed enormous amounts of energy-related content during the online discussions. "Though I understand the moderator is a humanities major, so that's understandable."
 
-"Heh, I can't agree with the moderator's comment," said Luo Duo, who had posted enormous amounts of energy content during online discussions. "Though I'm told the moderator is a humanities major, so it's understandable."
+Xiao Zishan's face flushed. His greatest grievance was hearing "humanities major" wielded as an insult. He suppressed his indignation and maintained a facade of composure.
 
-Xiao Zishan's face flushed. His greatest grievance was "humanities major" being used as an insult. He suppressed his indignation and feigned composure.
+"What we're really discussing is a prime-mover problem," Luo Duo continued, apparently oblivious to the moderator's simmering resentment. "Ships, cars, motorcycles—all of them can run on non-petroleum fuels. So petroleum substitutes aren't actually urgent.
 
-"Actually, what we're discussing is a prime-mover problem," said Luo Duo, apparently oblivious to the moderator's resentment. "Ships, cars, motorcycles—all can run on non-petroleum fuels. So petroleum substitutes aren't urgent.
+"Fundamentally, any petroleum-fueled prime mover can convert to producer gas, albeit with some power loss. But near the end of World War II, the Germans experimentally installed gas generators on armored personnel carriers and even tanks, so the output is clearly acceptable. Gas-generator technology is simple and practical, with low implementation difficulty.
 
-"Basically, any petroleum-fueled prime mover can convert to producer gas, though with some power loss. But near the end of World War II, the Germans experimentally installed gas generators on armored personnel carriers and tanks, so the output is acceptable. Gas-generator technology is simple, practical, with low implementation difficulty.
+"And let's not forget the steam engine. How long have gasoline and diesel engines even existed? The steam engine was the engine of the Industrial Revolution."
 
-"Also, let's not forget the steam engine. How long have gasoline and diesel engines been around? The steam engine was the engine of the Industrial Revolution."
+"Is there anywhere to even buy steam engines nowadays?" someone from the Machinery Group spoke up. "Don't tell me you expect us to manufacture them ourselves."
 
-"Is there anywhere to buy steam engines nowadays? Don't tell me you expect us to make them." Someone from Machinery spoke up.
+"You machinists—building a steam engine shouldn't be hard, should it? That's nineteenth-century technology!" Luo Duo retorted. "Our prime movers can't run on stockpiles forever."
 
-"You machinists—making a steam engine shouldn't be hard, right? That's nineteenth-century technology!" Luo Duo retorted. "Our prime movers can't run on stockpiles forever."
+"We've never actually built one," the Machinery Group representative admitted after a brief huddle with his colleagues. Ma Qianzhu rose to speak. "Everyone understands the basic principle, and there's plenty of design material available. We're confident we can build one. The boiler presents the main difficulty—it depends on what materials we can produce. That's really a question for Metallurgy."
 
-"We've never actually built one," the Machinery Group huddled briefly. Ma Qianzhu stood. "Everyone understands the principle; there's plenty of design material. We're confident we can build one. The boiler is the main difficulty—depends on what materials we can achieve. That's up to Metallurgy."
+"Currently, Metallurgy falls under the Industry Group," Xiao Zishan clarified. "I recall we have specialists in that area."
 
-"Currently, Metallurgy falls under Industry," Xiao Zishan clarified. "I recall we have specialists."
+"That's right—we have a college student majoring in metallurgy." Several people laughed, and a young man smiled sheepishly at the attention.
 
-"That's right—we have a college student majoring in metallurgy." Several people laughed; a young man smiled sheepishly.
+"Coordinate within your group and come up with a plan," Xiao Zishan instructed. "Please continue."
 
-"Coordinate within your group and come up with a plan. Please continue."
+"That's all I can think of for now." Luo Duo looked excited but was clearly showing signs of fatigue.
 
-"That's all I can think of." Luo Duo looked excited but showed signs of fatigue.
+"Why not consider biodiesel?" someone asked. "There's been considerable coverage lately; many countries have reached the practical stage."
 
-"Why not consider biodiesel?" someone asked. "There's been a lot of coverage; many countries have reached the practical stage."
+"Right—I recall Hainan has a type of kerosene tree. Cut the bark and the sap can be used as lamp oil."
 
-"Right—I recall Hainan has a kind of kerosene tree. Cut the bark and the sap can be used as lamp oil."
+"It only works for lamps; it's not real kerosene," Ma Qianzhu said authoritatively. "Biodiesel is far from simple. There are many oil-bearing crops—oil camellia, tung trees, Pistacia chinensis, bamboo tung—but none of their oils can be used directly as diesel. They all require modification processes. Besides, having just a few trees is useless. Such plantations need at least a hundred *mu* before they constitute an effective supply."
 
-"It can only be used for lamps; it's not real kerosene." Ma Qianzhu held forth authoritatively. "Biodiesel is not simple. Though there are many oil-bearing crops—oil camellia, tung trees, Pistacia chinensis, bamboo tung—none of the oils can be used directly as diesel. They require modification processes. Besides, having just a few trees is useless. Such plantations need at least a hundred *mu* to form effective supply."
+"By the way, oil-nan trees must grow to forty or fifty centimeters in trunk diameter before they produce oil," someone from Agriculture added. "Based on current findings, in Hainan they only grow in Sanya, Ledong, Dongfang, Changjiang, and Baisha—areas with better conditions than Lingao or Danzhou."
 
-"By the way, oil-nan trees must grow to 40–50 centimeters in trunk diameter before producing oil. Based on current findings, in Hainan they only grow in Sanya, Ledong, Dongfang, Changjiang, and Baisha—areas with better conditions than Lingao or Danzhou." Someone from Agriculture spoke up.
+"We could distill pine-root oil. The Japanese did this in World War II—you don't need specialized equipment to refine it into aviation gasoline."
 
-"We could distill pine-root oil. The Japanese did this in World War II—you don't need special equipment to refine aviation gasoline."
+"True, but the cost-effectiveness is terrible. The Japanese mobilized practically their entire population and produced only tens of thousands of barrels. Besides, Hainan doesn't have that many pine roots to begin with."
 
-"True, but the cost-effectiveness is terrible. The Japanese mobilized practically the entire population and produced only tens of thousands of barrels. Besides, Hainan doesn't have that many pine roots."
+"What about alcohol?" The biofuel faction wasn't ready to concede.
 
-"What about alcohol?" The biofuel faction persisted.
-
-"It can substitute, but alcohol has too low a heat value and causes engine carbon buildup—not an ideal substitute."
+"Alcohol can work as a substitute, but its heat value is too low and it causes engine carbon buildup. It's not an ideal solution."
 
 "I have one more perspective on petroleum substitutes." Another person stood. "I'm Zhong Lishi. I work in oil-shale retorting equipment design. I once designed refining equipment for a plant in Danzhou City, Hainan.
 
-"That city has abundant oil-shale reserves. Products from oil-shale retorting can be further refined into various petroleum products. Manufacturing gasoline and diesel is no problem."
+"That city has abundant oil-shale reserves. Products from oil-shale retorting can be further refined into various petroleum products. Manufacturing gasoline and diesel is entirely feasible."
 
 "Where's Danzhou?" someone muttered.
 
 "Just west of Lingao. Very close."
 
-"That resource sounds quite good."
+"That resource sounds promising."
 
-"Let me give a brief introduction: Changpo oil shale has 5.1% oil content and is associated with lignite. The Changpo deposit has two main ore bodies, 6 meters and 44.5 meters thick respectively. Mining is primarily open-pit.
+"Let me give a brief introduction," Zhong Lishi continued. "Changpo oil shale has 5.1% oil content and is associated with lignite deposits. The Changpo site has two main ore bodies, six meters and forty-four and a half meters thick respectively. Mining is primarily open-pit.
 
-"We can use Maoming-type retorts. Capacity is 50 tons of ore per retort per day, with 60% oil recovery. At Changpo's 5.1% content, each retort yields 1.5 tons of crude daily—not including by-products like gasoline and ammonia.
+"We can use Maoming-type retorts. Each retort processes fifty tons of ore per day, with sixty percent oil recovery. At Changpo's 5.1% oil content, that means each retort yields one and a half tons of crude shale oil daily—not counting by-products like gasoline and ammonia.
 
-"These retorts don't require many resources or much labor. To commission a small plant processing 1,600 tons per day—32 retorts—we'd also need 2 gas-heating furnaces, 1 ventilation building, 2 scrubbing towers, 2 cooling towers, and 2 chimneys. I have ready-made drawings; the equipment isn't difficult to manufacture. Such a plant would produce 48 tons of crude per day, plus by-products like gasoline, ammonia, coal gas, and phenol—all very useful.
+"These retorts don't require extensive resources or much labor. To commission a small plant processing 1,600 tons of ore per day—that's thirty-two retorts—we'd also need two gas-heating furnaces, one ventilation building, two scrubbing towers, two cooling towers, and two chimneys. I have ready-made drawings; the equipment isn't particularly difficult to manufacture. Such a plant would produce forty-eight tons of crude per day, plus by-products including gasoline, ammonia, coal gas, and phenol—all extremely useful.
 
-"Oil-shale crude is high quality; it can be refined into premium diesel. So diesel and gasoline engines can both operate normally—no need for gas engines."
+"Oil-shale crude is high quality. It refines into premium diesel. Both diesel and gasoline engines can operate normally—no need for gas-engine conversions."
 
-"Processing 1,600 tons daily!" Luo Duo jumped up. "Even if we all carried rocks, it wouldn't be enough!"
+"Processing 1,600 tons daily!" Luo Duo jumped to his feet. "Even if every one of us carried rocks all day, it wouldn't be enough!"
 
-"For an oil-shale plant, that's already quite small." Zhong Lishi wore the inscrutable smile of a high-level intellectual. "In reality, transport is by train and conveyor belt. The design output I mentioned is less than a single unit at a real shale-oil plant.
+"For an oil-shale plant, that's already quite small," Zhong Lishi replied with the inscrutable smile of a senior technical expert. "In reality, transport is handled by train and conveyor belt. The design output I mentioned is less than what a single unit produces at a real shale-oil plant.
 
-"If you think Changpo's oil yield is too low, the oil shale in Huangxian and Penglai, Shandong has 22% oil content. If we don't have petroleum extraction within ten or twenty years, we might consider taking Shandong first."
+"And if you think Changpo's oil yield is too low, consider this: the oil shale in Huangxian and Penglai, Shandong has 22% oil content. If we still don't have petroleum extraction capability within ten or twenty years, we might consider taking Shandong first."
 
-The crowd began murmuring. Several people from Athletics were poring over a map of China.
+A murmur rippled through the crowd. Several people from the Athletics Group were huddled over a map of China, tracing routes with their fingers.
 
-"Let's have Energy include this as a long-term plan, depending on what manufacturing level we reach." Wen Desi spoke. "Let's continue." He glanced at Xiao Zishan, who nodded.
+"Let's have Energy include this as a long-term plan, contingent on what manufacturing capabilities we develop," Wen Desi said. "Let's continue." He glanced at Xiao Zishan, who nodded his agreement.
 
 **(End of Chapter)**
