@@ -1,127 +1,123 @@
 # Chapter 174: Silhouettes on the Sea
 
-The Executive Committee's weekly meeting was underway aboard the *Fengcheng*. Originally held in the Executive Committee compound's conference room, the meeting had recently been rotating through departments with adequate facilities. Currently, the Agricultural Committee, Navy Department, Health Department, and Communications Center took turns hosting. The latter had just completed a three-story communications building.
+The Executive Committee's weekly meeting was underway aboard the *Fengcheng*. What had once been a fixed affair in the Executive Committee compound's conference room had lately become a rotating obligation, cycling through whichever departments possessed adequate facilities. The Agricultural Committee, Navy Department, Health Department, and Communications Center each took their turn as host—the latter having just completed construction of a handsome three-story communications building.
 
-Committee members, department heads, and advisors had just enjoyed milk-and-honey ice cream topped with tropical fruit cubes—the honey and fruit brought back by the Long-Range Exploration Team.
-
-Just as everyone was eating contentedly, someone burst through the door.
+Committee members, department heads, and advisors had been enjoying milk-and-honey ice cream crowned with cubes of tropical fruit, both the honey and the fruit brought back by the Long-Range Exploration Team. Everyone was savoring their dessert in contented silence when someone burst through the door.
 
 "Everyone! The ship's radar has detected an approaching fleet!"
 
-Chen Haiyang reacted fastest. "Who's on radar watch?"
+Chen Haiyang was on his feet before anyone else could react. "Who's on radar watch?"
 
-Two minutes later, the handset connected to Le Lin.
+Two minutes later, the handset connected him to Le Lin.
 
-"Report target position and count?"
+"Report target position and count."
 
 "Uh, in the screen's lower right corner..."
 
-"I don't mean that. Report bearing, distance, speed."
+"I don't mean that. Give me bearing, distance, and speed."
 
-"Ah..." Le Lin was stunned. He had never used radar, much less read targets from a radar screen. The other watch personnel were equally confused.
+"Ah..." Le Lin was at a loss. He had never actually operated radar before, much less interpreted targets on a radar screen. The other watch personnel were equally bewildered.
 
 "Get Meng De!"
 
 "He's not here—"
 
-"Where is he?!" Chen Haiyang started to flare up, then remembered that today was not Meng De's shift. "I'm coming."
+"Then where the hell is he?!" Chen Haiyang's temper flared before he remembered that today wasn't Meng De's shift. He exhaled sharply. "I'm coming."
 
-Everyone rushed over. The screen showed five or six blips, moving very slowly, not heading toward Bopu Harbor. The cargo ship's collision avoidance radar displayed an intuitive Plan Position Indicator. Referencing land reflection waves, Chen Haiyang roughly estimated the situation: targets were about six nautical miles east of the harbor.
+The entire room rushed over to the radar station. The screen displayed five or six blips moving at a crawl, their course running parallel to the coast rather than toward Bopu Harbor. The cargo ship's collision-avoidance radar offered an intuitive Plan Position Indicator display. Cross-referencing the land reflection waves, Chen Haiyang made a rough estimate: targets were approximately six nautical miles east of the harbor.
 
-"What kind of ships?"
+"What kind of ships are we looking at?"
 
-"One fairly large, hundred-ton class." Chen Haiyang studied the radar screen, then grabbed the radio to call Li Di on the tower, asking about sea observations.
+"One's fairly large—hundred-ton class." Chen Haiyang studied the screen a moment longer, then grabbed the radio and called Li Di at the tower to ask about sea observations.
 
-"No moonlight, can't observe. Should I use the searchlight?"
+"No moonlight tonight. Can't observe. Should I use the searchlight?"
 
-"No, not yet." At six nautical miles, the searchlight would not reach. He looked at Ming Qiu. "You think this could be an infiltration?"
+"No, hold off." At six nautical miles, the searchlight wouldn't reach anyway. Chen Haiyang turned to Ming Qiu. "You think this could be an infiltration?"
 
-Ming Qiu nodded. "A moonless, starless night like this is exactly right for infiltration."
+Ming Qiu nodded slowly. "A moonless, starless night like this is exactly right for infiltration."
 
-Transmigrator control over Bopu was limited. Whether tower observation posts or hidden beach sentries, there were always blind spots. Not to mention the extensive coastal mangroves—natural infiltration corridors.
+Transmigrator control over Bopu remained limited. Whether it was the tower observation posts or the hidden sentries along the beach, there were always blind spots. And the extensive coastal mangroves presented a particular vulnerability—natural corridors for anyone seeking to slip through undetected.
 
-"Send people with night vision equipment to search the beach."
+"Send people with night vision equipment to search the beach," Chen Haiyang ordered.
 
 "Bei Wei has a recon detachment stationed here. I'll call him immediately."
 
-Ma Qianzhu saw they were handling things well. There was nothing for him to add. He had a feeling: as Chief of Staff, he counted for little with the Navy. Ma Qianzhu found the Army officers in their uniform "Year-One" military dress more likable than these people wearing various national and era naval uniforms—there was not as much pretentious posturing. When ice cream was served earlier, he had noticed sailors wearing white gloves. Always posing.
+Ma Qianzhu observed the proceedings with quiet detachment. They were handling things well enough; there was nothing for him to add. Yet a familiar feeling nagged at him: as Chief of Staff, he counted for little with the Navy. Somehow he found the Army officers in their uniform "Year-One" military dress more likable than these sailors in their mismatched national and era naval uniforms—there was less pretentious posturing. Earlier, when ice cream was served, he had noticed several sailors wearing white gloves. Always posing.
 
 "Should we bring over an infantry platoon?" Ma Qianzhu suggested.
 
-"Yes. We only have one Marine Company here, and they have to man the ships. Not enough personnel." Chen Haiyang was straightforward. This at least reassured Ma Qianzhu that Army-Navy disputes had not reached the point of obstruction.
+"Yes. We only have one Marine Company stationed here, and they have to man the ships. Not enough personnel." Chen Haiyang's response was straightforward, which at least reassured Ma Qianzhu that Army-Navy disputes had not yet deteriorated to the point of obstruction.
 
-After waiting a while, the radar showed the ships continuing at two to three knots, slowly sailing along the Leizhou Peninsula side, with no other unusual activity.
-
-At night, the Navy could not send ships for inspection. They decided to intensify observation while adding hidden sentries at key locations.
+They waited. The radar showed the ships continuing at two to three knots, creeping along the Leizhou Peninsula side with no other unusual activity. At night, the Navy couldn't risk sending ships out for inspection. They resolved to intensify observation while adding hidden sentries at key locations.
 
 ---
 
-After the meeting, Wu De declined the invitation to stay overnight on the *Fengcheng*. He preferred the Bopu camp—ship berths were too small.
+After the meeting adjourned, Wu De declined the invitation to stay overnight aboard the *Fengcheng*. He preferred the Bopu camp—ship berths were too cramped for his taste.
 
-The Bopu camp now resembled a proper base. Tents had been replaced by rows of brick-and-tile buildings. Roads were leveled. Roadside biogas lamps illuminated the camp brightly—a facility even Bairren Fortress lacked. Bairren's biogas pool was larger, but the cafeteria consumed most of it. The beach's primitive natural bath had also disappeared.
+The camp had transformed into a proper base since those early days. Tents had given way to orderly rows of brick-and-tile buildings. Roads had been leveled and graded. Roadside biogas lamps illuminated the grounds with a warm glow—a facility that even Bairren Fortress lacked. Bairren's biogas pool was larger, but the cafeteria consumed most of its output. The beach's primitive natural bath had also vanished, replaced by more civilized arrangements.
 
-Though Wu De had long moved to the Bairren Commune, his D-Day Indian-style tent near the Bopu infirmary had been preserved. Every Bopu visit, he would clear weeds or clean the tent, staying several days—like a vacation. The environment was genuinely nice. Exit the woods and there was the beach and reef, sheltered and sunny, mosquito-free.
+Though Wu De had long since relocated to the Bairren Commune, his D-Day Indian-style tent near the Bopu infirmary had been preserved. Every time he visited Bopu, he would clear the weeds, tidy up the tent, and stay for several days—something like a vacation. The environment was genuinely pleasant. Step out of the woods and there was the beach and reef, sheltered and sun-drenched, mercifully free of mosquitoes.
 
-Passing the still-lit Bopu infirmary—this medical tent had become a two-story brick-and-wood building—the path to his "villa" had been carefully paved with gravel. He smiled awkwardly. Being an official certainly had its perks.
+He passed the Bopu infirmary, its lights still glowing—what had once been a canvas medical tent was now a two-story brick-and-wood building. The path to his "villa" had been carefully paved with gravel. Wu De allowed himself an awkward smile. Being an official certainly had its perks.
 
-The "villa" was no longer an Indian tent but a more comfortable thatched cottage. Hand-built: wooden beams and pillars, woven bamboo lattice walls, exterior wattle-and-daub plaster, interior bamboo-strip lining, earthen floor, and a thick new-straw roof emitting fresh fragrance. His rural grass-house skills had not atrophied. The seaside wall had a straw-roofed veranda with a brick fire pit. When tired of cafeteria food, he would cook something wild here, also entertaining compatible friends. The table and bed inside were from the Women's Cooperative's confiscated-goods sale—sturdy and durable.
+The "villa" itself was no longer an Indian tent but a comfortable thatched cottage, built by his own hands. Wooden beams and pillars formed the skeleton; woven bamboo lattice made up the walls, plastered with wattle-and-daub on the exterior and lined with bamboo strips inside. The earthen floor was packed hard, and a thick roof of new straw exhaled its fresh fragrance. His rural grass-house skills had not atrophied after all. The seaside wall featured a straw-roofed veranda with a brick fire pit—when he tired of cafeteria food, he would cook something wild out here, sometimes entertaining compatible friends. The table and bed inside had come from the Women's Cooperative's confiscated-goods sale, sturdy and built to last.
 
-The cottage was immaculate, items sparse but organized. A porcelain vase stood incongruously on the table—worth at least 100,000 RMB in their original timeline—now stuffed with wildflowers. Wu De knew this was Chuyu's work. Since this girl first visited Bopu with him, she had come every few days to tidy his villa.
+The cottage was immaculate, its few possessions spare but orderly. A porcelain vase stood incongruously on the table—worth at least 100,000 RMB back in their original timeline—now stuffed with wildflowers. Wu De knew this was Chuyu's work. Ever since the girl had first accompanied him to Bopu, she had been coming by every few days to tidy his villa.
 
-Chuyu, since arriving at his side, acted completely devoted. She attended to his daily life with great care. Several times she had lingered in his bedroom at night with flushed cheeks. But Wu De had not made any moves. Not that he was a saint impervious to temptation. But Chuyu looked too young—he could not bring himself to cross that line. Besides, nobody else had a "domestic secretary" yet; being first with a woman would look bad.
+Since arriving at his side, Chuyu had acted completely devoted, attending to his daily life with meticulous care. Several times she had lingered in his bedroom at night, cheeks flushed, intentions unmistakable. But Wu De had not made any moves. It wasn't that he was some saint impervious to temptation. But Chuyu looked too young—he couldn't bring himself to cross that line. Besides, nobody else had acquired a "domestic secretary" yet; being the first to take up with a woman would look bad.
 
-Coming off the ship, he felt hungry. Ma Qianzhu had said he wanted to come drink and chat. Might as well catch some seafood—he had not had any in a while.
+Coming off the ship, he felt the pangs of hunger. Ma Qianzhu had mentioned wanting to come by for drinks and conversation. Might as well catch some seafood—he hadn't had any in a while.
 
-Wu De stretched, removed his jacket, and hung it up. From under the bed, he pulled out a wooden chest, opening the lock. Besides a sleeping bag and camping gear, it contained complete wilderness survival emergency supplies, all meticulously organized. At the bottom: a black canvas gun bag containing a Type-56 semiautomatic rifle and two boxes of ammunition. If anything happened, he could grab his pack and gun and survive independently. In these times, trust the organization—but trust yourself more.
+Wu De stretched luxuriously, removed his jacket, and hung it up. From beneath the bed he pulled out a wooden chest and worked the lock open. Besides a sleeping bag and camping gear, it contained a complete set of wilderness survival emergency supplies, all meticulously organized. At the bottom lay a black canvas gun bag containing a Type-56 semiautomatic rifle and two boxes of ammunition. If anything went wrong, he could grab his pack and rifle and survive on his own. In these times, you trusted the organization—but you trusted yourself more.
 
-From the chest, he took a kerosene lamp and a two-meter cast net. Attached to two sturdy poles weighted with stones, it was ready. About to leave, he saw Ma Qianzhu strolling over, carrying a rattan basket.
+From the chest he retrieved a kerosene lamp and a two-meter cast net. The net was already rigged to two sturdy poles weighted with stones, ready for deployment. He was about to leave when he spotted Ma Qianzhu strolling over, a rattan basket in hand.
 
-"What's that?"
+"What's in there?"
 
-"Wine. Waiting for your midnight snack."
+"Wine. I'm here for your midnight snack."
 
-"Sure. Wait a bit."
+"Sure. Give me a minute."
 
-He went to the bay with the net, wading waist-deep, stretched the net, and drove the poles deep into the mud. He fetched stones from the shore to weight the poles. He hung the lamp on one pole—just waiting for crabs. This was a "bandit net"—the mesh was as fine as a sieve. Even great white sharks would be doomed; small fish were trapped instantly, large fish tangled tighter. Best of all, nylon netting never rotted, requiring no maintenance.
+He headed down to the bay with the net, wading in waist-deep. He stretched the mesh taut and drove the poles firmly into the mud, then fetched stones from the shore to anchor them more securely. He hung the lamp on one pole—now all he had to do was wait for crabs. It was what some called a "bandit net"—the mesh was fine as a sieve. Even a great white shark would be doomed in those threads; small fish were trapped instantly, large fish only tangled themselves tighter. Best of all, nylon netting never rotted and required no maintenance.
 
-Smoking a cigarette on the shore, then checking the net—already seven or eight crabs were caught. He put on thick canvas gloves, extracted the crabs, strung fish and crabs on a willow twig, harvested some oysters from the bay, and returned to the villa.
+He smoked a cigarette on the shore, then checked the net. Already seven or eight crabs had wandered in. He pulled on thick canvas gloves, extracted the crabs, strung the fish and crabs on a willow twig, harvested some oysters from the bay, and made his way back to the villa.
 
-Back at the veranda, he hung the lamp and added wood to the fire pit. Flames rose against the darkness.
+At the veranda, he hung the lamp and added wood to the fire pit. Flames rose against the darkness, casting dancing shadows across the sand.
 
-"No pot or oil and salt here. Just roasted crab."
+"No pot or oil and salt out here. Just roasted crab tonight."
 
-He set up a metal roasting rack on stones. Crabs, split open, were roasted shell-side-down. Oysters went directly on top. Soon several oysters popped open, steaming and releasing a fresh fragrance.
+He set up a metal roasting rack on stones. The crabs, split open, went shell-side down over the coals. Oysters went directly on top. Within minutes, several oysters popped open with a hiss, steaming and releasing their briny fragrance.
 
-"Come, drink." Ma Qianzhu poured into enamel cups—local yellow wine, low alcohol, just average taste. Wu De could make wine and had brought wine yeast, but grain was still a strategic resource. Before the first transmigrator harvest, making wine was premature.
+"Come on, drink." Ma Qianzhu poured into enamel cups—local yellow wine, low in alcohol and only average in taste. Wu De knew how to make wine and had even brought wine yeast with him, but grain remained a strategic resource. Before the first transmigrator harvest came in, making wine was premature.
 
-They mainly discussed the Army-Navy disputes. Wu De was equally perceptive. Though there were no incidents yet and coordination was smooth, the warning signs were there.
+Their conversation drifted to the Army-Navy disputes. Wu De was equally perceptive; though there had been no incidents yet and coordination remained smooth, the warning signs were there.
 
-"This is just the beginning," Wu De said slowly, drinking. "Right now the army scale is small, resources are sufficient. Once we enter the expansion phase, watch the drama."
+"This is just the beginning," Wu De said slowly, sipping his wine. "Right now the force is small, resources are sufficient. Once we enter the expansion phase, then you'll see the real drama."
 
-"I also sense the military is becoming somewhat uncontrollable." Ma Qianzhu stared into the flames, speaking quietly. "Especially the Navy."
+"I also sense the military is becoming somewhat uncontrollable." Ma Qianzhu stared into the flames, his voice low. "Especially the Navy."
 
-"Mm." Though his background made Wu De reluctant to criticize the Navy, he shared Ma Qianzhu's feeling.
+"Mm." Though his own background made Wu De reluctant to criticize the Navy, he shared Ma Qianzhu's unease.
 
-"We have the Security Group now—" Wu De said.
+"We have the Security Group now—" Wu De began.
 
-"Only twenty people. Not much use. We must focus on power balance."
+"Only twenty people. That's not nearly enough. We need to focus on power balance."
 
 "Internal Affairs Department?"
 
-"Mm." Ma Qianzhu casually tossed an oyster shell aside. "If we don't rein in the military, ending up with a military junta won't be a joke!"
+"Mm." Ma Qianzhu casually tossed an oyster shell aside. "If we don't rein in the military, ending up with a military junta won't be a joke."
 
-"Not that dramatic." Wu De tensed internally. He was not a democracy advocate, but military rule was obviously bad news.
+"Let's not be dramatic." Wu De felt himself tense inwardly. He was no democracy advocate, but military rule was obviously bad news for everyone.
 
-"I'm thinking of talking more with Ming Qiu. He's a veteran, former Party member. He should have this awareness. With him supervising, the Navy's young hotheads won't get too out of hand."
+"I'm thinking of talking more with Ming Qiu," Ma Qianzhu continued. "He's a veteran, former Party member. He should have this awareness. With him supervising, the Navy's young hotheads won't get too out of hand."
 
-"I agree!" Wu De concurred. "For the Army, you can talk to He Ming."
+"I agree." Wu De nodded emphatically. "For the Army, you could talk to He Ming."
 
-"Right. So I also hope you'll play a bigger role. You're ex-Navy too." Ma Qianzhu spoke earnestly.
+"Right. And that's why I hope you'll play a bigger role in all this. You're ex-Navy too." Ma Qianzhu spoke with evident sincerity.
 
-So that was what he had been leading to, Wu De thought. But that was his intention anyway. He readily agreed.
+So that was what he had been leading up to, Wu De realized. But it aligned with his own intentions anyway. He readily agreed.
 
-"Actually, don't be too paranoid. Everyone's quite decent. Though there are disputes, it's all for the collective, no selfish motives. In decades, this is the first time I've seen such a united group." Wu De said. "Today's battle went well. The Army performed admirably. Captured many prisoners."
+"Actually, don't be too paranoid," Wu De said after a moment. "Everyone's quite decent. There may be disputes, but it's all for the collective good—no selfish motives. In all my decades, this is the first time I've seen such a united group." He paused. "Today's battle went well. The Army performed admirably. Captured many prisoners."
 
-Ma Qianzhu snorted: "That's actually what I wanted to discuss." He picked up a crab leg, blew on it, and started nibbling. "This victory was strange."
+Ma Qianzhu snorted. "That's actually what I wanted to discuss." He picked up a crab leg, blew on it to cool it, and started nibbling. "This victory was strange."
 
 **(End of Chapter)**

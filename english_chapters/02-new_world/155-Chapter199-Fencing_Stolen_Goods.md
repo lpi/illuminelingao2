@@ -1,8 +1,8 @@
 # Chapter 199 - Fencing Stolen Goods
 
-The Portuguese trade had been devastated. Several Japanese Kirishitans spoke mournfully of how the "heretical" Dutch now dominated Japan's foreign commerce, maintaining their trading post at Hirado while true Catholic believers had been expelled. Though Portuguese-Japanese trade had recently shown signs of recovery, it amounted to no more than a single ship per year. The local church had suffered grievously as well—the Macau Jesuits had once enjoyed the lucrative privilege of trading forty piculs of raw silk through the Portuguese-Japanese route.
+The Portuguese trade had been devastated—that much was clear from the mournful accounts of the Japanese Kirishitans. The "heretical" Dutch now dominated Japan's foreign commerce, they explained, maintaining their trading post at Hirado while true Catholic believers had been expelled from the islands. Though Portuguese-Japanese trade had shown recent signs of recovery, it amounted to no more than a single ship per year. The local church had suffered grievously as well; the Macau Jesuits had once enjoyed the lucrative privilege of trading forty piculs of raw silk through the Portuguese-Japanese route, and that privilege was now a memory.
 
-This intelligence proved valuable to the transmigrators, but further questioning yielded diminishing returns. The Japanese craftsmen, thrilled to encounter these peculiar fellow believers who were neither Japanese nor quite Chinese nor Western, soon turned the conversation exclusively toward the Tokugawa Shogunate's persecution of the Kirishitans—tales of martyrdom and miracles that held little interest for Bai Duoluo, whose practice of Catholicism had never been particularly devout. He was searching for a polite excuse to slip away when the craftsmen insisted he meet the local church's priest. Recognizing this as a matter requiring organizational approval, he hurried off to consult Wen Desi about whether contact with the local church was advisable and, if so, what stance they should adopt.
+This intelligence proved valuable to the transmigrators, but further questioning yielded diminishing returns. The Japanese craftsmen, thrilled to encounter these peculiar fellow believers who were neither Japanese nor quite Chinese nor Western, soon turned the conversation exclusively toward the Tokugawa Shogunate's persecution of the Kirishitans. They spoke at length of martyrdom and miracles—tales that held little interest for Bai Duoluo, whose practice of Catholicism had never been particularly devout. He was searching for a polite excuse to slip away when the craftsmen insisted he meet the local church's priest. Recognizing this as a matter requiring organizational approval, he hurried off to consult Wen Desi about whether contact with the local church was advisable and, if so, what stance they should adopt.
 
 After deliberation, Wen Desi concluded they should make contact—if only to discover what the Catholic Church might offer. Cultivating good relations for the time being could do no harm, and might even yield practical assistance. He approved Bai Duoluo's visit to the local church, instructing him to explain their origins according to the *Captive's Handbook*.
 
@@ -10,17 +10,19 @@ After deliberation, Wen Desi concluded they should make contact—if only to dis
 
 "Understood, Director Wen." Bai Duoluo departed with the craftsmen.
 
-The rest of the group continued their wandering. Gradually, the streets shed their European character—fewer white faces, more Chinese architecture. Inquiries revealed this to be De Street, Macau's Chinese quarter. Shops lined both sides, their signboards displaying a bewildering variety of trades. Zhang Xin noted that most dealt in raw silk and silk fabrics, with porcelain establishments also well represented. Some storefronts presented an air of refined elegance yet displayed no visible merchandise; attendants in blue-collared jackets and small caps stood ready to greet customers at their doors. The group was idly speculating about these mysterious establishments when a young shop clerk emerged from one and invited them inside for a conversation.
+The rest of the group continued their wandering. Gradually the streets shed their European character—fewer white faces appeared among the crowds, and the architecture took on an increasingly Chinese aspect. Inquiries revealed this to be De Street, Macau's Chinese quarter. Shops lined both sides of the lane, their signboards displaying a bewildering variety of trades. Zhang Xin noted that most dealt in raw silk and silk fabrics, with porcelain establishments also well represented. Some storefronts presented an air of refined elegance yet displayed no visible merchandise; attendants in blue-collared jackets and small caps stood ready at their doors to greet customers. The group was idly speculating about these mysterious establishments when a young shop clerk emerged from one and invited them inside for a conversation.
 
 Bringing the entire party would be both unnecessary and imprudent—such a large group moving together was far too conspicuous. Wen Desi had noticed several black men in livery trailing silently behind them, likely local security personnel. To avoid complications, he decided that only he and a few others would enter to assess the situation; the rest would disperse into groups of five or six to explore freely.
 
-The streets in the Chinese quarter were narrow to begin with, and the profusion of shops along them had erected awnings that blocked out much of the already limited sky. The lighting was poor, and stepping into the shop plunged them into deeper shadow, accompanied by a faint, subtle fragrance. After a moment their eyes adjusted. Beyond the entrance hall lay a reception room in the classic Chinese style: gray brick flooring, rosewood trim, and a pair of Yiwu glass palace lanterns suspended from the center beam. Wen Desi had to smile when he saw them—evidently their products had already become markers of status.
+The streets in the Chinese quarter were narrow to begin with, and the profusion of shops along them had erected awnings that blocked out much of the already limited sky. The lighting was poor, and stepping into the shop plunged them into deeper shadow, accompanied by a faint, subtle fragrance. After a moment their eyes adjusted to reveal a reception room in the classic Chinese style beyond the entrance hall: gray brick flooring, rosewood trim, and a pair of Yiwu glass palace lanterns suspended from the center beam. Wen Desi had to smile when he saw them—evidently their products had already become markers of status.
 
-As he surveyed the room, a well-dressed Chinese merchant emerged from behind the screen. He offered a formal bow and introduced himself as Huang Shunlong, manager of the "Tailong" trading house. Courtesies and names were exchanged, and both parties took their seats. Huang Shunlong proved refreshingly direct, asking Wen Desi point-blank: "Are you merchants from Australia?"
+As he surveyed the room, a well-dressed Chinese merchant emerged from behind the screen, offered a formal bow, and introduced himself as Huang Shunlong, manager of the "Tailong" trading house. Courtesies and names were exchanged, and both parties took their seats. Huang Shunlong proved refreshingly direct.
+
+"Are you merchants from Australia?"
 
 "Indeed."
 
-"They say Australian merchants have shorn hair and short jackets. Now I see the rumors were accurate." Huang Shunlong allowed himself a thin smile. "Manager Wen has come to Macau on business, yes?" His voice dropped to a conspiratorial murmur. "Perhaps you have certain goods that proved... difficult to dispose of in Guangzhou?"
+"They say Australian merchants have shorn hair and short jackets. Now I see the rumors were accurate." A thin smile crossed Huang Shunlong's face. "Manager Wen has come to Macau on business, yes?" His voice dropped to a conspiratorial murmur. "Perhaps you have certain goods that proved... difficult to dispose of in Guangzhou?"
 
 Wen Desi and the others stiffened. "Goods difficult to dispose of in Guangzhou" could only mean the loot they had seized from the Gou manor in their black-on-black raid. Did this man have connections to Gou Er? Wang Ruixiang, responsible for security, had already slipped his hand to the grip of his Type 54 pistol.
 
@@ -30,7 +32,7 @@ So those black men had been his. Wen Desi understood at once.
 
 "And what reputation might that be?"
 
-Huang Shunlong produced a small golden snuff box with evident satisfaction. He scooped out a pinch of tobacco with his fingernail and inhaled it delicately.
+In reply, Huang Shunlong produced a small golden snuff box with evident satisfaction. He scooped out a pinch of tobacco with his fingernail and inhaled it delicately.
 
 "Manager Wen finds himself rather short of saltpeter in Lingao, does he not?"
 
@@ -44,9 +46,9 @@ As it transpired, "Tailong" specialized in overseas trade. The house operated ov
 
 Macau was no pirate haven, of course, and both fencing stolen goods and provisioning pirates were illegal. The Portuguese governor's authority offered some protection, but Macau itself could not shield him from the *Great Ming Code*. That Huang Shunlong had operated this business locally for years and remained unmolested spoke to one obvious fact: he had money, and plenty of it. Additionally, he had married a Portuguese wife—a decision that had destroyed his reputation within his own clan and very nearly gotten him expelled from it entirely.
 
-Such a man suited the transmigrators' needs admirably. Wen Desi produced a manifest of the various trade goods seized from the Gou manor. Useful items—ironware, cotton cloth, woolen fabric, leather, copperware—would naturally be retained. But the substantial quantities of porcelain, silk, and handicrafts served no purpose for them and were ripe for quick disposal.
+Such a man suited the transmigrators' needs admirably. Wen Desi produced a manifest of the various trade goods seized from the Gou manor—ironware, cotton cloth, woolen fabric, leather, copperware, and the like. Useful items would naturally be retained, but the substantial quantities of porcelain, silk, and handicrafts served no purpose for them and were ripe for quick disposal.
 
-They negotiated terms: Huang Shunlong would purchase all the goods on the transmigrators' list for forty thousand piastres. The transmigrators would handle delivery to Macau, and both parties would settle in full upon receipt. Additionally, Huang Shunlong would provide an extra ten thousand catties of pig iron and one thousand catties of saltpeter.
+The negotiations proceeded swiftly. Huang Shunlong would purchase all the goods on the transmigrators' list for forty thousand piastres. The transmigrators would handle delivery to Macau, and both parties would settle in full upon receipt. Additionally, Huang Shunlong would provide an extra ten thousand catties of pig iron and one thousand catties of saltpeter.
 
 "How would Manager Wen prefer to settle the account?" Huang Shunlong inquired.
 
@@ -60,7 +62,7 @@ By Wen Desi's thinking, the notes would be more practical—they would be making
 
 The deal was struck. Huang Shunlong smiled like a fox who had just raided the henhouse—clearly he believed he had gotten the better end of the bargain. He then mentioned that Australian goods were quite remarkable and expressed hope for future cooperation in that area. Wen Desi felt a quiet satisfaction: their products really were universally appealing.
 
-They dispatched someone back to the ship to retrieve samples of the transmigrator collective's limited self-produced goods. These consisted mainly of various small glass items and the rice wine from the Guangzhou Dispatch Station. Huang Shunlong examined them, his brow furrowing before he spoke. "These items are fine quality, but the market for them is limited."
+They dispatched someone back to the ship to retrieve samples of the transmigrator collective's limited self-produced goods, which consisted mainly of various small glass items and the rice wine from the Guangzhou Dispatch Station. Huang Shunlong examined them with a furrowing brow before speaking. "These items are fine quality, but the market for them is limited."
 
 He gestured toward the glass pieces. "The Franks bring such glass trinkets on every ship—bowls, beads, baubles. Their workmanship may not match yours, but it's sufficient to impress the natives of the South Seas. As for the liquor, they mostly drink fruit wines here. I'm afraid there may be little interest in rice spirits."
 

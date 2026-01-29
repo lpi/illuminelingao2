@@ -1,75 +1,73 @@
 # Chapter 166: Armed Procession
 
-News that the "bald bandits" had bivouacked nearby spread quickly to surrounding villages. Obviously, over two hundred fully armed, artillery-equipped soldiers weren't just touring the countryside. Before dark, villages within ten *li* sent envoys carrying wine, dried meat, chickens, and ducks.
+Word that the "bald bandits" had bivouacked nearby spread through the surrounding villages like wildfire. Over two hundred fully armed soldiers with artillery weren't simply touring the countryside for pleasure—everyone understood that much. Before nightfall, villages within ten *li* had dispatched envoys bearing wine, dried meat, chickens, and ducks as offerings.
 
-"I was just about to summon them, and they've delivered themselves." Xi Yazhou had a clear mandate from the Executive Committee: pacify the roadside villages and secure their allegiance.
+"I was just about to summon them," Xi Yazhou remarked with satisfaction, "and here they've delivered themselves." His mandate from the Executive Committee was clear: pacify the roadside villages and secure their allegiance.
 
-The headquarters tent had a radio installed and a laptop computer displaying Xi Yazhou's beloved wargame—now converted into an operational simulation system. Outside, two soldiers frantically pedaled a dual-person generator.
+The headquarters tent housed a radio and a laptop displaying Xi Yazhou's beloved wargame, now repurposed as an operational simulation system. Outside, two soldiers frantically pedaled a dual-person generator to keep it running. Xi Yazhou himself sat on a folding canvas chair before the tent, two red-yellow triangular pennants fluttering on flagstaffs behind him—his personal command flags. The official banner of the transmigrator army remained mired in heated debate, but that hardly mattered now. Watching the bent-backed village elders shuffle through the camp gate in their finest clothes, Xi Yazhou found himself savoring this taste of power.
 
-Xi Yazhou sat on a folding canvas chair in front of the headquarters tent. Behind him fluttered two red-yellow triangular pennants on flagstaffs—his personal command flag. The official flag of the transmigrator army remained a subject of heated debate. Watching the bent-backed elders in their best clothes shuffle toward him through the camp gate... this feeling of power was rather enjoyable.
+Through a chain of three interpreters—one for Lingao dialect, one for military terminology, and one for Qiongzhou dialect—Xi Yazhou explained that his forces were merely passing through and would depart at dawn. The gifts, he said, were politely refused. What happened next caught him completely off guard: the elders began to weep. They dropped to their knees, clutching at his legs, their desperate pleas tumbling over one another.
 
-Through three interpreters—for Lingao dialect, military dialect, and Qiongzhou dialect—Xi Yazhou explained that they were merely passing through and would depart at dawn. The gifts were politely refused. Unexpectedly, this refusal made the elders weep. They knelt, desperately pleading, practically hugging his legs.
+"What in the world is happening?" Xi Yazhou turned to Translator Xiong Buyu, utterly baffled.
 
-"What's happening?" Xi Yazhou was puzzled.
+Xiong Buyu was equally perplexed—why would a perfectly harmless announcement provoke such a reaction? After considerable questioning, the truth emerged: the elders had interpreted "rejection of gifts" as "dissatisfaction," which in their experience meant imminent extortion or worse. Now they were wailing that their villages would surely starve.
 
-Translator Xiong Buyu was equally confused—why did a harmless announcement produce this reaction? After much questioning, it emerged that the elders had assumed "rejection of gifts" meant "dissatisfaction"—implying imminent extortion or worse. All of them began wailing about their villages starving to death.
+Xi Yazhou half-laughed, half-sympathized with their plight. "Fine, accept the wine," he conceded. "Keep the dried meat and poultry for yourselves. Send fresh vegetables and eggs instead."
 
-"Fine, accept the wine." Xi Yazhou half-laughed, half-sympathized with the commoners' plight. "Keep the dried meat and poultry. Send fresh vegetables and eggs instead."
+The elders rose as if pardoned from execution. They then pooled together an offering of fifty *liang* of silver for "Chief Xi," which Xi Yazhou firmly refused. This refusal, unlike the first, earned him genuine praise—"The General is incorruptible," "The Chief is pure and selfless"—and similar declarations that Xiong Buyu dutifully translated until he grew tired of bothering.
 
-Hearing Xi Yazhou's request, the elders rose as if pardoned from execution. The villages then jointly presented "Chief Xi" with fifty *liang* of silver. Xi Yazhou firmly refused this time. The refusal earned him genuine praise: "The General is incorruptible," "The Chief is pure and selfless." Xiong Buyu translated a few comments—then stopped bothering.
+His expression hardening, Xi Yazhou delivered the real message: per Executive Committee policy, all villages must send representatives to Bairren Fortress by the thirtieth day of the first month, Chongzhen Year 2, to discuss matters of bandit suppression. Lateness would be treated as bandit collaboration.
 
-Xi Yazhou, his face stern, announced that per Executive Committee policy, all villages must send representatives to Bairren Fortress by the thirtieth day of the first month, Chongzhen Year 2, to discuss "bandit suppression" matters. Lateness would be treated as "bandit collaboration."
+"Everyone knows what happened to Gou Manor and their pirate collusion," Xi Yazhou said, his glare sweeping across the kneeling crowd. "We came to Lingao and saw the people suffering while bandits ran rampant. We organized a militia for one purpose: eliminating tyranny, protecting borders, securing the people—maintaining peace on behalf of the Court. Those who refuse to cooperate oppose all the people of Lingao. And opposing the people of Lingao means opposing the Court. Opposing the Court makes you rebel traitors!" He slashed his hand downward. "Anyone has the right to execute them. As for the villages not present today—you will notify them."
 
-"Everyone knows what happened to the pirate-colluding Gou Manor." Xi Yazhou glared menacingly. "We came to Lingao, saw the people suffering and bandits running rampant. We organized a militia for 'Eliminating tyranny, Protecting borders, Securing the people'—maintaining peace on behalf of the Court. Non-cooperators oppose all the people of Lingao. Opposing the people of Lingao means opposing the Court. Opposing the Court makes you rebel traitors! Anyone has the right to execute them!" He slashed his hand downward. "As for the villages absent today—you notify them."
+The kneeling crowd exchanged confused glances. These "bald bandits" were pirates themselves, yet they claimed to act on behalf of the Court? But confusion aside, the bloody legend of Gou Manor had been embellished through countless retellings until it had become the stuff of nightmares. No one dared refuse; they could only murmur their assent, secretly relieved their villages had been wise enough to send representatives.
 
-The kneeling crowd was confused. These "bald bandits" were pirates themselves—yet they claimed to be acting "for the Court"? Confusion aside, the bloody legend of Gou Manor, embellished through countless retellings, had become a horror story. Nobody dared say "no"; they only murmured assent, secretly relieved their villages had wisely sent representatives.
+Xi Yazhou also demanded that each village provide one liaison to accompany his forces, along with mountain guides familiar with the terrain. Only then were they dismissed.
 
-Xi Yazhou also required each village to send one liaison to accompany the forces, plus mountain guides. Only then were they dismissed.
+"Did every village send someone?" Xi Yazhou asked Xiong Buyu afterward, checking off the villages marked on his map.
 
-"Every village sent someone?" Xi Yazhou asked Xiong Buyu, checking off map-marked villages.
+"Within ten *li*, all of them came. Within fifteen *li*, three."
 
-"Within ten *li*, all came. Within fifteen *li*, three came."
+Xi Yazhou smiled with quiet confidence. "After we handle Baitu, more will come."
 
-Xi Yazhou smiled confidently. "After we handle Baitu—more villages will come."
+"Why summon them to Bairren?" Xiong Buyu asked.
 
-"Why summon them to Bairren?" Xiong Buyu was curious.
+"Conscription and requisitions." Xi Yazhou studied the terrain map spread before him. "In Lingao county, we have no real opponents. The next step is utilizing local manpower and resources. Chief Ma wants to seize the county seat and install himself as magistrate, but Commissar Wen prefers to 'encircle the cities from the countryside'—use force to pressure the villages first, building our administrative network before we bother with the seat itself. The county *yamen* is irrelevant."
 
-"Conscription and requisitions." Xi Yazhou studied the terrain map. "In Lingao county, we have no real opponents. The next step is utilizing local manpower and resources. Chief Ma wants to seize the county seat and install himself as magistrate. But Commissar Wen prefers to 'encircle the cities from the countryside'—use force to pressure villages, building our administrative network first. The county seat itself is irrelevant."
-
-"The county seat does seem pointless. It's just a *yamen*. We can occupy it trivially whenever we want."
+"The county seat does seem pointless," Xiong Buyu agreed. "It's just a *yamen*. We could occupy it trivially whenever we want."
 
 "Exactly. The people are fundamental."
 
 "Report—Navy Commander Chen has arrived!"
 
-Tomorrow the mountain march would begin. The Navy support flotilla couldn't resupply the Army until they reached Baitu. Xi Yazhou coordinated with flotilla commander Chen Haiyang. Both decided: advance separately tomorrow. The Army would reach Baitu's perimeter by 3:00 p.m. Then—issue a surrender demand to the villagers. If that failed, Xi Yazhou would fire three red rockets—and the *Fubo* would bombard Baitu harbor. If successful, one green rocket. With the recruited firecracker craftsman, signal rockets were now feasible, though modern signal flares were not.
+The mountain march would begin tomorrow. The Navy support flotilla couldn't resupply the Army until they reached Baitu, so Xi Yazhou needed to coordinate with flotilla commander Chen Haiyang. After discussion, both decided to advance separately the following day. The Army would reach Baitu's perimeter by 3:00 p.m. and issue a surrender demand to the villagers. If the demand failed, Xi Yazhou would fire three red rockets as a signal for the *Fubo* to bombard Baitu harbor. If it succeeded, one green rocket. Thanks to their recently recruited firecracker craftsman, signal rockets were now feasible, though modern signal flares remained beyond their capability.
 
-They established various communication signals and contingency plans. Past 6:00 p.m., Chen Haiyang rowed back to the *Fubo*, declining Xi Yazhou's dinner invitation but taking the Navy's share of vegetables and eggs. Xi Yazhou was certain the *Fubo* had better food. This irked him—especially as he watched his orderly bring steaming rice noodle soup.
+They established various communication signals and contingency plans. Past 6:00 p.m., Chen Haiyang rowed back to the *Fubo*, declining Xi Yazhou's dinner invitation but happily accepting the Navy's share of vegetables and eggs. Xi Yazhou was certain the *Fubo* had better food anyway. The knowledge irked him, especially as he watched his orderly approach with steaming rice noodle soup.
 
-Dinner: Grassland-3 and -4. The former was rice noodle wrappers; the latter was rice vermicelli. Boiled until soft—with complete seasoning packets: salt, dried scallion, pepper. Unfortunately, there was no chili—otherwise, chili oil would have perfected it. The nearby villagers' vegetables and eggs enriched the soup.
+Dinner consisted of Grassland-3 and Grassland-4 rations. The former was rice noodle wrappers; the latter was rice vermicelli. Boiled until soft and served with complete seasoning packets containing salt, dried scallion, and pepper. A shame there was no chili—otherwise, chili oil would have perfected the dish. The vegetables and eggs from the nearby villages enriched the soup nicely.
 
-The taste was quite good—it just lacked fat. Xi Yazhou again witnessed the local farmers' appetites: one soldier ate nearly three *jin* of rice noodles before stopping.
+The taste was quite good, though it lacked fat. Xi Yazhou once again marveled at the local farmers' appetites: one soldier ate nearly three *jin* of rice noodles before finally stopping.
 
-The officers' soup had sliced luncheon meat. The power of frugal traditions was on full display—one 125-gram can was split between two people. The cutter had to slice precisely equal portions. In the end, even the can's inner fat residue was rinsed clean with hot soup.
+The officers' soup contained sliced luncheon meat. The power of frugal traditions was on full display—a single 125-gram can had to be split between two people, and the cutter sliced each portion with surgical precision. When they finished, even the fat residue clinging to the can's interior was rinsed clean with hot soup.
 
-"Who knew luncheon meat would become such a delicacy!" Dongmen Chuiyu sipped his rice noodle soup. The luncheon meat made the broth richer, adding layers of spiced flavor. Far better than plain seasoned soup. Grassland-3 and -4 seemed fine—the drawback was fat deficiency. Without luncheon meat, the plain seasoning packets were bland.
+"Who knew luncheon meat would become such a delicacy!" Dongmen Chuiyu remarked, sipping his rice noodle soup. The luncheon meat made the broth richer, adding layers of spiced flavor far superior to the plain seasoned soup. Grassland-3 and Grassland-4 seemed adequate enough—their main drawback was fat deficiency. Without luncheon meat, the plain seasoning packets left the soup bland.
 
-He noted his impressions of the rations in his notebook. Walking outside to stretch, he kicked something that went *clanging* away. Looking closely, he saw an empty luncheon meat can.
+He noted his impressions of the rations in his notebook, then walked outside to stretch. His foot struck something that went clanging across the ground. Looking down, he spotted an empty luncheon meat can.
 
-"Such waste! Who did this?" Dongmen Chuiyu was outraged. Tinned steel plate was beyond the Industrial Department's current capability. In the cafeteria's daily cooking, cans, vacuum foil bags, and plastic bags were all carefully washed clean and returned to the Planning Committee warehouse. He searched and collected all the discarded cans, then rushed to headquarters to report to Xi Yazhou. That evening, all officers received an order: used cans must be washed clean and collected.
+"Such waste! Who did this?" Dongmen Chuiyu was outraged. Tinned steel plate was still beyond the Industrial Department's current capability. In the cafeteria's daily cooking, cans, vacuum foil bags, and plastic bags were all carefully washed and returned to the Planning Committee warehouse for reuse. He searched the area, collecting all the discarded cans he could find, then rushed to headquarters to report to Xi Yazhou. That evening, all officers received new orders: used cans must be washed clean and collected.
 
-Artillery Training Battery Commander Ying Yu was on the mountain march. His uniform was soaked with sweat. Was this really winter? He paused, sipping salted water from his canteen and surveying the winding mountain path.
+Artillery Training Battery Commander Ying Yu was deep in the mountain march when he paused to rest. His uniform was soaked through with sweat—was this really supposed to be winter? He took a long drink of salted water from his canteen and surveyed the winding mountain path ahead.
 
-Dense forest obscured the column. The terrain wasn't steep, but the going was rough. Ying Yu assessed his unit: Army Artillery Training Platoon—three 12-pounder mountain howitzers. The cannons were disassembled for mule transport. A standard 12-pounder howitzer required three mules: the first carried the barrel, the second carried the frame and wheels, and the third carried two ammo boxes. Each box held eight shells: two explosive and six solid. Two boxes meant sixteen rounds. The normal combat load was forty-eight rounds per gun. But the transmigrators didn't have enough horses and mules. Even fielding just three guns consumed most of the Farm's horses. Wu Nanhai had demanded that Ying Yu guarantee all horses returned safely. He even sent Yang Baogui with the expedition for horse care, though Yang was allowed to ride the ships and avoid the foot march.
+Dense forest obscured the column stretching before and behind him. The terrain wasn't particularly steep, but the going was rough. Ying Yu mentally assessed his unit: the Army Artillery Training Platoon, consisting of three 12-pounder mountain howitzers. The cannons had been disassembled for mule transport. A standard 12-pounder howitzer required three mules: the first carried the barrel, the second carried the frame and wheels, and the third carried two ammunition boxes. Each box held eight shells—two explosive and six solid—for a total of sixteen rounds. The normal combat load was forty-eight rounds per gun, but the transmigrators simply didn't have enough horses and mules. Even fielding just three guns had consumed most of the Farm's horses. Wu Nanhai had demanded that Ying Yu personally guarantee all horses would return safely, and had even sent Yang Baogui along with the expedition to provide horse care. Yang, at least, was permitted to ride the ships and avoid the grueling foot march.
 
-Several artillerymen passed Ying Yu. Like the infantry, they carried full gear and rifles. The sole exception was a fifteen-year-old kid without a rifle: a Military-Political School artillery cadet, skinny as a rail. Ying Yu had exempted him from carrying one.
+Several artillerymen passed Ying Yu on the trail. Like the infantry, they carried full gear and rifles. The sole exception was a fifteen-year-old kid who went without a rifle: a Military-Political School artillery cadet, skinny as a rail. Ying Yu had exempted him from carrying one.
 
-"When will we have proper draft-animal transport?" Ying Yu sighed.
+"When will we have proper draft-animal transport?" Ying Yu sighed to no one in particular.
 
-Behind the artillery came a dozen porters shouldering artillery gear. These were yesterday's village "liaisons." Xi Yazhou had prepared them for additional manpower and material needs, sending them back to arrange help. Ying Yu decided that since they were idle, they should assist carrying equipment to reduce the burden on the horses. Artillery simply had too much miscellaneous gear.
+Behind the artillery came a dozen porters shouldering artillery gear. These were the village "liaisons" recruited the day before. Xi Yazhou had arranged for them precisely to meet additional manpower and material needs, sending them back to their villages to arrange help. Ying Yu had decided that since they were otherwise idle, they might as well assist with carrying equipment to reduce the burden on the horses. Artillery simply came with too much miscellaneous gear.
 
-Bei Wei, with the Recon Team and guides, advanced several kilometers ahead—conducting screening and sweeping, clearing potential ambushes and observation posts. According to the guides, Baitu rarely contacted neighboring villages. They traded directly by ship—food, supplies, even shipbuilding timber came by sea. They lacked nothing and lived comfortably. Markets were held occasionally—often paying in foreign silver. Someone had spotted large foreign ships visiting Baitu.
+Bei Wei led the Recon Team and their guides several kilometers ahead of the main column, conducting screening and sweeping operations, clearing potential ambushes and observation posts. According to the guides, Baitu rarely contacted neighboring villages. They traded directly by ship—food, supplies, even shipbuilding timber arrived by sea. The village lacked for nothing and its people lived comfortably. Markets were held occasionally, with transactions often conducted in foreign silver. Someone had even spotted large foreign ships visiting Baitu's harbor.
 
-Baitu, due to local bandit harassment, had stockades guarding the road junctions. As for maritime powers—they didn't attack. Pirates frequently bought and repaired ships there.
+Due to harassment from local bandits, Baitu had built stockades guarding the road junctions. As for maritime powers, they left Baitu alone. Pirates frequently came there to buy and repair ships.
 
 **(End of Chapter)**

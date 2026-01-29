@@ -1,113 +1,105 @@
 # Chapter 194: Business
 
-Guo Yi thought: what costs? The first batch of goods were all Yiwu small commodities from *Fengcheng* vessel's hold and containers. Going forward would be mass-manufactured transmigrator industrial products. Costs were essentially negligible. His only discomfort was the slow capital recovery—under this settlement system, goods released during New Year wouldn't be collected until May. Currently their funds came from the 200,000 taels Gao Ju owed them—this money had to cover both Guangzhou advance station's establishment costs and continuous payments for massively procured materials. Slow collection was disadvantageous.
+Guo Yi considered the question of costs almost amusing. The first batch of goods consisted entirely of Yiwu small commodities pulled from the *Fengcheng* vessel's hold and shipping containers. Future inventory would be mass-manufactured transmigrator industrial products. Their costs were essentially negligible—his only real concern was the sluggish pace of capital recovery. Under Guangzhou's three-festival settlement system, goods released during New Year wouldn't generate payment until May. At present, their entire operation ran on the 200,000 taels Gao Ju owed them, and that money had to stretch across both the Guangzhou advance station's establishment costs and continuous payments for their massive material procurement. Slow collection put them at a genuine disadvantage.
 
-But he didn't need to explain this to Shen Fan. He just nodded. "You're right. Handling so many customers simultaneously would strain capital. So I have some other ideas."
+But none of this required explanation to Shen Fan. Guo Yi simply nodded. "You're right—handling so many customers simultaneously would strain our capital considerably. So I have some other ideas."
 
-"Please instruct, owner."
+"Please instruct me, owner."
 
-"Do Guangzhou's jewelry shops exchange goods with each other?"
+"Do Guangzhou's jewelry shops exchange goods with one another?"
 
-"Naturally." Shen Fan thought this was common. Rare treasures were endlessly varied worldwide—no shop could stock everything. Even the biggest shops sought goods from trade associations.
+"Naturally." Shen Fan found the question unremarkable. Rare treasures came in endless varieties from all corners of the world—no single shop could possibly stock everything. Even the largest establishments regularly sought goods through their trade associations.
 
-"So some goods we can let colleagues handle." Guo Yi said. "Between colleagues exchanging goods, does three-festival settlement still apply?"
+"Then some of our goods can go through colleagues," Guo Yi said. "When shops exchange goods between themselves, does the three-festival settlement still apply?"
 
-"No, local convention is three days. If not returned after three days, full payment is due." Manager Shen roughly understood his meaning. "Owner means—wholesale?"
+"No, local convention is three days. If goods aren't returned after three, full payment comes due." Manager Shen was beginning to grasp his employer's meaning. "You're thinking of wholesale, owner?"
 
-"Correct." Guo Yi nodded.
+"Correct."
 
-"Fair enough. Though exchanging goods earns less, real money comes back faster. However—" Shen Fan looked slightly worried. "Does Purple Treasure Studio have enough goods to distribute? The Gao family is already wholesaling crystal mirrors on the market."
+"Fair enough. Exchanging goods earns less per piece, but real money comes back faster." Shen Fan's expression grew slightly troubled. "However—does Purple Treasure Studio have sufficient inventory to distribute? The Gao family is already wholesaling crystal mirrors across the market."
 
-"Crystal mirrors are nothing." Guo Yi's tone was quite relaxed. "Let Gao Ju sell all he wants. I have even better things."
+"Crystal mirrors are nothing." Guo Yi's tone was remarkably relaxed. "Let Gao Ju sell all he wants. I have far better things."
 
-Manager Shen was startled. Crystal mirrors were nothing? He knew that at Fire God Temple's recent jewelry-trade exchange meeting, the Gao family's plainest black crystal mirrors had sold for 100 taels, retailing at 180 taels—extremely high prices. The Gao family could release only five to ten per session, completely unable to meet demand. Yet the owner casually said "nothing" and "even better things"—what could possibly be better?
+Manager Shen started at that. Crystal mirrors were *nothing*? He knew that at Fire God Temple's recent jewelry-trade exchange meeting, the Gao family's plainest black crystal mirrors had fetched 100 taels wholesale, retailing at 180—extraordinarily high prices. The Gaos could release only five to ten pieces per session, nowhere near enough to meet demand. Yet his employer had just dismissed them as "nothing" and spoken of "far better things." What could possibly surpass them?
 
-"May I ask, owner, what treasures will Purple Treasure Studio deal in?" Manager Shen's curiosity finally burst out.
+"May I ask what treasures Purple Treasure Studio will be dealing in?" Manager Shen's curiosity finally overwhelmed his restraint.
 
-Guo Yi didn't answer but pulled aside the curtain behind him, revealing a huge cabinet.
+Rather than answer directly, Guo Yi reached behind him and drew aside a curtain, revealing an enormous cabinet. The sight made Manager Shen gasp: except for its frame, the cabinet's exterior walls, doors, and shelves were constructed entirely of solid glass panels. He had seen plenty of glass in his time, but never anything so crystalline, so seemingly invisible in its perfect clarity. Using such quantities of flawless glass to construct a large cabinet—the magnificence, the craftsmanship—left him almost breathless with admiration.
 
-This cabinet made Manager Shen gasp: except for the frame, the cabinet's exterior walls, doors, and shelves were all solid glass panels!
+"Owner—owner—" Even his speech faltered. "This—this is made of glass?"
 
-He'd seen plenty of glass. But such crystalline, seemingly invisible full glass panels—never before. Using so much glass to make a large cabinet—such magnificence, such craftsmanship—filled him with admiration.
+"Of course." Guo Yi was thoroughly satisfied with Shen Fan's reaction. "Manager Shen, don't buy the box and return the pearl. Look at what's inside."
 
-"Owner—owner—" Even his speech stammered. "This—this is made of glass?"
+"Yes! Yes!" Shen Fan leaned forward eagerly. This was one of four sample display cabinets taken from the *Fengcheng* vessel. Aside from newly constructed rosewood frames, the original glass had been re-polished with fine quartz sand and felt. By twenty-first-century standards, the transparency was merely adequate, but in this era it was nothing short of remarkable.
 
-"Of course." Guo Yi was very satisfied with Shen Fan's reaction. "Manager Shen, don't buy the box and return the pearl. Look at what's inside."
-
-"Yes! Yes!" Shen Fan excitedly leaned forward. This was a sample display cabinet. There were four, all taken from *Fengcheng* vessel. Except for the newly made rosewood frames, the old glass had been re-polished with fine quartz sand and felt. By twenty-first-century standards, the transparency was mediocre, but in this spacetime, it was remarkable.
-
-First catching his eye were rows of pearl necklaces, bracelets, and rings. The beads were not only large but perfectly round—rare top quality. There were even rare pink pearls. Shen Fan estimated these beads alone, sold separately, would fetch several hundred taels for the largest, three or four taels for the smallest.
-
-Various small powder boxes—wooden, bamboo-carved, tortoiseshell, gold and silver inlaid—of many different materials. Nothing remarkable individually, but each box interior contained a small crystal mirror. Small, but still crystal mirrors.
-
-Rows of glassware of every kind—cups, bowls, dishes, decanters, even tea sets. Each piece crystalline and translucent.
+His eyes went first to the rows of pearl necklaces, bracelets, and rings. The beads were not only large but perfectly round—the rarest quality. Among them were even pink pearls, extraordinarily scarce. Shen Fan estimated that sold separately, the largest beads would fetch several hundred taels apiece, the smallest three or four. Below the pearls sat various small powder boxes—wooden, bamboo-carved, tortoiseshell, gold and silver inlaid—in a dozen different materials. Individually unremarkable, but each box interior contained a small crystal mirror. Small, yes, but crystal mirrors nonetheless. And beyond those stood rows of glassware in every variety imaginable: cups, bowls, dishes, decanters, even complete tea sets—each piece crystalline and translucent.
 
 "Are these goods sufficient?"
 
-"Sufficient! More than sufficient!" Shen Fan understood clearly: Australian merchants' treasures all sprang from glass. Glass itself wasn't particularly rare in Guangzhou. But their products were incomparably superior to anyone else's—whether Western or Frankish goods, the difference was like mud and clouds.
+"Sufficient! More than sufficient!" Shen Fan understood now with perfect clarity: the Australian merchants' treasures all sprang from their mastery of glass. Glass itself wasn't particularly rare in Guangzhou. But their products were incomparably superior to anything else on the market—whether Western or Frankish imports, the difference was like mud and clouds.
 
-"Manager Shen, this is just part of the inventory." Guo Yi turned and drew the curtain closed. "More will come in the future." He produced a white notepad. "Please look."
+"Manager Shen, this is merely part of our inventory." Guo Yi turned and drew the curtain closed. "Much more will come in time." He produced a white notepad. "Please look."
 
-Opening it, Shen Fan saw snow-white paper with black sketched designs, all jewelry. The styles were extremely novel. He'd spent his career with countless jewelry pieces, seen many master craftsmen. He'd never seen such style before. Examining closely: elegant and flowing, or splendid and dynamic, exquisitely crafted. These weren't ordinary craftsmen's work.
+Opening it, Shen Fan found snow-white paper covered with black sketched designs, all jewelry. The styles were extraordinarily novel. He had spent his entire career surrounded by countless jewelry pieces, had seen the work of many master craftsmen. Never had he encountered anything quite like these. Examining them closely, he found some elegant and flowing, others splendid and dynamic, all exquisitely crafted. These were clearly not the work of ordinary artisans.
 
-"This is—" Shen Fan asked with an inquiring look.
+"What is this?" Shen Fan asked, his expression inquiring.
 
-"Drawn by Yan Maoda." Guo Yi explained. "We're planning a batch for Miss Pei Lixiu at Purple Brilliance Tower. Do you have craftsmen who can make these?"
+"Drawn by Yan Maoda." Guo Yi explained. "We're planning a batch for Miss Pei Lixiu at Purple Brilliance Tower. Do you have craftsmen who can produce these?"
 
-"Yes." Shen Fan answered without hesitation. Top jewelry craftsmen were specifically maintained by shops, unavailable outside. But he had good information—knowing a Baohengxiang shop had just closed, its dispersed craftsmen and clerks currently unemployed.
+"Yes." Shen Fan answered without hesitation. Top jewelry craftsmen were typically retained exclusively by shops, unavailable to outsiders. But he had good information—a Baohengxiang shop had just closed, and its dispersed craftsmen and clerks were currently unemployed.
 
-"Good. Your responsibility is recruiting them all." Guo Yi thought a moment. "Clerks too, as long as they're reliable. Treatment follows their previous standards."
+"Good. Your responsibility is recruiting all of them." Guo Yi paused to consider. "Clerks too, so long as they're reliable. Match their previous compensation."
 
-"Owner, right now Purple Treasure Studio has just one shop. We already have two young assistants. Taking more people—isn't that too many?"
+"Owner, Purple Treasure Studio is just one shop at present. We already have two young assistants. Taking on more people—isn't that excessive?"
 
-"Not too many. I have more businesses to open. Keep these people in reserve. It's just a few more mouths to feed." Guo Yi thought: *I'll have many more commercial enterprises—need to stockpile professionals now or they won't be available later.* Unlike the modern era's fast talent mobility, here skilled people typically worked at one shop for life unless circumstances forced otherwise. Except for apprentices and laborers, finding qualified people on demand was nearly impossible.
+"Not at all. I have more businesses to open. Keep these people in reserve. It's just a few more mouths to feed." Guo Yi thought to himself: *I'll have many commercial enterprises ahead—I need to stockpile professionals now, or they won't be available when I need them.* Unlike the modern era with its rapid talent mobility, skilled workers in this time typically spent their entire careers at a single shop unless circumstances forced otherwise. Apart from apprentices and common laborers, finding qualified people on demand was nearly impossible.
 
-"Owner's foresight!"
+"Owner's foresight is remarkable!"
 
-"Tomorrow find some masons. Prepare to build new buildings."
+"Tomorrow, find some masons. Prepare to construct new buildings."
 
-"Owner, building construction is easy. But what for?" In Shen Fan's view, Purple Treasure Studio's premises were already adequate. More buildings seemed pointless.
+"Owner, building construction is straightforward enough. But what are they for?" In Shen Fan's view, Purple Treasure Studio's current premises were already adequate. Additional buildings seemed pointless.
 
-"I'm building workshops." Guo Yi replied.
+"I'm building workshops."
 
-"Workshops?" Shen Fan's heart stirred. He lowered his voice. "Owner—you're planning to make crystal mirrors here?"
+"Workshops?" Shen Fan's heart stirred. He lowered his voice. "Owner—you're planning to manufacture crystal mirrors here?"
 
-Before Guo Yi could answer, Shen Fan was already shaking his head. "Owner, you mustn't! Opening a crystal mirror workshop in Guangzhou—this city has many powerful households connected to officials. You're an outsider. Someone might plot to steal your secret techniques. An innocent man in possession of jade—that's his crime."
+Before Guo Yi could respond, Shen Fan was already shaking his head emphatically. "Owner, you mustn't! Opening a crystal mirror workshop in Guangzhou—this city is full of powerful households with connections to officials. You're an outsider. Someone will certainly plot to steal your secret techniques. An innocent man in possession of jade—that itself becomes his crime."
 
-Guo Yi nodded. This spacetime's people's sincerity touched him. "Nothing like that!" He spoke firmly, reassuringly. "How would I manufacture crystal mirrors? Even in my country, this is a secret. How could I produce them?" He explained the plan: shipping semifinished blanks for local processing. "Would this work?"
+Guo Yi nodded, genuinely touched by his manager's sincere concern. "Nothing of the sort!" He spoke firmly, reassuringly. "How could I possibly manufacture crystal mirrors here? Even in my country, that remains a closely guarded secret. I couldn't produce them if I wanted to." He explained the actual plan: semifinished blanks would be shipped in for local processing. "Would that work?"
 
-"That would work." Shen Fan relaxed. If only importing mirror blanks for framing, it was essentially the same as complete imports—no trouble-attracting.
+"That would work." Shen Fan visibly relaxed. If they were merely importing mirror blanks for framing, it was essentially the same as complete imports—nothing to attract unwanted attention.
 
-"Also assistants. There must be many unemployed clerks and craftsmen in the city. Go out and carefully find some. Just need honest and reliable people willing to come."
+"Also assistants. There must be many unemployed clerks and craftsmen throughout the city. Go out and find some carefully. We need honest, reliable people willing to come."
 
-"This?" Shen Fan hesitated. "Owner, as the saying goes, different trades are like different mountains. Clerks are fine, but what use are craftsmen we don't need?"
+"This?" Shen Fan hesitated. "Owner, as the saying goes, different trades are like different mountains. Clerks are useful, certainly, but what good are craftsmen whose skills we don't require?"
 
-"Manager Shen, do you think you're just Purple Treasure Studio's manager?"
+"Manager Shen, do you think you're merely Purple Treasure Studio's manager?"
 
-Shen Fan was puzzled. "Owner—"
+Shen Fan looked puzzled. "Owner—"
 
-"We Australians crossed vast oceans traveling tens of thousands of *li* not just to sell a few jewelry and glassware pieces." Guo Yi tried to project kingly aura. "You're the general manager of the Purple Enterprise Group! No! The grand manager!"
+"We Australians crossed vast oceans, traveling tens of thousands of *li*, not merely to sell a few pieces of jewelry and glassware." Guo Yi attempted to project an air of grand ambition. "You're the general manager of the Purple Enterprise Group! No—the grand manager!"
 
-Shen Fan was confused by his gibberish. Though he didn't fully understand "enterprise group" or "general manager," he understood "grand manager"—apparently the boss planned other businesses.
+Shen Fan was bewildered by this unfamiliar terminology. Though he didn't fully grasp "enterprise group" or "general manager," he understood "grand manager" well enough—apparently the boss intended to expand into other businesses.
 
 "This—owner—I only understand the jewelry trade. If you open other businesses, you'll need other managers. Different trades, different mountains."
 
-"You're the grand manager. Specific affairs will have their own managers." Guo Yi considered Shen Fan a suitable candidate. First, Shen Fan owed them a great debt, and malaria tended to relapse—they alone had quinine. Second, as an old Guangzhou hand, the jewelry trade's special nature meant he was familiar with all kinds of people. Whether gathering information or handling matters, very convenient. Third, having spent his career in the jewelry trade, his professional integrity was probably sound.
+"You'll be the grand manager. Specific affairs will have their own managers." Guo Yi had already concluded that Shen Fan was ideally suited for the role. First, Shen Fan owed them a considerable debt, and malaria had a tendency to relapse—only they possessed quinine. Second, as an experienced Guangzhou hand in a trade that naturally connected people from all walks of life, he was perfectly positioned for both gathering information and handling delicate matters. Third, having spent his career in the jewelry business, his professional integrity was likely sound.
 
 "Thank you for owner's cultivation."
 
-"These days, first find some distillers."
+"These days, find me some distillers."
 
-"Opening a distillery?" Manager Shen asked. "The water here isn't good—"
+"Opening a distillery?" Manager Shen asked. "The water here isn't particularly good—"
 
-"Doesn't matter." Guo Yi wasn't planning to brew from grain anyway. "Are there shops selling crude liquor in Guangzhou?"
+"That doesn't matter." Guo Yi had no intention of brewing from grain anyway. "Are there shops selling crude liquor in Guangzhou?"
 
-"Yes—in the city and many country distilleries."
+"Yes—both in the city and at many country distilleries."
 
 "Negotiate prices for bulk purchasing."
 
-"Alright." Manager Shen was now unsurprised by anything this owner said. "Should I buy distilling equipment too?"
+"Understood." Manager Shen had reached the point where nothing his employer said could surprise him. "Should I buy distilling equipment as well?"
 
-"No need." Guo Yi was very enthusiastic about the branded liquor marketing plan. He'd received a telegram: the key component of the "new bottles for old wine" scheme—glass bottles—had been successfully trial-produced at Lingao.
+"No need." Guo Yi was tremendously enthusiastic about the branded liquor marketing plan. He had just received a telegram with welcome news: the key component of their "new bottles for old wine" scheme—glass bottles—had been successfully trial-produced at Lingao.
 
 **(End of Chapter)**

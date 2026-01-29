@@ -1,52 +1,48 @@
 # Chapter 161: Volleys and Sharpshooters
 
-After enduring the initial physical regimen and proving they had fully adapted to military life, shooting training officially began.
+Only after enduring the grueling physical regimen—and proving beyond doubt that they had fully adapted to military life—did the recruits finally begin firearms training.
 
-Firearms—even muzzle-loading rifles—were the most powerful infantry weapons of this era. The transmigrators needed to ensure that those who wielded them were loyal and reliable.
+Firearms, even muzzle-loading rifles, represented the most devastating infantry weapons of the era. The transmigrators understood that such power could only be entrusted to soldiers whose loyalty had been thoroughly tested.
 
-Some soldiers couldn't tolerate such a rigorous life and requested to withdraw. These individuals were reassigned as commune laborers. However, they were required to repay double their initial costs: resettlement allowances, wages, and meals. Until this debt was cleared, they couldn't leave the commune. Beyond basic rations, they would receive no payment.
+A handful of men couldn't stomach the rigorous life and requested discharge. These individuals were reassigned as commune laborers, though not without consequence: they were required to repay double their initial costs—resettlement allowances, wages, meals. Until this debt was cleared, they remained bound to the commune, receiving nothing beyond basic rations. As for deserters, the transmigrators' powerful communications equipment and night vision devices rendered both darkness and distance meaningless. Every captured runaway was sent without exception to break rocks at the quarries or toil in the brickworks.
 
-As for deserters, the transmigrators' powerful communications and night vision equipment rendered darkness and distance useless. Captured runaways were sent, without exception, to the quarries and brickworks for hard labor.
+Yet the situation exceeded Ma Qianzhu's expectations. The total number of deserters and discharge requests came to fewer than twenty. The vast majority persevered.
 
-However, the situation exceeded Ma Qianzhu's expectations. The total number of deserters and those requesting discharge was fewer than twenty. The vast majority persevered.
+Li Yunxing, a former provincial shooting team athlete, led the firearms instruction—surprisingly, he proved to be the most qualified person for the job. In preparation, he requisitioned a single rifle and one hundred rounds of ammunition, then spent a week shooting to master the Minié rifle's particular characteristics. The muzzle-loader's accuracy impressed him. These weapons were of pre-transmigration manufacture—precision-crafted from high-quality materials and properly calibrated. Li Yunxing quickly found his rhythm.
 
-Shooting training was led by Li Yunxing, a former provincial shooting team athlete—surprisingly, the most qualified person for the job. To prepare, he requisitioned one rifle and one hundred rounds of ammunition, spending a week shooting to master the characteristics of the Minié rifle.
+He began with the fundamentals: posture correction, proper grip and shoulder placement, stability training while aiming. Only after everyone demonstrated competence in these basics did live-fire practice commence.
 
-The accuracy of the muzzle-loading rifle was quite good. These weapons were of pre-transmigration manufacture—made from high-quality materials, finely crafted, and properly calibrated. Li Yunxing quickly found his groove.
+The day the rifles were distributed sparked tremendous excitement. These guns were unlike any firearms the soldiers had ever seen. The blued barrels possessed a subtle, deadly luster. Every component was cleanly finished—none bore the roughness typical of local ironwork. Each rifle came with a gleaming three-edged bayonet in a leather sheath, a leather ammunition pouch filled with yellow paper-wrapped cartridges, and small golden copper discs called percussion caps.
 
-He started with basic posture correction—how to hold and shoulder the rifle—followed by stability training while aiming. Once everyone qualified in these basics, actual shooting practice commenced.
+The rifles felt substantial yet were lighter than the weighted training pieces they'd grown accustomed to. Every dimension seemed perfectly proportioned. Men who had handled matchlocks, three-barreled guns, or other firelocks found these rifles remarkably comfortable—not awkward in the slightest.
 
-The day the rifles were distributed caused tremendous excitement. These guns were unlike any firearms the soldiers had ever seen. The blued barrels had a subtle, deadly luster. Every part was cleanly finished—none bore the usual roughness of local ironwork. There were gleaming three-edged bayonets in leather sheaths, and leather ammunition pouches filled with yellow paper-wrapped cartridges. There were also small golden copper pieces called "percussion caps."
+The first live-fire exercise left a profound impression. Dense smoke billowed from the barrels. The acrid tang of powder hung in the air. Heavy recoil jolted through their shoulders. But what truly stunned the first-time shooters was watching their lead balls punch clean through thick wood targets—the same barriers that traditional matchlock iron shot often failed to penetrate.
 
-The rifles felt substantial yet were lighter than the weighted training rifles. Every dimension seemed perfectly sized. Those familiar with matchlocks, three-barreled guns, or other firelocks found these rifles remarkably handy—not awkward at all.
+To further boost their confidence in the weapons, Li Yunxing persuaded Ma Qianzhu to requisition a suit of iron armor from the stores. At two hundred meters, a single test shot punched clean through the breastplate. The soldiers stared in disbelief.
 
-During the first live-fire exercise, the rifles' dense smoke, acrid powder smell, and heavy recoil deeply impressed the first-time shooters. The penetration of the lead balls clean through thick wood targets made them gasp. Traditional matchlocks fired iron shot, which even thick wooden doors could often block.
+"Damn—is iron armor useless now?" Lin Fu ran his fingers around the smoking hole in the metal. "Fighting is going to be too easy."
 
-To boost confidence in the weapon, Li Yunxing persuaded Ma Qianzhu to requisition a suit of iron armor from the stores. An on-site test shot at two hundred meters punched clean through the breastplate. Everyone was stunned.
+"We're invincible!" The soldiers howled with excitement. "Just stand and shoot—nobody can charge us!" Morale surged through the ranks.
 
-"Damn—is iron armor useless now?" Lin Fu touched the smoking hole in the metal. "Fighting is going to be too easy."
+"'Invincible' is premature," Li Yunxing cautioned, though he couldn't help but smile. "But we do possess enormous advantages. We outrange the enemy, shoot more accurately, and fire faster than anything they've faced. Cavalry and archers will struggle to threaten us."
 
-"We're invincible! Just stand and shoot—nobody can charge us." The soldiers howled with excitement. Morale surged.
+He paused, letting the excitement settle before continuing. "But consider this: what if the enemy masses their cavalry against us? Shooting alone won't suffice. Our maximum effective range is four hundred meters—cavalry can cross that distance in under one minute. How many shots can we fire in that time?"
 
-"'Invincible' is premature," Li Yunxing cautioned. "But we do have a huge advantage. We outrange them, shoot more accurately, and fire faster than our enemies. Cavalry and archers can't threaten us easily."
+"Three or four?" someone ventured.
 
-"But what if the enemy has massed cavalry? Shooting alone won't work. Maximum effective range is four hundred meters—cavalry crosses that distance in under one minute. How many shots can we fire in one minute?"
+"Precisely. Now imagine we're outnumbered. Everyone fires three or four shots within that minute, but the enemy isn't routed. Then what?"
 
-"Three or four?"
+Silence fell over the group. Then a man who had remained quiet throughout spoke up: "Use pikes to hold the line. Form a square—pikemen on the outside, protecting the musketeers inside."
 
-"If we're outnumbered, and within one minute everyone fires three or four shots but the enemy isn't routed—then what?"
+"Correct. That's one proven method." Li Yunxing showed no surprise; the tactic wasn't exotic. The Ming dynasty had employed similar formations, with pikemen covering gunners, often enhanced by war wagons. "Any better ideas?"
 
-Everyone fell silent. One man who had previously been quiet spoke up: "Use pikes to hold the line. Form a square. Pikemen on the outside protecting the musketeers inside."
+"Triple rank," the man continued without hesitation. "Musketeers arranged in three rows, rotating volleys. One minute of fire becomes not three or four shots per man—it becomes a continuous stream of lead."
 
-"Correct—that's one method." Li Yunxing wasn't surprised; this tactic wasn't exotic. The Ming era had similar formations: pikemen covering gunners, often enhanced with war wagons. "Any better ideas?"
-
-"Triple rank," the man continued. "Musketeers in three rows, rotating volleys. One minute becomes more than three or four shots—it becomes a continuous stream of fire."
-
-"Excellent! Where did you learn that?" Li Yunxing was amazed. Three-rank volley fire was considered something of a transmigrator secret technique by some. He hadn't expected Ming-era people to already know it. But reconsidering: if Sengoku Japan had developed this tactic, Ming military minds wouldn't have missed it either.
+"Excellent!" Li Yunxing studied him with newfound interest. Some transmigrators considered three-rank volley fire something of a secret technique. He hadn't expected Ming-era soldiers to already grasp it. But reconsidering, if Sengoku Japan had developed such tactics, Ming military minds certainly wouldn't have overlooked them either. "Where did you learn that?"
 
 "I saw the Capital garrison drilling."
 
-"Good eye. Name?"
+"Sharp eyes. Name?"
 
 The man snapped to an awkward attention salute, forming a fist with his hand. "Huang Xiong, from Hejian, North Zhili."
 
@@ -54,68 +50,66 @@ The man snapped to an awkward attention salute, forming a fist with his hand. "H
 
 "Yes sir!"
 
-Shooting training was the easy part. Instilling the habit of weapon maintenance was far harder. Almost nobody realized firearms needed maintenance. After the first day's shooting—despite orders to clean—a surprise night inspection found only a few soldiers had complied.
+Shooting training proved straightforward enough. Instilling the habit of weapon maintenance was another matter entirely. Almost no one understood that firearms required upkeep. After the first day's shooting, despite explicit orders to clean their weapons, a surprise night inspection revealed that only a handful of soldiers had complied.
 
-The ancients didn't emphasize firearm maintenance. At most, cannons might be covered when left outdoors. Matchlocks were generally such low quality—more likely to wound the user than kill the enemy—that soldiers disliked them. Spending effort on maintenance was unthinkable.
+The problem ran deep. Ancients simply didn't emphasize firearm maintenance. At most, artillery pieces might be covered when left outdoors. Matchlocks were generally of such abysmal quality—more likely to wound the user than kill the enemy—that soldiers despised them. Why waste effort maintaining something you'd rather not touch?
 
-Muzzle-loaders used residue-heavy black powder and paper cartridges, demanding higher maintenance standards. Li Yunxing had to enforce mandatory maintenance after every shooting session, personally teaching each soldier how to do it. Every rifle was inspected before dismissal. He then delegated this to squad leaders, creating a layered inspection system. Li Yunxing checked the squad leaders; squad leaders checked every soldier. Combined with harsh punishments, the cleaning habit was finally established—though it earned complaints: "The Chiefs are being unnecessarily fussy."
+But muzzle-loaders using residue-heavy black powder and paper cartridges demanded higher standards. Li Yunxing had no choice but to enforce mandatory maintenance after every shooting session, personally teaching each soldier the proper techniques. Every rifle was inspected before dismissal. He then delegated this responsibility to squad leaders, creating a layered inspection system: Li Yunxing checked the squad leaders; squad leaders checked every soldier. Combined with harsh punishments, the cleaning habit was finally established—though not without earning bitter complaints that "the Chiefs are being unnecessarily fussy."
 
-Ma Qianzhu repeatedly received reports from planted informants: "Cleaning barrels is a waste! Just dump the residue out—it still fires without cleaning."
+Ma Qianzhu received regular reports from his planted informants. "Cleaning barrels is a waste! Just dump the residue out—it still fires without scrubbing." Others grumbled that these Australian merchants were all peculiar, knowing only rigid rules, unlike locals who understood how to improvise.
 
-Others said these Australian merchants were all "odd"—only knowing rigid rules. Unlike locals, who knew how to improvise.
+Reading these soldier psychology reports, Ma Qianzhu found himself reminded of early reform-era joint venture employees complaining about their foreign managers back in China. The grievances were remarkably similar.
 
-Reading such soldier psychology reports, Ma Qianzhu was reminded of early-reform-era joint-venture Chinese employees discussing their foreign managers. The complaints were remarkably similar.
+Tian Liang's shooting results fell below average. Li Yunxing's standard was simple: at one hundred meters, ten shots, six on-target meant passing. Tian Liang's first test yielded only three hits. Not until his third retest did he barely scrape by.
 
-Tian Liang's shooting results were below average. Li Yunxing's standard was simple: at one hundred meters, ten shots, six on-target was passing. Tian Liang's first test: three hits. On his third retest, he barely passed.
+But some soldiers excelled. The Ruan brothers all scored "good" on their first attempts. One former Gou Manor militiaman—Yang Zeng—achieved the only "excellent" rating: ten shots, ten hits.
 
-But some excelled. The Ruan brothers all scored "good" on the first test. One former Gou Manor militiaman—Yang Zeng—scored the only "excellent": ten-for-ten.
+"Great shooting!" Li Yunxing clapped him excitedly on the shoulder.
 
-"Great shooting!" Li Yunxing excitedly patted his shoulder.
+"Thank you, Chief." Yang Zeng snapped to a textbook attention stance. "I was formerly a hunter."
 
-"Thank you, Chief." Yang Zeng snapped to standard attention. "I was formerly a hunter."
-
-"Hunter? No wonder your eyesight is good."
+"A hunter? No wonder your eyesight is sharp."
 
 "No—I used similar muskets before."
 
-"Oh?" Li Yunxing was intrigued.
+"Oh?" Li Yunxing's interest sharpened.
 
-"When I was a guardsman for the Gou Master—no, Gou the First—" He quickly self-corrected. "Sea pirates once delivered cargo. It included dozens of such guns." He gestured to indicate the shape. "Not as good as the Chiefs' guns—they used match-cords and were heavier."
+"When I served as a guardsman for the Gou Master—" He caught himself. "—for Gou the First." The self-correction was quick but noticeable. "Sea pirates once delivered cargo that included dozens of guns shaped like these." He gestured to indicate the form. "Not as good as the Chiefs' rifles—they used match-cords and were heavier."
 
-Li Yunxing recalled: weapons captured from Gou Manor had included foreign items—some matchlocks. According to their historical experts, they were likely English.
+Li Yunxing recalled that weapons captured from Gou Manor had included foreign pieces—several matchlocks. According to their historical experts, the design suggested English manufacture.
 
-"Those guns were far better than the manor's regular matchlocks—more accurate. But the other guardsmen feared injuries from the matchlocks and wouldn't use them. Gou the First saw I liked them, so he gave me one. I practiced shooting birds. Got familiar with it."
+"Those guns were far better than the manor's regular matchlocks—more accurate," Yang Zeng continued. "But the other guardsmen feared injuries from the matchlocks and refused to use them. When Gou the First saw how much I liked them, he gave me one. I practiced by shooting birds. Got familiar with it that way."
 
-"Such accuracy—Gou the First must have valued you?"
+"With accuracy like yours, Gou the First must have valued you highly?"
 
-Yang Zeng's face showed embarrassment. After the capture of Gou Manor, his arrival at Bairren Fortress, the repeated interrogations, and the labor reform period—having committed no heavy crimes and voluntarily surrendered—he had been assigned commune work. He had learned that these "bald bandits" or "short-hairs" or "Australian merchants" most valued clean "historical records." His history as a Gou Manor guardsman was clearly a stain.
+Embarrassment flickered across Yang Zeng's face. After the capture of Gou Manor, his arrival at Bairren Fortress, the repeated interrogations, and the labor reform period—having committed no serious crimes and having surrendered voluntarily—he had been assigned commune work. He'd learned quickly that these "bald bandits" or "short-hairs" or "Australian merchants" valued nothing more highly than a clean historical record. His past as a Gou Manor guardsman was clearly a stain.
 
-"Reporting to Chief—" He spoke carefully. "I was just an ordinary Gou Manor guardsman. Though accurate with guns, Gou the First didn't particularly value me. He preferred sword and spear skills."
+"Reporting to Chief—" He chose his words carefully. "I was merely an ordinary guardsman at Gou Manor. Though accurate with firearms, Gou the First didn't particularly value me. He preferred sword and spear skills."
 
-"However good swords and spears are—can they stop your gunshot?" Li Yunxing knew nothing of his internal turmoil—he assumed Yang Zeng simply felt under-appreciated.
+"However good swords and spears may be—can they stop your bullet?" Li Yunxing knew nothing of the man's internal turmoil; he assumed Yang Zeng simply felt unappreciated for his talents.
 
-"Only with the masters' guns could I never have dreamed that firearms could shoot so far, so accurately, so fast." Yang Zeng grew excited discussing the weapons. "The foreign guns were good—but compared to these, far inferior."
+"Only with the masters' guns—" Yang Zeng grew animated discussing the weapons. "I could never have dreamed that firearms could shoot so far, so accurately, so fast. The foreign guns were good, but compared to these? Far inferior."
 
-"Oh? Tell me what's different."
+"Tell me what's different."
 
-"There are many advantages. The two best points, in my view, are these: First, the percussion caps. Just place and fire. No priming powder—it's safe and convenient. Second, the pre-measured paper cartridges. Easy to use, and the quantity is always accurate. Before, I poured powder from a bag, which was mostly guesswork. Sometimes too much, sometimes too little. Not like these paper cartridges, where the amount is always just right."
+"Many things. But two advantages stand above all." Yang Zeng held up one finger. "First, the percussion caps. Simply place one and fire. No priming powder required—safe and convenient." A second finger joined the first. "Second, the pre-measured paper cartridges. Easy to use, and the quantity is always precise. Before, I poured powder from a bag—mostly guesswork. Sometimes too much, sometimes too little. These paper cartridges give exactly the right amount every time."
 
-Li Yunxing thought: *This man is remarkable.* Ordinary soldiers mechanically followed instructions. He had genuine thoughts—a rare talent.
+Li Yunxing studied him with new appreciation. *This man is remarkable.* Ordinary soldiers followed instructions mechanically. Yang Zeng thought critically about what he was doing—a rare quality indeed.
 
-"Ten-for-ten at one hundred meters. What about two hundred meters? Want to try?"
+"Ten-for-ten at one hundred meters. What about two hundred? Want to try?"
 
-"Chief's orders—I'll obey!" The formal words, combined with his chest-out attention stance, looked slightly incongruous.
+"The Chief orders—I obey!" The formal words, combined with his chest-out attention stance, looked slightly incongruous, but his eagerness was unmistakable.
 
-Li Yunxing specially issued a "J+" marked precision Minié rifle. The two-hundred-meter target was a 1.5-meter diameter circle. Yang Zeng focused, breathed—and hit ten-for-ten again.
+Li Yunxing specially issued him a precision Minié rifle marked "J+" for superior accuracy. The two-hundred-meter target was a circle measuring 1.5 meters in diameter. Yang Zeng focused, controlled his breathing—and hit ten-for-ten again.
 
-Incredible. Li Yunxing was astonished. Minié rifles, though rifled, couldn't match the accuracy of breech-loading metal-cartridge rifles. Given Yang Zeng's matchlock experience and only one month's training, hitting at this level indicated exceptional talent.
+Incredible. Li Yunxing stood astonished. Minié rifles, despite their rifling, couldn't match the accuracy of breech-loading metal-cartridge rifles. Given Yang Zeng's matchlock experience and only a month of formal training, hitting at this level indicated exceptional natural talent.
 
-The target moved to three hundred meters. Yang Zeng missed four. At four hundred meters—he still hit four. A remarkable score. Several Military Committee veterans applauded. Even with a Type-56 SKS, this would be respectable.
+They moved the target to three hundred meters. Yang Zeng missed four. At four hundred meters, he still managed to hit four—a remarkable score by any measure. Several Military Committee veterans who had gathered to watch broke into applause. Even with a Type-56 SKS, this would be respectable shooting.
 
 "Excellent. You'll be a sniper." Li Yunxing was delighted his unit had produced such talent.
 
-"Thank you, Chief, for the promotion!" Yang Zeng didn't know what "sniper" meant—but he intuited that it benefited him.
+"Thank you, Chief, for the promotion!" Yang Zeng didn't know what "sniper" meant—but he intuited correctly that it worked in his favor.
 
-He and several other excellent shooters were selected together and trained as sharpshooters. Wei Aiwen decided to form a skirmisher platoon outside the infantry companies to provide long-range precision support.
+He and several other exceptional shooters were selected together and trained as sharpshooters. Wei Aiwen decided to form a dedicated skirmisher platoon outside the regular infantry companies, tasked with providing long-range precision support.
 
 **(End of Chapter)**

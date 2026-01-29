@@ -1,36 +1,36 @@
 # Chapter 175: The Sino-Western Pirate Fleet
 
-"What's strange about it?" Wu De was puzzled.
+"What's strange about it?" Wu De asked, puzzled.
 
-"Shipping people specifically to die—that's strange." A voice came from ahead.
+"Shipping people specifically to die—that's what's strange." The voice came from ahead.
 
-Wu De was gnawing on a crab leg when he noticed an extra pair of feet in front of him. Looking up, he saw a plump white man standing there. His left hand held an empty lunch box, his right a jumbo stainless steel spoon. Both eyes were fixed on the roasting crabs.
+Wu De had been gnawing on a crab leg when he noticed an extra pair of feet in front of him. He looked up to find a plump white man standing there, an empty lunch box clutched in his left hand and an oversized stainless steel spoon in his right. Both eyes were locked onto the roasting crabs with undisguised longing.
 
-"Smells amazing!!" Seeing Wu De look up, the fatty blurted out.
+"Smells amazing!" the fatty blurted out the moment their eyes met.
 
-"What? Want some?" Though he did not know the visitor, fellow transmigrators were brothers.
+"Want some?" Wu De didn't recognize the visitor, but fellow transmigrators were practically brothers.
 
-"Sure, sure!" The fatty was not shy; he plopped down and extended his lunch box.
+"Absolutely!" The fatty wasn't shy in the least. He plopped down and thrust out his lunch box expectantly.
 
-Wu De served him half a crab. The fatty took the box without a word, burying his face in the food.
+Wu De served him half a crab. The fatty accepted it without a word of thanks, immediately burying his face in the food.
 
-"You're here to join the fun?" Ma Qianzhu apparently knew the visitor. "Zhu Cailao really doesn't know what's good for him."
+"Here to join the fun?" Ma Qianzhu apparently knew the visitor. "Zhu Cailao really doesn't know what's good for him."
 
-The fatty chuckled, licking his lips. "Director, you already said it's strange. Don't try to play dumb with me."
+The fatty chuckled through greasy lips. "Director, you already admitted something's strange. Don't try playing dumb with me."
 
-"But this time we really captured a lot of Zhu Cailao's stuff. That's what makes it strange."
+"But we really did capture a lot of Zhu Cailao's equipment this time. That's precisely what makes it strange."
 
-"Old routine. It's like in *The Deer and the Cauldron*—using Wu Sangui's weapons to infiltrate the palace."
+"Old routine." The fatty waved his spoon dismissively. "It's like in *The Deer and the Cauldron*—using Wu Sangui's weapons to infiltrate the palace."
 
-"That's what I think too." Ma Qianzhu pulled out an interrogation transcript. "Most of these prisoners were temporarily recruited, not veteran pirates. If Zhu Cailao is really attacking after losing to us, he should know our strength. Sending these cannon-fodder newbies makes no sense."
+"My thinking exactly." Ma Qianzhu produced an interrogation transcript. "Most of these prisoners were temporary recruits, not veteran pirates. If Zhu Cailao were truly counterattacking after his defeat against us, he'd know our strength. Sending these cannon-fodder rookies makes no sense whatsoever."
 
-"Pirates aren't regulars. They don't mark their weapons with insignia," the fatty observed.
+"Pirates aren't regulars," the fatty observed between bites. "They don't stamp their weapons with insignia."
 
-"Someone's trying to stir the pot," Wu De said.
+"Someone's trying to stir the pot," Wu De concluded.
 
-"Correct." The fatty continued eating crab. "Who wants to provoke conflict between the transmigrators and Zhu Cailao? Liu Xiang and Zheng Yiguan both could. If Zhu Cailao and the transmigrators fight a major battle, they benefit."
+"Correct." The fatty continued working on his crab. "Who wants to provoke conflict between the transmigrators and Zhu Cailao? Both Liu Xiang and Zheng Yiguan stand to gain. If Zhu Cailao and the transmigrators exhaust themselves in a major battle, either one benefits."
 
-"So who is it?" Ma Qianzhu seemed to trust this fatty implicitly.
+"So which one is it?" Ma Qianzhu seemed to trust this fatty implicitly.
 
 "How would I know?" The fatty shrugged. "If I had to guess, I'd say Liu Xiang."
 
@@ -38,80 +38,76 @@ The fatty chuckled, licking his lips. "Director, you already said it's strange. 
 
 "Just guessing."
 
-Ma Qianzhu nearly fainted. The fatty chuckled several times, swallowed an oyster, smacked his lips, then continued:
+Ma Qianzhu nearly fainted. The fatty chuckled several times, swallowed an oyster whole, smacked his lips in satisfaction, then continued: "Actually, it doesn't matter which one. Here's my real guess—the genuine attack is coming soon."
 
-"Actually, it doesn't matter which one. Here's my guess: the real attack is coming soon."
+Ma Qianzhu jolted upright. The enemy wouldn't simply send four hundred men to their deaths just to deliver a false message. There had to be more coming. Recalling the fleet their radar had detected earlier, he reached for his phone.
 
-Ma Qianzhu jolted. The enemy would not simply send four hundred men to die just to deliver a false message. There had to be more to come. Recalling the radar-detected fleet, he reached for his phone.
+Before his fingers touched it, a crisp gunshot split the night sky.
 
-Before he touched it, a crisp gunshot rang through the night sky.
+Both Ma Qianzhu and Wu De leaped to their feet, tensely watching the direction of the shot.
 
-Ma Qianzhu and Wu De leaped up, tensely watching the shot's direction.
+"Hey, what's your name anyway?" Wu De turned to ask. His curiosity about this visitor had gotten the better of him.
 
-"Hey, what's your name?" Wu De turned to ask. He was quite curious about this visitor.
+"Siluo... Siluo Moningbai'er," the fatty mumbled around half a crab still stuffed in his mouth.
 
-"Siluo... Siluo Moningbai'er," the fatty mumbled with half a crab in his mouth.
+"Siluo Moningbai'er? Never heard of—" Wu De's brow furrowed in confusion. Then realization struck. "Oh! You're the famous 'Slow Morning Bear'! A pleasure to finally meet you!"
 
-"Siluo Moningbai'er? Never seen this person..." Wu De was confused.
-
-Then realization struck. "Oh, so you're the famous 'Slow Morning Bear'... pleasure to meet..."
-
-"Please, no pleasantries. Fame is such a burden." The fatty sighed with fake sincerity. His sharp eyes had already snagged another oyster. His tongue curled around it—swallowed. Then he slowly rose, patted his belly, said "Thanks for the hospitality. You're busy, I won't disturb," and left.
+"Please, spare me the pleasantries. Fame is such a burden." The fatty sighed with theatrical sincerity, though his sharp eyes had already snagged another oyster. His tongue curled around it—swallowed. Then he rose slowly, patted his belly, and said, "Thanks for the hospitality. You're obviously busy, so I won't disturb you further." With that, he turned and left.
 
 "Then... goodbye." Wu De was in no mood for politeness now. He hurried inside to grab his Type-56 semiautomatic.
 
-The fatty tapped his lunch box, humming "Old Bear's lucky today, Old Wolf's buying chicken..." as he departed.
+Behind him, the fatty tapped his lunch box rhythmically, humming "Old Bear's lucky today, Old Wolf's buying chicken..." as he wandered off into the darkness.
 
 ---
 
-"SHIT," Xue Ziliang could not help cursing in English. In the infrared binoculars' eerie white glow, six ships were clearly visible. One was obviously not Chinese.
+"SHIT." Xue Ziliang couldn't help cursing in English. Through the eerie white glow of his infrared binoculars, six ships stood out in sharp relief. One of them was clearly not Chinese.
 
-Hours earlier, Bei Wei had called, ordering his recon detachment to conduct a foot patrol along Bopu Harbor's beach. Intelligence suggested possible nighttime maritime infiltration.
+Hours earlier, Bei Wei had called with orders for his recon detachment to conduct a foot patrol along Bopu Harbor's beach. Intelligence suggested possible nighttime maritime infiltration.
 
-Xue Ziliang took this seriously, especially direct orders from Bei Wei. He knew well that without Bei Wei's favor, he would still be an "off-the-books" nobody—an "illegal resident." Having been in this group long enough, he deeply understood "regular" versus "temporary" treatment. Now that he was "regular," he had to work hard. Xue Ziliang now understood the importance of one's background.
+Xue Ziliang took the assignment seriously—especially when the orders came directly from Bei Wei. He understood all too well that without Bei Wei's patronage, he'd still be an "off-the-books" nobody, an "illegal resident" in the transmigrators' hierarchy. Having spent enough time in this group, he'd come to deeply appreciate the difference between "regular" and "temporary" treatment. Now that he'd achieved "regular" status, he intended to earn it. The importance of one's standing had become crystal clear to him.
 
-The Long-Range Reconnaissance HQ—every department was inflating its rank now, like the Health Team recently renaming itself the Health Department, so the recon unit was not immune—was based at Bairren, but Bei Wei had stationed a four-man detachment each at Bopu, Damei Village, and Salt Field Village for daily patrols and training. He and Xue Ziliang rotated through them for guidance.
+The Long-Range Reconnaissance Headquarters—every department was inflating its title these days, just as the Health Team had recently rebranded itself the Health Department, so the recon unit wasn't immune to the trend—was based at Bairren. But Bei Wei had stationed four-man detachments at Bopu, Damei Village, and Salt Field Village for daily patrols and training. He and Xue Ziliang rotated through them to provide guidance.
 
-Besides Xue Ziliang, this four-man squad had no military experience. Actually, Bei Wei thought veteran age was too old; unless they were special ops specialists, they lacked flexibility. He preferred selecting volunteers from the twenty-somethings. After months of training, though not quite recon-level, these young men far exceeded typical fresh boot-camp soldiers.
+Besides Xue Ziliang himself, none of the four-man squad had any military experience. Bei Wei actually considered veteran soldiers too set in their ways; unless they were special operations specialists, they lacked the flexibility he wanted. He preferred selecting volunteers from men in their twenties. After months of intensive training, though they weren't quite at true recon level, these young men had developed far beyond typical boot-camp recruits.
 
-They carried three SKS rifles. Xue Ziliang had a Remington 870 shotgun—he found the SKS too long for recon work. As a former American, his greatest frustration was the equipment shortage. There was plenty of quantity, but almost all of it was unfamiliar. Except for Glock pistols and Remington shotguns, the transmigrators' most common infantry weapons—the SKS and Type-56 semi—were foreign to him. Even an AK-47 would have been better; he had used those.
+They carried three SKS rifles between them. Xue Ziliang himself packed a Remington 870 shotgun—he found the SKS too unwieldy for recon work. As a former American, his greatest frustration was the equipment situation. There was plenty in terms of quantity, but almost all of it was unfamiliar to him. Aside from Glock pistols and Remington shotguns, the transmigrators' most common infantry weapons—the SKS and Type-56 semi—were foreign territory. Even an AK-47 would have been better; at least he'd fired those before.
 
-Take night vision equipment. In his US Marine Corps Force Recon days, this was basic gear. Even his garage at home had had better equipment. Now the whole squad had just one starlight scope and one set of Russian infrared binoculars—he disliked Russian gear. But this was already an excellent allocation. Night vision equipment, though plentiful initially, could not be replaced or repaired. The Planning Committee controlled it strictly.
+Night vision equipment was another sore point. During his days with US Marine Corps Force Recon, this had been standard issue. Hell, he'd kept better gear in his garage back home. Now the entire squad shared just one starlight scope and a single set of Russian infrared binoculars—and he'd never liked Russian equipment. But this was already a generous allocation. Night vision devices, though plentiful when the transmigrators first arrived, couldn't be replaced or repaired. The Planning Committee controlled them with an iron fist.
 
-Coastal searching on foot was exhausting but effective. The sky was overcast, with no moon or stars, making the horizon barely visible. Though radar provided approximate coordinates, every kilometer he stopped to scan the sea with binoculars.
+Coastal searching on foot was exhausting work, but effective. The sky hung low and overcast, with neither moon nor stars to illuminate the water. The horizon was barely visible. Though radar had provided approximate coordinates, Xue Ziliang stopped every kilometer to scan the sea with his binoculars.
 
-After two hours of coastal trekking, the search team reached the end of Longhao Bay. If the coordinates were correct, the fleet should be nearby. With the next binocular sweep—sure enough, ship silhouettes appeared across the strait.
+After two hours of trudging along the coast, the search team reached the end of Longhao Bay. If the coordinates were accurate, the fleet should be somewhere nearby. He raised the binoculars for another sweep—and there they were. Ship silhouettes materialized across the strait.
 
-*Good at hiding,* he noted, unconsciously chewing before realizing he had no gum. These six ships were concealed in the shadows of the reefs on a starless, moonless night. Without the *Fengcheng*'s radar, visual observation alone could not have spotted them, much less positioned them.
+*Good at hiding*, he noted, unconsciously working his jaw before realizing he had no gum. The six vessels had concealed themselves in the shadows of the offshore reefs on this starless, moonless night. Without the *Fengcheng*'s radar, visual observation alone would never have spotted them, let alone pinpointed their position.
 
-The ship speed was extremely slow. Xue Ziliang checked his watch and started calculating—under two knots. That foreign ship's sails clearly were not fully deployed. Suspicious.
+The ships were moving at an agonizingly slow pace. Xue Ziliang checked his watch and started calculating—under two knots. That foreign ship's sails clearly weren't fully deployed. Highly suspicious.
 
-"Brother Xue, something wrong here?" A team member whispered. Xue Ziliang's straightforwardness and skill had earned the young men's respect.
+"Brother Xue, something wrong here?" one of the team members whispered. Xue Ziliang's straightforward manner and obvious competence had earned the young men's respect.
 
-"It'd be weirder if there wasn't," Xue Ziliang mumbled. He radioed Bopu and began reporting:
+"It'd be weirder if there wasn't," Xue Ziliang muttered. He keyed his radio to Bopu and began his report:
 
-"Six unidentified vessels sighted. Based on hull types, preliminary assessment: five smaller ones are Chinese ships; one is a Western warship—three-masted, approximately four-hundred-ton displacement. Chinese warships have no broadside gun ports. Bows and decks carry four to six cannons. Western warship has twelve to sixteen gun positions on the open deck."
+"Six unidentified vessels sighted. Based on hull types, preliminary assessment: five smaller ones are Chinese ships; one is a Western warship—three-masted, approximately four hundred tons displacement. The Chinese ships have no broadside gun ports. Bows and decks carry four to six cannons each. The Western warship has twelve to sixteen gun positions visible on the open deck."
 
-"There's a dinghy!" Xue Ziliang's binoculars caught a small boat.
+"There's a dinghy!" His binoculars had caught a small boat separating from the fleet.
 
-There were eight people inside. The binoculars showed swords and matchlock muskets. One at the helm, four rowing, two at the bow setting up matchlock fork rests—pretty primitive. The last held something rolled up. The dinghy advanced cautiously, paddling only occasionally. He could now clearly see: the item-holding sailor carried a plumb line, constantly measuring nearshore water depth. This meant the enemy planned to bring their ships in very close, using cannon fire to support landings. A simple rowboat troop transport would not need depth sounding.
+Eight people were aboard. Through the lenses he could make out swords and matchlock muskets. One man at the helm, four at the oars, two at the bow setting up matchlock fork rests—pretty primitive setup. The last one held something rolled up. The dinghy advanced cautiously, the rowers dipping their oars only occasionally to minimize noise. Now he could see clearly: the man with the rolled object was handling a plumb line, constantly measuring the nearshore water depth. That meant the enemy planned to bring their ships in dangerously close, using cannon fire to support the landing. A simple rowboat troop transport wouldn't need depth sounding.
 
-From the dinghy's trajectory, the pirates obviously planned landing from the Lingao Point side—not Bopu's main entrance, presumably because it was less defended. As for that inconvenient beacon tower, the pirates clearly did not take it seriously, unaware of the 12-pounder cannon atop it.
+Judging from the dinghy's trajectory, the pirates obviously intended to land from the Lingao Point side rather than Bopu's main entrance—presumably because they assumed it would be less defended. As for that inconvenient beacon tower, the pirates clearly dismissed it as insignificant, completely unaware of the 12-pounder cannon mounted at its crown.
 
-A gentle breeze blew on the silent night. Only waves lapped the shore, making splashing sounds.
+A gentle breeze stirred the silent night. The only sounds were the waves lapping against the shore, their soft splashing an almost peaceful counterpoint to the tension gathering in the darkness.
 
-A ghostly sailing ship slowly approached—the Spanish galleon *Countess of Scarborough*. Behind it followed five smaller Chinese hard-sail vessels.
+A ghostly sailing ship glided slowly into view—the Spanish galleon *Countess of Scarborough*. Behind her followed five smaller Chinese hard-sail vessels, their silhouettes dark against the darker water.
 
-The moon emerged from the clouds, casting a pale light.
+The moon emerged from behind the clouds, casting a pale, treacherous light across the strait.
 
-"Damn this moon!" Spanish Captain Aragonés grumbled from the poop deck. He had been slowly cruising across the strait half the night, approaching the channel centerline only near midnight. Moonlight would reveal his ship's silhouette. According to rumors, those strange Easterners had many strange muskets that fired extremely far. He did not want to risk it.
+"Damn this moon!" Spanish Captain Aragonés grumbled from his position on the poop deck. He had been creeping across the strait for half the night, approaching the channel's centerline only as midnight drew near. Moonlight would betray his ship's silhouette. According to the rumors, those strange Easterners possessed many unusual muskets that fired at extraordinary distances. He had no intention of testing those claims.
 
-"Are those Orientals all asleep?" Aragonés murmured. Through his spyglass, the harbor remained calm. Except for some lights, nothing unusual.
+"Are those Orientals all asleep?" Aragonés murmured to himself. Through his spyglass, the harbor appeared utterly tranquil. Aside from a few scattered lights, nothing seemed amiss.
 
-"Captain. Rear ship Captain Liu is signaling to ask whether to begin the attack."
+"Captain, rear ship Captain Liu is signaling. He wishes to know whether to commence the attack."
 
-"Understood." Aragonés smiled with a trace of contempt. These stupid Orientals could only fight on land. They did not deserve to be called sailors. At sea, he was confident the *Countess of Scarborough* alone could defeat all of Liu Xiang's warships. If not for Dutch pressure reducing Spanish influence along the Chinese coast, why would he cooperate with a second-rate pirate like Liu Xiang?
+"Understood." Aragonés smiled, a trace of contempt curling his lip. These stupid Orientals could only fight on land. They didn't deserve to call themselves sailors. At sea, he was confident the *Countess of Scarborough* alone could defeat Liu Xiang's entire fleet. If not for Dutch pressure eroding Spanish influence along the Chinese coast, why would he ever stoop to cooperating with a second-rate pirate like Liu Xiang?
 
-He watched the dinghy through his telescope. So far, no signals indicating insufficient depth. Soon he could confidently sail very close to shore, using concentrated cannon fire to support the landing pirates. Those legendary "strange muskets," however powerful, could not match sixteen-cannon broadsides. The *Countess of Scarborough* carried thirty-two guns—quite formidable even in European waters.
+He tracked the dinghy through his telescope. So far, no signals indicating insufficient depth. Soon he could sail confidently into close range, unleashing concentrated cannon fire to support the landing pirates. Those legendary "strange muskets," however powerful they might be, could never match sixteen-cannon broadsides. The *Countess of Scarborough* carried thirty-two guns—a respectable armament even by European standards.
 
 **(End of Chapter)**

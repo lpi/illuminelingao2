@@ -1,85 +1,89 @@
 # Chapter 170: The 400-*Liao* Guangzhou-Style Ship
 
-Wen Desi followed Shipwright Zhang to inspect the ships. He had built many Western ship models over the years, but Chinese seagoing vessels were merely a casual hobby for him. Frustratingly, domestic research lagged far behind overseas efforts and was considerably less professional. Even models of ancient Chinese ships were mostly found in foreign collections. Available resources were scarce.
+Wen Desi followed Shipwright Zhang on a tour of the vessels under construction. Over the years, he had built countless Western ship models, though Chinese seagoing vessels remained more of a casual hobby than a serious pursuit. The frustration lay in how far domestic research lagged behind overseas scholarship—considerably less professional and woefully incomplete. Even scale models of ancient Chinese ships could more readily be found in foreign collections than anywhere in China itself. The available resources were simply too scarce to work with properly.
 
-The shipyard had no drydock—just slipway racks. Wen Desi knew that drydock history in China dated back to the Northern Song Dynasty's Xining era, used for imperial barge repairs. But subsequent usage was rare—basically an anomaly. Without Shen Kuo's records in the *Dream Pool Essays*, the practice would probably be unknown.
+The shipyard possessed no drydock, only slipway racks for launching. Wen Desi was well aware that drydock technology in China dated back to the Northern Song Dynasty's Xining era, when such facilities had been used to repair imperial barges. But subsequent usage had been exceedingly rare—an historical anomaly at best. Without Shen Kuo's meticulous records in the *Dream Pool Essays*, the practice might have been lost to time entirely.
 
-"How do you launch ships?" Wen Desi was curious about ancient launching methods without proper slipways or docks.
+"How do you launch ships without proper slipways or docks?" Wen Desi asked, genuinely curious about ancient methods.
 
-"Cover the beach with slippery mud, then haul it out with ropes."
+"We coat the beach with slippery mud, then haul the vessel out with ropes."
 
-Brilliantly simple. Wen Desi nodded. "The wisdom of the people is inexhaustible"—that phrase was not merely rhetoric.
+Brilliantly simple. Wen Desi nodded appreciatively. The old saying about the wisdom of the common people being inexhaustible was not merely rhetoric—it was lived experience, passed down through generations of practical problem-solving.
 
-The ship before them was seventy percent complete. The hull was formed, but there was no deck. With his limited ancient ship knowledge, Wen recognized it as a "Guangzhou-style ship"—a *Guangchuan*. These were large Chinese seagoing vessels: wide at the top, narrow at the bottom, with a "virtual tail" at the stern. A key feature was the centerline-mounted drop-keel extending below the hull. This drop-board reduced rolling and leeway—the *Guangchuan*'s distinctive trait. The dimensions were roughly 400 *liao*—the Ming government's maximum allowed size for civilian vessels. Though Chinese shipwrights could obviously build thousand-ton ships, excessive size was operationally impractical for evasion and harbor access.
+The ship before them stood roughly seventy percent complete. The hull had taken shape, but no deck planking had yet been laid. With his admittedly limited knowledge of ancient ship design, Wen Desi recognized it immediately as a *Guangchuan*—a Guangzhou-style ship. These were among the largest Chinese seagoing vessels: wide at the top and narrow at the bottom, featuring a distinctive "virtual tail" at the stern. Their most characteristic element was the centerline-mounted drop-keel that extended below the hull proper. This drop-board dramatically reduced rolling and leeway, making it the *Guangchuan*'s signature trait. By his estimation, this particular vessel measured roughly 400 *liao*—the maximum size the Ming government permitted for civilian ships. Chinese shipwrights could obviously construct thousand-ton vessels when they wished, but excessive size created operational headaches: harder to evade authorities, more difficult to access shallow harbors.
 
-Wen Desi estimated the ship's dimensions: twenty-seven meters long, over five meters wide, with roughly seventy tons of displacement. It was similar to other 400-*liao* ships he had read about. Apparently, the design was standardized. Wen asked Shipwright Zhang whether he used "ship books"—the *chuanshu*. Zhang reddened embarrassedly: "No ship book."
+Wen Desi studied the ship's proportions and estimated its dimensions: approximately twenty-seven meters in length, over five meters in beam, with a displacement of around seventy tons. The measurements aligned with other 400-*liao* ships he had read about in technical literature—apparently the design had become fairly standardized over time.
 
-Wen Desi knew he was guarding secrets. Thinking that without impressing him there would be endless evasions, he cleared his throat and, in Cantonese, recited a string of numbers:
+"Do you work from *chuanshu*?" he asked, referring to the traditional ship books that codified construction specifications. "From ship books?"
+
+Shipwright Zhang's face reddened with embarrassment. "No ship book," he muttered.
+
+Wen Desi knew the man was guarding his trade secrets—as any skilled craftsman would. But he also knew that without impressing Zhang, he would face endless evasions and half-truths. There was nothing for it but to demonstrate that he already possessed knowledge worth protecting. He cleared his throat and, speaking in Cantonese, recited a string of precise figures:
 
 "400-*liao* warship specifications: length 8 *zhang* 6 *chi* 9 *cun*; beam 1 *zhang* 7 *chi*; labor 2,487..."
 
-Before he could finish, Shipwright Zhang dropped to his knees, his face filled with terror: "My... my... lord..."
+Before he could finish, Shipwright Zhang dropped to his knees, his weathered face filled with terror. "My... my... lord..."
 
-Wen Desi said, "Rise. Don't be afraid."
+"Rise," Wen Desi said calmly. "Don't be afraid."
 
 "My lord already knows—"
 
-"When you reach Bopu and see our iron ships, great and small, then you'll understand the depths of worldly ingenuity. What is one petty ship book!" Wen Desi thought: *Just basic info from ancient ship enthusiasts like "Nanchuan Ji."*
+"When you reach Bopu and see our iron ships, great and small, you will begin to understand the true depths of worldly ingenuity. What is one petty ship book compared to that?" Wen Desi allowed himself a private thought: *It's just basic information that ancient ship enthusiasts like "Nanchuan Ji" have already published.*
 
-"Yes, yes." Shipwright Zhang recognized that this lord was an expert. Hearing about unseen iron ships excited him. His explanations became much more forthcoming.
+"Yes, yes," Zhang said, climbing to his feet and brushing off his knees. He recognized now that this lord was no mere curious official—he was an expert in his own right. And the mention of iron ships he had never seen stirred something in Zhang's chest: genuine excitement, professional curiosity. From that moment, his explanations became far more forthcoming.
 
-This nearly completed ship was double-masted and fir-hulled. This differed from Wen Desi's memory—books said *Guangchuan* primarily featured "ironwood," specifically *Mesua ferrea*. Their captured *Fubo* was also a *Guangchuan*—though not ironwood, it used the same class of hardwood: lychee wood.
+This nearly completed vessel was double-masted with a fir hull—a detail that puzzled Wen Desi, since the books he had read claimed *Guangchuan* were primarily built of "ironwood," specifically *Mesua ferrea*. Their captured *Fubo* was also a *Guangchuan*, and though it was not ironwood either, it at least used the same general class of hardwood: lychee wood.
 
-Zhang explained it was purely a matter of cost. Ironwood was expensive; fir was abundant and cheap, yet possessed adequate strength. According to him, a Cantonese merchant had ordered this particular vessel for regular Nanyang trade—buying a new ship for each voyage, sailing with cargo, selling the ship and all at the destination, and returning on other ships. Essentially one-use vessels—materials were minimized, cheapness prioritized.
+Zhang explained that it came down purely to economics. Ironwood was expensive, while fir grew abundantly and could be had cheaply—yet still possessed adequate structural strength for the vessel's intended purpose. According to Zhang, a Cantonese merchant had ordered this particular ship for regular Nanyang trade routes, operating on an unusual business model: buy a new ship for each voyage, load it with cargo, sail to the destination, then sell both the vessel and its goods before returning home on other ships. These were essentially disposable vessels, built to be used once. Materials were minimized accordingly, with cheapness the overriding priority.
 
-"How much is such a ship?"
+"How much does a ship like this cost?"
 
-"Standard price is eight hundred *liang*. With quality timber, add two hundred."
+"Standard price is eight hundred *liang*. If you want quality timber throughout, add another two hundred."
 
-So one ship cost one thousand *liang*. The Navy had indeed been a money furnace since antiquity. Shipbuilding clearly needed private capital involvement.
+So one ship ran about a thousand *liang* of silver. The Navy had indeed been a money furnace since antiquity—some things never changed. Any serious shipbuilding program would clearly need private capital involvement to sustain itself.
 
-Structurally, twelve bulkheads divided the hull into thirteen compartments. The bulkhead planks were large camphor boards over ten centimeters thick. This was the Chinese sailing ship's world-leading feature: watertight compartments. Bulkhead-to-hull junctions had cradling ribs fixed with iron nails. Near the bottom, there were two drain holes per bulkhead and cradling rib. This surprised Wen Desi—surely drain holes would compromise watertightness!
+Structurally, the hull was divided by twelve bulkheads into thirteen separate compartments. The bulkhead planks were large camphor boards, each over ten centimeters thick. This was the Chinese sailing ship's world-leading innovation: watertight compartmentalization. At the junctions where bulkheads met hull planking, cradling ribs were fixed in place with iron nails. Near the bottom, Wen Desi noticed two drain holes per bulkhead and cradling rib—a detail that surprised him. Surely drain holes would compromise the very watertightness the compartments were meant to provide?
 
-Zhang explained that drain holes facilitated bilge pumping—they were plugged with special wooden stoppers during sailing.
+Zhang explained that the drain holes facilitated bilge pumping, allowing water to be channeled and removed efficiently. During actual sailing, they were sealed with specially fitted wooden stoppers.
 
-The hull planks were all fir. The bottom planks were over twenty centimeters thick; hull sides were fifteen centimeters. Strake width ranged from eight to twenty centimeters—widest at midships, narrowing at the bow and stern. Lateral joints were butt joints; longitudinal ones used flush-rabbet joints, with seams filled with caulking. This caulking was a mixture of hemp fiber, tung oil, and ground oyster shell. Tung oil's chemical properties allowed it to easily polymerize, forming a tough waterproof film. Oyster shell, being over ninety percent calcium carbonate, combined best with tung oil when burnt into lime at high temperatures. The lime's strong bonding plus the tung oil produced a calcium soap compound that was extremely waterproof. Plank joints were also iron-nailed—nail holes sealed with oil putty.
+The hull planking was all fir. Bottom planks measured over twenty centimeters thick, while the hull sides ran about fifteen centimeters. Strake widths varied from eight to twenty centimeters—widest at midships, gradually narrowing toward both bow and stern. Lateral joints were simple butt joints, while longitudinal seams employed flush-rabbet joinery, with gaps filled using traditional caulking. This caulking compound was a mixture of hemp fiber, tung oil, and ground oyster shell—a formula perfected over centuries. The tung oil's chemical properties caused it to polymerize readily, forming a tough waterproof film. Oyster shell, being over ninety percent calcium carbonate, combined most effectively with tung oil when first burnt into lime at high temperatures. The lime's strong bonding properties reacted with the tung oil to produce a calcium soap compound that was extremely resistant to water penetration. All plank joints were additionally secured with iron nails, their holes sealed over with oil putty.
 
-The third and seventh bulkhead positions held the fore and main mast steps. Mast steps were large camphor blocks fixed to the bulkheads and hull, with two square holes for mast clasps that secured the masts. Chinese ships featured lowerable and removable masts. Mast steps had pivots, and bulkheads had storage holes for lowered masts.
+At the third and seventh bulkhead positions stood the fore and main mast steps. These were large camphor blocks fixed firmly to both the bulkheads and the hull itself, featuring two square holes that accepted mast clasps to secure the masts in place. Chinese ships had long featured masts that could be lowered and removed entirely—the mast steps incorporated pivots for this purpose, while the bulkheads contained storage holes where lowered masts could be stowed.
 
-Ballast consisted of beach cobblestones, mainly in the third and fourth compartments. Both sides had stringer frames for lower deck installation. Cargo and quarters would go on this deck.
+Ballast consisted of beach cobblestones, concentrated primarily in the third and fourth compartments. Both sides of the hold featured stringer frames for the installation of a lower deck, where cargo and crew quarters would eventually be arranged.
 
-The rudder was hardwood—even one-use ships did not skimp on critical parts. This was a primitive balanced adjustable-height rudder. The rudder blade had many holes—Zhang said this reduced the steering force needed—another *Guangchuan*-exclusive design.
+The rudder was fashioned from hardwood—even on these disposable ships, craftsmen refused to cut corners on critical components. It was a primitive but effective balanced adjustable-height rudder. The blade itself was pierced with numerous holes, which Zhang explained reduced the steering force required to turn the vessel—yet another design innovation unique to the *Guangchuan* tradition.
 
-Most interesting to Wen Desi were the workshop's stockpiled shipbuilding materials, especially the iron fittings. Chinese ships had used iron nails since the Warring States period, and the technology was fully mature by the Tang and Song dynasties. Seeing these examples excited him. There were six or seven varieties of nail types alone—shovel nails, square nails, date-stone nails, climbing-head nails, flat-head nails—each designed for specific purposes. There were also peculiar L-shaped iron fittings: fifty centimeters long, five centimeters wide, 0.6 centimeters thick—with one end bent ninety degrees—and four small holes. Zhang explained that these were *ju* clamps for connecting external planks to bulkheads. The key method: pre-cut slots in the bulkheads and holes in the planks; hammer the *ju* clamp from outside through the plank hole into the bulkhead slot; then nail the *ju* clamp's exposed flange to the bulkhead.
+What fascinated Wen Desi most, however, were the shipbuilding materials stockpiled in the workshop, particularly the iron fittings. Chinese ships had employed iron nails since the Warring States period, and the technology had reached full maturity during the Tang and Song dynasties. Seeing these physical examples arranged before him stirred genuine excitement. There were six or seven distinct varieties of nail types alone—shovel nails, square nails, date-stone nails, climbing-head nails, flat-head nails—each precisely designed for specific structural purposes. He also noticed peculiar L-shaped iron fittings: roughly fifty centimeters long, five centimeters wide, and 0.6 centimeters thick, with one end bent at a sharp ninety-degree angle and four small holes punched through the metal. Zhang explained that these were *ju* clamps, used for connecting external hull planks to the interior bulkheads. The technique was ingeniously simple: slots were pre-cut into the bulkheads while corresponding holes were drilled through the planking. The *ju* clamp was then hammered from outside, passing through the plank hole and seating firmly into the bulkhead slot. Finally, the clamp's exposed flange was nailed securely to the bulkhead face.
 
-Wen Desi wandered the ship, contemplating transforming it into a sail cruiser. But it was too small: the 400-*liao* ships' cargo capacity was only thirty to forty tons. As a warship: maximum six to eight guns. For industrial-scale material transport, it was inadequate. As an exploration vessel—too slow. He still needed his beloved double-masted schooner.
+Wen Desi wandered through the ship, mentally calculating whether it might be converted into a sail cruiser. But the vessel was simply too small—the 400-*liao* class could carry only thirty to forty tons of cargo. As a warship, it would mount six to eight guns at most. For the industrial-scale material transport the Australians required, it was woefully inadequate. And as an exploration vessel, it would prove too slow for practical use. What he really needed was his beloved double-masted schooner.
 
-"Old Zhang," Wen Desi said, "what's your opinion of red-hair ships?"
+"Old Zhang," Wen Desi said at last, "what's your professional opinion of red-hair ships?"
 
-"Tall ships. Have cannons. Don't fear storms or pirates."
+"Tall ships. Carry cannons. Don't fear storms or pirates."
 
 "What else?"
 
-"The sail rigging is exquisite," Shipwright Zhang said honestly. "Fast. I've observed red-hair ships a long time—high masts, much sailcloth, greater wind capture. But their true secrets remain impenetrable."
+"The sail rigging is exquisite," Shipwright Zhang admitted honestly. "They're fast. I've observed red-hair ships for a long time—high masts, much sailcloth, better wind capture. But their true construction secrets remain impenetrable to me."
 
 "Hmm. These things I know."
 
-Shipwright Zhang's eyes suddenly gleamed. But knowing that skills were his livelihood—and that this lord would not easily reveal them—his eyes dimmed.
+Shipwright Zhang's eyes suddenly gleamed with barely suppressed hope. But then, understanding that skills were a man's livelihood—and that a lord of such evident knowledge would not easily share it—his expression dimmed again.
 
-Wen Desi smiled: "Let me tell you something. In Australia, where we come from, specialized schools teach shipbuilding. Everything you and I know about ships—combined—is just superficial compared to what they know. If you're interested, eventually someone will teach you."
+Wen Desi smiled. "Let me tell you something. In Australia, where we come from, specialized schools exist solely to teach the art and science of shipbuilding. Everything you and I know about ships—combined—amounts to superficial knowledge compared to what those institutions teach their students. If you're genuinely interested, eventually someone will instruct you in those methods."
 
-Shipwright Zhang immediately knelt, kowtowing repeatedly: "If my lord transmits the secret arts—Zhang Jiqi is eternally grateful—I will safeguard them with lifelong service!"
+Shipwright Zhang immediately fell to his knees again, kowtowing repeatedly until his forehead touched the ground. "If my lord would transmit these secret arts—Zhang Jiqi will be eternally grateful. I will safeguard them with lifelong service!"
 
-"Hmm, rise." Wen Desi found a large rock, sat down, and opened his notebook, revealing a ship line drawing.
+"Hmm, rise." Wen Desi found a large flat rock nearby, settled himself upon it, and opened his leather notebook to reveal a detailed ship line drawing.
 
 "Can you build this?"
 
-Shipwright Zhang studied it for a long time. This drawing differed completely from any ship book: it had precise proportions and clear, accurate lines, not simple outlines. The unique three-view drawing provided an intuitive perception. He secretly marveled—just mastering this drafting art would guarantee a livelihood for a lifetime. These people were truly extraordinary.
+Shipwright Zhang studied the drawing for a long time, his calloused fingers hovering just above the paper's surface. This was unlike any ship book he had ever encountered: it featured precise proportions and clean, accurate lines rather than the simple outlines traditional *chuanshu* provided. The unique three-view perspective granted an intuitive understanding of the vessel's dimensions that conventional diagrams simply could not match. He marveled silently—just mastering this drafting technique alone would guarantee a man's livelihood for the rest of his days. These Australians were truly extraordinary people.
 
-He asked proportion questions, roughly estimating 1,000 *liao*. This scale—Zhang had never built anything so large.
+He asked questions about the proportions and scale, roughly estimating the design called for a vessel of 1,000 *liao*. At that size, it was larger than anything Zhang had ever personally constructed.
 
-"I've never built this size," Zhang said carefully. "But I'm willing to try."
+"I've never built anything this large," he admitted carefully, meeting Wen Desi's eyes. "But I am willing to try."
 
-Wen Desi's chosen design was a double-masted schooner. Fast and maneuverable—without armament, fewer than ten crew could operate it. Besides cargo, it could carry thirty formal passengers. Excellent for exploration and maritime patrol. The famous *America* was a double-masted schooner—winner of the 1851 yacht race with a crew of just nine. Later, it served as a Confederate blockade runner during the Civil War. Displacement: 170 tons, thirty meters long, seven-meter beam, three-meter draft. Armed with two 24-pounder carronades broadside plus one 12-pounder long gun on a center pivot mount. With lighter 6-pounders, it could mount six to eight guns.
+The design Wen Desi had selected was a double-masted schooner—fast and highly maneuverable. Without armament, fewer than ten crew members could operate her effectively. Besides cargo capacity, she could accommodate thirty passengers in proper berths. It was an excellent design for exploration voyages and maritime patrol duties alike. The famous *America* had been a double-masted schooner of similar type—the legendary winner of the 1851 yacht race that had sailed to victory with a crew of just nine men. Later, she had served as a Confederate blockade runner during the American Civil War. The specifications called for 170 tons displacement, thirty meters in length, seven-meter beam, and three-meter draft. Armed, she could mount two 24-pounder carronades on the broadside positions plus one 12-pounder long gun on a center pivot mount. With lighter 6-pounders, she could carry six to eight guns in total.
 
 **(End of Chapter)**

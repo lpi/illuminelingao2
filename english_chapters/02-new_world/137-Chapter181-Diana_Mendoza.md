@@ -2,17 +2,17 @@
 
 The interrogation began.
 
-The first prisoner brought in was a burly man in his thirties with a dark face and rough hands and feet—clearly an old sea dog with years of maritime living. Based on his clothing, personal effects, and silver, he was probably a leader.
+The first prisoner they brought in was a burly man in his thirties, dark-faced with calloused hands and weathered feet—unmistakably an old sea dog with years of maritime living etched into his skin. Judging by his clothing, personal effects, and the silver coins found on him, he was likely one of the leaders.
 
-When asked where he was from, he started yelling: "Villains! Villains! Boss Zhu will deal with you eventually!"
+When asked where he came from, he erupted into shouting: "Villains! You're all villains! Boss Zhu will deal with you eventually!"
 
-Seeing Dugu Qiuhun sharpening his blade nearby, this man sneered.
+Dugu Qiuhun sat nearby, sharpening his blade with deliberate menace. The prisoner only sneered.
 
-"Why the knife? Bring whips and branding irons! If I frown, I'm no true follower of Boss Zhu!"
+"Why bother with a knife? Bring out the whips and branding irons! If I so much as flinch, I'm no true follower of Boss Zhu!"
 
-Dugu Qiuhun raged, grabbing his stun baton.
+Dugu Qiuhun's temper flared. He grabbed for his stun baton.
 
-"No hurry." Ran Yao stopped Dugu, leisurely opening his notebook.
+"No need to rush," Ran Yao said, waving him off. He opened his notebook with practiced leisure.
 
 "Name?"
 
@@ -22,7 +22,7 @@ Dugu Qiuhun raged, grabbing his stun baton.
 
 "Where's your hometown?"
 
-"How many relatives?"
+"How many relatives do you have?"
 
 "When did you first become a pirate?"
 
@@ -56,7 +56,7 @@ Dugu Qiuhun raged, grabbing his stun baton.
 
 "You said you're from Nan'an, Fujian?"
 
-"The previous seven times you clearly said you're from Minhou, Fujian!"
+"The previous seven times you clearly said Minhou, Fujian!"
 
 "Which is it?!"
 
@@ -70,108 +70,106 @@ Dugu Qiuhun raged, grabbing his stun baton.
 
 ...
 
-After four hours of uninterrupted relay questioning, Han Yiping's mouth was finally pried open. On the twenty-fifth time answering "Who's your gang leader," he finally said "Liu Xiang."
+Four hours of uninterrupted relay questioning finally pried Han Yiping's mouth open. On the twenty-fifth repetition of "Who's your gang leader," he at last muttered the name "Liu Xiang."
 
-He still tried denying it after being caught, but under continuous bombardment, he finally broke down completely.
+He tried denying it even after being caught in the admission, but under the relentless bombardment of questions, he finally broke down completely. Once a man submits and starts confessing, the rest pours out like water. Han Yiping quickly revealed everything he knew.
 
-Once a person submits and confesses, they tell everything. Han Yiping quickly revealed all he knew.
-
-He was a "stockholder" (*gu*) in Liu Xiang's organization, a "steward" (*zhangui*)—not a direct subordinate but valued because his men were especially formidable, contributing greatly in every clash with officials or other pirate gangs. This operation's overall commander on Liu Xiang's side was a woman.
+He was a *gu*—a "stockholder"—in Liu Xiang's organization, specifically a *zhangui*, or steward. Not a direct subordinate, but valued because his men were particularly formidable, contributing greatly whenever they clashed with government forces or rival pirate gangs. The overall commander of this particular operation on Liu Xiang's side was a woman.
 
 "A woman?"
 
-"A foreign devil girl." Han Yiping gestured, saying this woman was famous among maritime groups. She had her own Western-style fast ship, always operated independently, was ruthless and cunning. Close ties with Macau's Franks. Previously under Zheng Zhilong, even well-regarded, then suddenly retired for over half a year.
+"A foreign devil girl." Han Yiping gestured as he spoke, explaining that this woman was famous among the maritime groups. She had her own Western-style fast ship and always operated independently. Ruthless and cunning, she maintained close ties with the Franks in Macau. She had previously served under Zheng Zhilong and was well-regarded there, but then she'd suddenly retired for over half a year.
 
-Liu Xiang's organization had learned about transmigrators occupying Lingao back in October, but Lingao was not worth much and was traditionally Zhu Cailao's territory. Liu Xiang was not interested.
+Liu Xiang's organization had learned about transmigrators occupying Lingao back in October, but Lingao held little value and was traditionally Zhu Cailao's territory. Liu Xiang hadn't been interested.
 
-The proposal to seize the fast ships had indeed come from Zhu Cailao's people—when joining their new boss, they had revealed everything, including Shi Shisi's returned news and observations.
+The proposal to seize the fast ships had indeed come from Zhu Cailao's former people—when they joined their new boss, they'd revealed everything, including the observations Shi Shisi had brought back.
 
-Zhu Cailao indeed intended cooperating with the transmigrators. Precisely because of this, Liu Xiang had staged this whole drama, aiming to kill two birds with one stone: capture "iron fast ships" while preventing Zhu Cailao from cooperating with the transmigrators. For this, he had not only recruited a mob of random pirates under Zhu Cailao's name but also included some former Zhu subordinates in the operation.
+Zhu Cailao had genuinely intended to cooperate with the transmigrators. That was precisely why Liu Xiang had staged this entire drama, aiming to kill two birds with one stone: capture the "iron fast ships" while preventing Zhu Cailao from forming an alliance with the newcomers. To pull this off, he had not only recruited a motley assortment of random pirates under Zhu Cailao's name, but had also included some of Zhu's former subordinates in the operation.
 
 "Wasn't Liu Xiang afraid you'd confess if captured?"
 
-"We were told: if captured, just insist we're Zhu Cailao's men. You had a grudge with Zhu Cailao; you'd believe it." Han Yiping answered listlessly. "Besides, not many here actually knew about Chief Liu."
+"We were told that if we got caught, just insist we're Zhu Cailao's men. You had a grudge with Zhu Cailao, so you'd believe it." Han Yiping answered listlessly. "Besides, not many of us actually knew about Chief Liu's involvement."
 
-"What about the Western big ship?"
+"What about the Western ship?"
 
-"I don't know. Our contact with the Western ship was all through that foreign devil girl."
+"I don't know. All our contact with the Western ship went through that foreign devil girl."
 
 "What's her name?"
 
 "Li-something-ya?"
 
-Ran Yao frowned, remembering something. His memory was excellent; he immediately recalled this should be the woman who had kidnapped Mr. Wen years ago.
+Ran Yao frowned as something stirred in his memory. His recall was excellent, and he immediately recognized who this must be—the woman who had kidnapped Mr. Wen years ago.
 
 "Black curly hair, slightly brown eyes?"
 
-"Right, right. This foreign devil girl is quite pretty—" Han the pirate swallowed.
+"Right, right. This foreign devil girl is quite pretty—" Han the pirate swallowed visibly.
 
-No mistake. Definitely her. Ran Yao thought: *what a small world.* But neither corpses nor prisoners included any women.
+No question about it. Definitely her. *What a small world*, Ran Yao thought. But neither the corpses nor the prisoners included any women.
 
-"Where is she?"
+"Where is she now?"
 
-"On the Western big ship. Probably escaped. This devil girl is very clever."
+"On the Western ship. Probably escaped. That devil girl is very clever."
 
-Ran Yao asked many more questions about Liu Xiang's strength, bases, and main leaders' names. Han Yiping answered everything honestly. What he did not know, he could not tell. Ran Yao did not force it. Based on experience, Han Yiping's extractable value was about exhausted.
+Ran Yao pressed further, asking about Liu Xiang's strength, his bases, and the names of his main lieutenants. Han Yiping answered everything honestly. What he didn't know, he couldn't tell, and Ran Yao didn't force it. Based on experience, Han Yiping's extractable value was about exhausted.
 
-More prisoners were questioned with little value. Then came the Indians, jabbering incomprehensibly. Later, realizing they worked for Spanish, they might speak Spanish. They hurried to find Spanish speakers.
+More prisoners were questioned, though they yielded little of value. Then came the Indians, jabbering incomprehensibly. It occurred to someone later that since they worked for the Spanish, they might speak Spanish. They hurried to find an interpreter.
 
-"No Spanish speakers." After checking personnel files, Xiao Zishan gave the answer.
+"No Spanish speakers," Xiao Zishan reported after checking the personnel files.
 
-"Impossible! We'll be dealing with Spanish in the future!"
+"Impossible! We'll be dealing with the Spanish in the future!"
 
 "We have English, French, Japanese, German, Italian, Russian, and Korean speakers. Even Latin! But no Spanish."
 
-"This is ridiculous! Even Korean but no Spanish? Second language would work!"
+"This is ridiculous! We have Korean but no Spanish? A second language would work!"
 
-"Really none. I can't even find 'Spanish' as a search term."
+"Really none. I can't even find 'Spanish' as a search term in the database."
 
-"What do I do?" Ran Yao hung up helplessly. Dugu Qiuhun's eyes suddenly lit up. He remembered the Latin hottie on the North American yacht earlier today. The Qian brothers had mentioned she was Venezuelan-something. Dugu Qiuhun's impressions of Venezuela were exactly two: beauty pageant winners and the frequently news-making Chavez.
+"What am I supposed to do?" Ran Yao hung up helplessly. Dugu Qiuhun's eyes suddenly lit up. He remembered the Latin beauty on the North American yacht from earlier that day. The Qian brothers had mentioned she was Venezuelan-something. Dugu Qiuhun's impressions of Venezuela consisted of exactly two things: beauty pageant winners and Chavez making the news.
 
 "Latin American countries all speak Spanish, right?"
 
-"Yes, also some Portuguese—" Ran Yao now remembered: was there not a Venezuelan-American woman with temporary ID #008?
+"Yes, with some Portuguese mixed in—" Ran Yao suddenly remembered: wasn't there a Venezuelan-American woman with temporary ID #008?
 
-He picked up the phone, calling Xiao Zishan: "I need someone transferred here. Process it quickly."
+He picked up the phone and called Xiao Zishan. "I need someone transferred here. Process it quickly."
 
-"Who? Speaks Spanish?"
+"Who? Someone who speaks Spanish?"
 
 "Diana Mendoza."
 
-Diana Mendoza had always believed she was the unluckiest person. Zhou Weisen always boasted he had seduced her with his charm. Actually, Diana had just been drunk in that Hawaiian bar, hoping for a free yacht ride to catch sea breezes. Instead, these Chinese had kidnapped her. And after two weeks of torment, she had arrived in some wilderness and been told it was the 17th century!
+Diana Mendoza had always believed she was the unluckiest person alive. Zhou Weisen constantly boasted that he'd seduced her with his charm, but the truth was far less romantic. Diana had simply been drunk in that Hawaiian bar, hoping for a free yacht ride to catch sea breezes. Instead, these Chinese men had essentially kidnapped her. And after two weeks of seasickness and torment, she'd arrived in some godforsaken wilderness only to be told it was the seventeenth century.
 
-Diana Mendoza naturally did not believe this nonsense. After slapping the gibberish-spouting biology PhD several times, she stormed into the bridge. The GPS, radar, and maritime satellite phone she had been absolutely forbidden to touch were now freely available. Obviously, she could not get any expected results.
+Diana Mendoza naturally didn't believe such nonsense. After slapping the biology PhD who spouted this gibberish several times, she stormed onto the bridge. The GPS, radar, and maritime satellite phone she'd been absolutely forbidden to touch were now freely available. Of course, she couldn't get any of the results she expected.
 
-After prolonged struggling and crying, she finally exhausted herself. The Qian brothers' wives gently persuaded her until she clearly understood her situation—without Zhou Weisen, she could not even eat. Diana Mendoza, like women in similar circumstances, completely resigned herself. Zhou Weisen naturally was not shy, exploiting the beauty's fear and helplessness in unfamiliar surroundings to easily make Diana Mendoza his woman.
+After prolonged struggling and crying, she finally exhausted herself. The Qian brothers' wives gently persuaded her until she fully understood her situation—without Zhou Weisen, she couldn't even feed herself. Diana Mendoza, like women in similar desperate circumstances throughout history, completely resigned herself to her fate. Zhou Weisen naturally wasn't shy about exploiting the beautiful woman's fear and helplessness in unfamiliar surroundings, easily making Diana Mendoza his woman.
 
-For the Executive Committee, Zhou Weisen's emotional and physical needs being met was naturally cause for celebration. But Xiao Zishan really could not figure out what use this English Literature major Latina had—she could not even speak Chinese. He could only list her as "dependent," a category shared only by some transmigrators' children. This Spanish translation assignment was at least putting her to use. She spoke both English and Spanish fluently.
+For the Executive Committee, Zhou Weisen's emotional and physical needs being met was cause for celebration. But Xiao Zishan genuinely couldn't figure out what use this English Literature major Latina had—she couldn't even speak Chinese. He could only list her as a "dependent," a category shared only by some transmigrators' children. This Spanish translation assignment was at least putting her to use. She spoke both English and Spanish fluently.
 
-Seeing this tall, beautiful Eurasian-mixed woman appear in the office, several men's eyes lit up. No wonder they said Venezuela was a land of beauties—a perfect blend of yellow, white, and black races' advantages. *Zhou Weisen, you beast!*
+When this tall, beautiful mixed-race woman appeared in the office, several men's eyes lit up. No wonder they said Venezuela was a land of beauties—a perfect blend of European, indigenous, and African heritage. *Zhou Weisen, you lucky bastard!*
 
-Problem was, though her Chinese had improved considerably in recent months for simple daily conversation, complex explanations were still beyond her. She needed an English translator.
+The problem was that although Diana's Chinese had improved considerably over recent months—enough for simple daily conversation—complex explanations remained beyond her. She needed an English translator.
 
-As it turned out, the Indians' Spanish was tragic. Their Spanish was incomprehensible even to Diana Mendoza. After much confusion, they finally understood: they were sailors, recruited in Manila by some Spanish lord named Sidonia. Beyond that, they knew nothing—not even where they currently were.
+As it turned out, the Indians' Spanish was tragic, so broken that even Diana Mendoza couldn't understand them. After much confused back-and-forth, they finally pieced together the basics: these men were sailors, recruited in Manila by some Spanish lord named Sidonia. Beyond that, they knew nothing—not even where they currently were.
 
-"What use are Indians to us?" Dugu Qiuhun asked. In his view, they should behead a few pirates for deterrence.
+"What use are Indians to us?" Dugu Qiuhun asked. In his view, they ought to behead a few pirates for deterrence.
 
-"For curry. I actually quite like it." Ran Yao said. "If they're sailors, they'll be useful."
+"For curry. I actually quite like it," Ran Yao said drily. "And if they're sailors, they'll be useful."
 
-Last to be questioned were the Spaniards. Seeing a beautiful, Spanish-speaking compatriot among the Orientals, the two Spanish prisoners' jaws nearly dropped.
+The last to be questioned were the Spaniards. When they saw a beautiful, Spanish-speaking compatriot among these Orientals, the two Spanish prisoners' jaws nearly hit the floor.
 
-Both had been recruited in Manila. One was a sailor, one an ordinary soldier. They came from Spanish America's Panama viceroyalty, trying their luck in the Philippines viceroyalty.
+Both had been recruited in Manila. One was a sailor, the other an ordinary soldier. They hailed from the Panama viceroyalty in Spanish America and had come to try their luck in the Philippines viceroyalty.
 
-From them, Ran Yao finally learned how the Spanish galleon had joined this battle. He also learned the commander's name: Aragonés Sidonia. A Spanish "gentleman" commissioned to recruit and command a galleon for trade or plunder on the Chinese coast, and if possible, establish a trading foothold with local Chinese pirates' help.
+From them, Ran Yao finally learned how the Spanish galleon had joined this battle. He also learned the commander's name: Aragonés Sidonia. A Spanish "gentleman" commissioned to recruit and command a galleon for trade or plunder along the Chinese coast, with orders to establish a trading foothold using local Chinese pirates' assistance if possible.
 
-Aragonés could not personally fund such an expedition, so this voyage was organized like a joint-stock company. The Manila Spanish governor, some officials, and plantation owners were investors. The galleon's equipment, crew recruitment, and supply purchases were shared by stock percentage. Aragonés Sidonia, as commander, received one-fifth of total profits. If he secured a coastal base, he would also receive a bonus.
+Aragonés couldn't personally fund such an expedition, so the voyage had been organized like a joint-stock company. The Manila Spanish governor, various officials, and plantation owners were all investors. The galleon's equipment, crew recruitment, and supply purchases were funded by shares. Aragonés Sidonia, as commander, would receive one-fifth of total profits. If he secured a coastal base, he'd also receive a bonus.
 
-All participating soldiers and sailors received no pay or wages. But they collectively shared one-fifth of total profits—distributed by rank.
+All participating soldiers and sailors received no pay or wages whatsoever. Instead, they collectively shared one-fifth of total profits—distributed according to rank.
 
-"This is just a robbery gang, plain and simple!" Dugu Qiuhun said angrily after hearing. "Ask them how many Chinese ships they've robbed! How many Chinese killed!"
+"This is just a robbery gang, plain and simple!" Dugu Qiuhun said angrily after hearing all this. "Ask them how many Chinese ships they've robbed! How many Chinese they've killed!"
 
-Ran Yao was not interested in that. He cared more about the ship's capabilities.
+Ran Yao wasn't interested in that. He cared more about the ship's capabilities.
 
-According to their confessions, *Countess of Scarborough* had 400 personnel total, including soldiers, sailors, doctors, gunners, craftsmen, and servants. Some were Spanish, Portuguese, Italian, Chinese, Indian, Black, and mixed-race; the rest were locally recruited Malay natives.
+According to their confessions, the *Countess of Scarborough* carried four hundred personnel in total, including soldiers, sailors, doctors, gunners, craftsmen, and servants. Some were Spanish, Portuguese, Italian, Chinese, Indian, Black, or mixed-race; the rest were locally recruited Malay natives.
 
-Quite international. No wonder Yu Eshui had said this era's sailors were a collection of every nation's dregs. Besides this motley crew, *Countess of Scarborough* carried much cargo, including trade goods, large quantities of firearms and powder—some already sold to Liu Xiang—and fort-building tools and materials. Food and water were actually limited. They operated coastally and could resupply ashore anytime. After allying with local pirate chief Liu Xiang, resupply was even easier. Reportedly, their next target was a Chinese pirate called "Yiguan."
+Quite the international crew. No wonder Yu Eshui had said that this era's sailors were a collection of every nation's dregs. Besides this motley assortment, the *Countess of Scarborough* carried substantial cargo, including trade goods and large quantities of firearms and powder—some of which had already been sold to Liu Xiang—as well as fort-building tools and materials. Food and water were actually limited, since they operated along the coast and could resupply ashore anytime. After allying with local pirate chief Liu Xiang, resupply had become even easier. Reportedly, their next target was a Chinese pirate called "Yiguan."
 
 **(End of Chapter)**

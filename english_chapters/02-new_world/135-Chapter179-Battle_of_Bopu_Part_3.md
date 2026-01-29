@@ -1,93 +1,97 @@
 # Chapter 179: The Battle of Bopu (Part 3)
 
-The *Countess of Scarborough* hugged Lingao Point, drifting slowly into the bay on the tide while continuously firing. The white searchlight beams kept the ship illuminated. The Easterners ashore had obviously made her their primary target, and shells flew constantly. Fortunately, the enemy lacked heavy artillery. The Spanish galleon's solid oak hull withstood most hits, though some shells penetrated. But casualties were mounting. The deck was strewn with dismembered bodies, and blood ran in the deck scuppers. Aragonés was reaching his limit. At this rate, without recruiting Chinese sailors locally, he would have to limp back to Manila.
+The *Countess of Scarborough* crept along Lingao Point, riding the tide into the bay while her guns thundered without cease. White searchlight beams pinned her against the darkness like a moth on display, and the Easterners ashore had clearly marked her as their primary target. Shells screamed in from every direction. The Spanish galleon's solid oak hull weathered most of the punishment, though some rounds punched through—and the cost in blood was mounting steadily. Dismembered bodies littered the deck, and crimson rivulets coursed through the scuppers toward the sea. Aragonés was nearing his breaking point. At this rate, even if he survived the night, he would have to recruit Chinese sailors in port just to limp back to Manila.
 
-"This Devil's light!" Aragonés cursed. "Haven't they succeeded yet?" he asked Li Siya again. Even her usually calm face showed strain. Besides the Spanish firepower, Liu Xiang had committed significant resources. All the landing parties were veteran pirates—many were desperados and deserters from the government navy. By her assessment, the *Countess of Scarborough*'s firepower was unmatched on China's coast. While perhaps not capable of destroying Liu Xiang as boasted, suppressing shore fire should have been easy. Combined with elite pirates, capturing ships should have been a certainty. Yet this meticulously planned operation was going no better than Zhu Cailao's disaster.
+"This devil's light!" he cursed, then turned to Li Siya. "Haven't they succeeded yet?"
 
-A distinctive shrieking whistle cut through the air. Both of them started. A pointed shell punched clean through the broadside. Splinters, blood, and body parts flew from the breach. Screams echoed.
+Even her customarily composed face showed the strain. Between the Spanish firepower and the significant resources Liu Xiang had committed—landing parties filled with veteran pirates, many of them desperados and deserters from the government navy—this operation should have been a certainty. By her assessment, the *Countess of Scarborough*'s guns were unmatched anywhere on China's coast. Perhaps not capable of destroying Liu Xiang outright as some had boasted, but surely sufficient to suppress shore fire. Combined with elite pirates, seizing those ships should have been inevitable. Yet here they were, this meticulously planned assault faring no better than Zhu Cailao's catastrophe.
+
+A distinctive shriek cut through the night—a sound unlike any she had heard before. Both she and Aragonés flinched as a pointed shell punched clean through the broadside. Splinters erupted from the breach in a spray of blood and shattered flesh. Screams echoed across the deck.
 
 "Fire!"
 
-At Bai Yu's command, another 70mm pointed shell screamed from the muzzle. The two converted trawlers' four 70mm rifled guns now targeted the *Countess of Scarborough* with rotating fire. Rifled pointed armor-piercing shells had many times the penetration of round shot. No oak planking could withstand them.
+At Bai Yu's command, another 70mm pointed shell screamed from the muzzle. The two converted trawlers had brought four rifled guns to bear on the *Countess of Scarborough*, rotating their fire with devastating precision. Against the penetrating power of rifled armor-piercing shells, oak planking might as well have been paper.
 
-The *Countess of Scarborough* finally broke. These suddenly appearing shells had destroyed nearly one entire broadside. Nine of the sixteen guns were completely disabled. Below-deck gunners had lost over half their number.
+The galleon's resistance finally shattered. Those sudden, terrible shells had destroyed nearly an entire broadside. Nine of her sixteen guns lay wrecked beyond repair, and the gunners below deck had lost more than half their number.
 
-"Fire the signal rocket. Retreat." Aragonés finally ordered the withdrawal. Though the tide had not yet turned and exiting the bay would be difficult, if he didn't retreat now, he might never leave. The alliance with Liu Xiang could go to hell. Losing the ship meant losing everything he had staked. What awaited him was the Manila Governor's fury and a creditors' prison.
+"Signal rocket," Aragonés ordered, his voice hollow. "Retreat."
+
+The tide had not yet turned, and leaving the bay would be a desperate struggle—but if he did not run now, he might never leave at all. The alliance with Liu Xiang could burn in hell. Losing this ship meant losing everything he had staked his life upon. What awaited him was the Manila Governor's wrath and a creditors' prison.
 
 "Captain, some of our rowboats haven't returned—"
 
 "Forget those filthy natives. Come about!"
 
-"Not enough rowers in the boats."
+"We don't have enough rowers."
 
-"Get everyone who can move to row!" Aragonés exploded. "Move!"
+"Get everyone who can move to the oars!" Aragonés exploded. "Now!"
 
-Dozens of sailors slid down ropes into rowboats. With long oars pushing, the Spanish galleon laboriously turned and began its retreat. Aragonés ordered operational guns to keep firing—partly to suppress the enemy, partly to consume ammunition. *Lighter is better when fleeing.*
+Dozens of sailors slid down ropes into the waiting boats. Long oars bit into the water, and the Spanish galleon began its laborious turn toward escape. Aragonés ordered every operational gun to keep firing—partly to suppress the enemy, partly to lighten the ship. Every pound of powder spent was one less pound to weigh them down.
 
-"Devils!" He ground his teeth at the massive silhouette deep in the harbor, feeling a great chill.
+"Devils," he ground through clenched teeth, staring at the massive silhouette lurking deep in the harbor. A chill ran through him to the bone.
 
-Li Siya stood beside him. She had considered stopping Aragonés's retreat—if he fled, Liu's five double-masted ships with their few guns couldn't suppress the enemy at all. Ships and men would all be lost here. But now was not the time for loyalty. She casually pulled up her cloak's hood and inconspicuously withdrew from the poop deck.
+Li Siya stood at his side, watching the retreat unfold. She had considered stopping him—if the Spanish fled, Liu's five double-masted ships with their handful of guns would never suppress the enemy's fire. Ships and men alike would be lost here. But this was not the moment for loyalty. She drew her cloak's hood up over her face and slipped quietly from the poop deck, vanishing into the chaos.
 
-The Spanish retreat completely broke the pirates' morale in the bay. Two of the five double-masters had already been sunk by harbor guns. The other three, seeing the Spanish flee, also turned about. One exploded while fleeing, smoke and fire rocketing skyward. Shore pirates immediately panicked. Many dropped their weapons and rushed toward the beach sampans. At the few remaining sampans, fierce fighting broke out. Many were killed. Overcrowded escape boats became uncontrollable amid the chaos and rocking. When pursuing transmigrators continued firing rifles from the beach, some capsized. The sea was full of floating, struggling heads. Others, seeing no hope, fled into the nearby mangroves to survive.
+The Spanish retreat broke what remained of the pirates' morale. Two of the five double-masters had already gone down under the harbor guns, and when the other three saw the galleon turning to flee, they followed suit. One exploded mid-flight, smoke and fire rocketing into the sky. Panic spread instantly among the shore parties. Pirates dropped their weapons and sprinted for the beach sampans. At the few remaining boats, desperate fighting erupted—men killing each other for a seat. Overcrowded craft became uncontrollable in the chaos, rocking wildly as too many bodies scrambled aboard. When pursuing transmigrators reached the waterline and opened fire with rifles, several sampans capsized. The sea filled with bobbing heads, arms flailing in the darkness. Those who saw no hope of escape fled into the nearby mangroves to take their chances with the wilderness.
 
-As various forces gradually consolidated and command coordination smoothed, the infantry platoon rushed from Bairen and arrived. Xi Yazhou had led soldiers in a forced march to Bopu, his heart churning with anxiety, not knowing the port's status. Along the way, the thunderous gunfire and wildly sweeping searchlights had been terrifying. He feared heavy transmigrator casualties.
+As the various defending forces consolidated and command coordination smoothed, the infantry platoon from Bairen finally arrived at a run. Xi Yazhou had pushed his soldiers through a forced march to Bopu, his heart churning with dread the entire way. The thunderous gunfire and wildly sweeping searchlights visible from miles away had been terrifying—he feared the worst for transmigrator casualties.
 
-Reaching the camp, though devastation lay all around, seeing Wu De revealed that twenty or thirty transmigrators had been wounded, mostly minor. Native laborers and soldiers had suffered more.
+Reaching the camp, he found devastation everywhere he looked. But Wu De's report brought some relief: twenty or thirty transmigrators wounded, most of them minor injuries. The native laborers and soldiers had suffered more heavily.
 
-Since it was not yet dawn and combat had been chaotic, arriving forces only secured intersections and key points, guarding against enemy escape or a second attack, waiting for daylight. Li Haiping suggested launching trawlers to pursue, sink, or capture the galleon. But everyone felt the situation was unclear; better to stay defensive for now.
+Since dawn remained hours away and the combat had been chaotic at best, the arriving forces secured only the intersections and key points, establishing a perimeter against enemy breakout or a second wave attack. Li Haiping suggested launching the trawlers to pursue, sink, or capture the galleon, but the consensus held that the situation remained too unclear. Better to stay defensive until daylight revealed the full picture.
 
-While they discussed next steps, battlefield cleanup, and treating the wounded, there suddenly came commotion—then cannon fire, rifle fire, and battle cries. Ten-plus minutes later, all sounds ceased, with only occasional screams.
+They were still discussing next steps—battlefield cleanup, treating the wounded—when sudden commotion erupted nearby. Cannon fire. Rifle shots. Battle cries. Ten minutes later, silence returned, broken only by the occasional scream.
 
-The pirates who had huddled in the mangroves, seeing no escape, had tried breaking out. The waiting marines and guns slaughtered them. All killed. Even wounded received bayonet coups de grâce.
+The pirates who had taken shelter in the mangroves, seeing no escape, had attempted a breakout. The waiting marines and guns cut them down without mercy. Every last one killed. Even the wounded received bayonet coups de grâce.
 
-After an hour's fierce fighting, fires in Bopu Harbor gradually died. Only one exploded double-master still burned and drifted. The water was covered with debris and corpses. Of approximately four hundred landing pirates, Chinese and foreign, over half would never see tomorrow's sun. Wounded lay everywhere, moans and screams rising and falling. The medical team from Bairen and nursing school students were overwhelmed.
+After an hour of fierce fighting, the fires across Bopu Harbor gradually died to embers. Only one exploded double-master still burned, drifting aimlessly across the water. Debris and corpses choked the surface. Of the approximately four hundred pirates who had landed—Chinese and foreign alike—more than half would never see another sunrise. Wounded lay scattered everywhere, their moans and screams rising and falling in waves. The medical team from Bairen and the nursing school students worked frantically, overwhelmed by the sheer number.
 
-Wu De directed firefighting while requisitioning laborers and supplies from Bairen for battlefield cleanup. He personally visited the quarantine camp. Several hundred Baitu relocatees—men and women, young and old—were there. Some shells had hit during the battle, damaging buildings and causing a dozen casualties. The camp had briefly panicked. Wu De reassured everyone that pirates had attacked and been repulsed. He had stretcher teams evacuate the wounded for treatment.
+Wu De directed the firefighting efforts while requisitioning laborers and supplies from Bairen for battlefield cleanup. He personally visited the quarantine camp where several hundred Baitu relocatees—men and women, young and old—had been sheltering. Some shells had struck during the battle, damaging buildings and causing a dozen casualties. The camp had briefly panicked, but Wu De reassured everyone that the pirates had been repulsed. Stretcher teams evacuated the wounded for treatment.
 
-After dawn, forces began large-scale sweeps of the surrounding areas. Few survivors remained. Fewer than fifty prisoners. The seriously wounded were not worth the transmigrators' moral debate—New Army soldiers dispatched each with a bayonet. Only those who could walk to the aid station survived.
+After dawn, large-scale sweeps of the surrounding areas began. Few survivors remained—fewer than fifty prisoners in total. The seriously wounded posed no moral dilemma worth the transmigrators' time debating: New Army soldiers dispatched each one with a bayonet thrust. Only those capable of walking to the aid station under their own power survived.
 
-Executive Committee members toured the beach under marine escort. After the night's fierce battle, everyone felt they had survived a catastrophe. Many were pale. Overall, there was less vomiting than after the first counter-encirclement victory. Apparently, everyone was growing accustomed to bloody scenes. The New Army soldiers, though also mostly first-timers, were equally unfazed by gore—people of this spacetime had seen too much death.
+Executive Committee members toured the beach under marine escort. After the night's fierce battle, everyone carried the hollow look of survivors who had narrowly escaped catastrophe. Many faces were pale. There was, however, noticeably less vomiting than after their first counter-encirclement victory—apparently they were growing accustomed to such sights. The New Army soldiers, though mostly first-timers as well, seemed equally unfazed by the carnage. People of this spacetime had witnessed too much death to be shocked by more.
 
-Ma Qianzhu walked while chatting, boosting morale. In his view, this battle's intensity was just the beginning. More severe tests awaited.
+Ma Qianzhu walked among them, chatting and boosting morale. In his view, this battle's intensity was merely a foretaste. Far more severe tests awaited.
 
-"Commissioner Ma, battle statistics are ready." The Planning Committee's work was famously precise, efficient, and merciless.
+"Commissioner Ma, the battle statistics are ready." The Planning Committee's work was famously precise, efficient, and merciless.
 
-Ma Qianzhu reviewed them, then addressed everyone: "This battle—we're seriously in the red."
+Ma Qianzhu reviewed the figures, then turned to address the group. "This battle put us seriously in the red."
 
-Everyone was stunned.
+Stunned silence.
 
-"Don't find this funny." Ma Qianzhu irritably tapped his folder. "If you think a few hundred sheet-metal knives, some matchlocks, and a dozen leaky sampans compensate for 1,900 bullets, 214 shells, and several hundred kilograms of powder?" He added finally: "Twenty New Army soldiers killed. Fifteen laborers killed. Ten permanently disabled."
+"Don't find this amusing." He tapped his folder irritably. "If you think a few hundred sheet-metal knives, some matchlocks, and a dozen leaky sampans compensate for nineteen hundred bullets, two hundred fourteen shells, and several hundred kilograms of powder, think again." He paused, letting the numbers sink in. "Twenty New Army soldiers killed. Fifteen laborers killed. Ten permanently disabled."
 
-The final casualty figures were indeed shocking. New Army soldiers were carefully trained seeds of their future army, painful to lose. Laborers at least spoke some Mandarin and had adapted to local work methods, building basic trust.
+The casualty figures hit hard. New Army soldiers represented carefully trained seeds of their future military—every loss a painful setback. The laborers had at least learned some Mandarin and adapted to local work methods, building the foundation of basic trust.
 
-"Those plague-carrying pirates!" Li Haiping was heartsick at the Marine Company's heavy losses.
+"Those plague-carrying pirates!" Li Haiping's voice was thick with grief over the Marine Company's heavy losses.
 
-"If you insist on training your own marines, of course training is insufficient. Land fighting still relies on—"
+"If you insist on training your own marines, of course the training is insufficient. Land fighting still relies on—"
 
-Wei Aiwen's words were not finished before Naval personnel glared as if ready to devour him alive.
+Wei Aiwen never finished his sentence. Naval personnel turned on him with looks that could kill.
 
-Xi Yazhou, seeing a brawl imminent, quickly intervened: "What's the point of this now? Everyone calm down. Let's review the battle, patch holes, figure out what to do next."
+Xi Yazhou stepped in before fists could fly. "What's the point of this now? Everyone calm down. Let's review the battle, patch the holes, figure out what comes next."
 
-"Marines need at least two companies," Li Haiping immediately proposed. "Bopu's defense burden is too heavy. Guard posts are too scattered. And there's the tower to man."
+"Marines need at least two companies," Li Haiping proposed immediately. "Bopu's defense burden is too heavy. Guard posts are scattered too thin. And the tower still needs manning."
 
-Ma Qianzhu silenced the about-to-speak Wei Aiwen: "Navy vacancies must be filled immediately. Expansion needs comprehensive consideration. Let's first discuss Bopu's defenses."
+Ma Qianzhu silenced Wei Aiwen before he could respond. "Navy vacancies must be filled immediately. Expansion requires comprehensive consideration. For now, let's focus on Bopu's defenses."
 
-Bopu's defense was still weak. Too few gun emplacements. Heavy guns insufficient. The Lingao beacon tower had proved its enormous value in battle—commanding overview of the entire battlefield with real-time situation reports. The searchlight had provided excellent battlefield illumination. By comparison, the 12-pounder's effectiveness was limited. The artillery team believed that tower guns should be 24-pounder or larger. The transmigrators' cast heavy guns, limited by lifting capacity, had not made it to the tower and were placed in temporary pier emplacements. These hasty emplacements had proved defensively inadequate and lacked infantry protection. In combat, they had been quickly overrun—a dozen marines all killed, causing the battle's heaviest casualties.
+The defensive position remained weak. Too few gun emplacements. Insufficient heavy guns. The Lingao beacon tower had proven its enormous value during the battle—its commanding height provided a complete overview of the battlefield with real-time situation reports, and the searchlight had delivered excellent illumination. The 12-pounder mounted there, by comparison, had shown limited effectiveness. The artillery team believed tower guns should be 24-pounder or larger. The transmigrators' cast heavy guns, constrained by lifting capacity, had never made it up the tower and were instead placed in temporary pier emplacements. Those hasty positions had proven defensively inadequate, lacking proper infantry protection. In combat, they had been overrun quickly—a dozen marines killed, the battle's heaviest single loss.
 
-The 12-pounder mountain howitzer again proved its tremendous value. Its mobility—three or four people could drag it running—made it the transmigrators' most reliable area-effect weapon. Lin Shenhe noted that with one or two mountain howitzers at those temporary emplacements, they might not have fallen so quickly.
+The 12-pounder mountain howitzer, however, had again proven its tremendous value. Its mobility—three or four people could drag it at a run—made it the transmigrators' most reliable area-effect weapon. Lin Shenhe observed that with one or two mountain howitzers positioned at those temporary emplacements, they might not have fallen so quickly.
 
-Li Di, Bai Yu, and other gunners also pointed out: too few shell types. Solid shot caused limited damage to enemy ships. Canister was only effective at close range.
+Li Di, Bai Yu, and the other gunners raised another concern: too few shell types. Solid shot caused limited damage to enemy ships. Canister proved effective only at close range.
 
-"Without explosive shells, at least we need incendiaries. Oh, and chain shot."
+"Without explosive shells, we at least need incendiaries. And chain shot."
 
-"With chain shot, we could've broken the Spanish galleon's masts—she couldn't escape!"
+"With chain shot, we could have broken the Spanish galleon's masts—she never would have escaped!"
 
-"Primitive incendiaries aren't hard, right? Just a red-hot iron ball. That would work. At least it could set ships on fire."
+"Primitive incendiaries shouldn't be difficult, right? Just a red-hot iron ball. That would work. At minimum, it could set ships ablaze."
 
-"Besides guns, the port itself needs other defenses." Li Haiping suggested. "Can we make mines? I know contact mines are difficult. What about command-detonated mines? That shouldn't be too technically challenging?"
+"Besides guns, the port itself needs other defenses," Li Haiping suggested. "Can we make mines? I know contact mines are difficult. What about command-detonated mines? That shouldn't be too technically challenging?"
 
-"It's not easy either." Lin Shenhe shook his head. "Command-detonated mines need electrical detonation—we can substitute light bulbs, and our stocks are sufficient. But the wiring needed is too much. Actually, contact mines are easier. We should focus our efforts there."
+"It's not easy either." Lin Shenhe shook his head. "Command-detonated mines require electrical detonation—we can substitute light bulbs, and our stocks are sufficient. But the wiring required is simply too extensive. Contact mines are actually easier to produce. We should focus our efforts there."
 
-After discussion, they decided to build two three-story brick-and-concrete gun towers near the pier. *Fengcheng*'s tall profile could also function like the beacon tower in the harbor. The Executive Committee decided to add one or two rotatable heavy guns on her. They would also consider blocking devices at the harbor entrance.
+After thorough discussion, they decided to construct two three-story brick-and-concrete gun towers near the pier. The *Fengcheng*'s tall profile could also serve a similar function to the beacon tower within the harbor. The Executive Committee resolved to add one or two rotatable heavy guns to her deck. They would also consider blocking devices at the harbor entrance.
 
 **(End of Chapter)**

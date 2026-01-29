@@ -1,18 +1,18 @@
 # Chapter 187: Congratulatory Telegrams
 
-Weeks earlier, the Engineering Department had carved an amphitheater into a hillside within Bairren Fortress—tiered steps of brick and stone fitted with wooden benches. The venue could seat four hundred comfortably, five hundred if packed tight. The screen had come bundled with the 16mm projector, mounted now on a permanent frame for quick setup. Anticipating regular screenings, they'd constructed a dedicated projection room with electrical wiring. Sound came from the projector's portable speakers—nothing elaborate, but sufficient.
+Weeks earlier, the Engineering Department had carved an amphitheater into the hillside within Bairren Fortress—tiered steps of brick and stone fitted with wooden benches that could seat four hundred comfortably, or five hundred if people squeezed together. The screen had arrived bundled with the 16mm projector and now hung from a permanent frame for quick setup. Anticipating regular screenings, they'd constructed a dedicated projection room complete with electrical wiring. Sound came from the projector's portable speakers—nothing elaborate, but adequate for the purpose.
 
-Mei Wan had built a VIP section directly facing the screen, sheltered by an overhanging rain canopy. Below the screen frame, a semicircular stage awaited future meetings and performances when the cinema went dark.
+Mei Wan had positioned a VIP section directly facing the screen, sheltered beneath a rain canopy. Below the screen frame, a semicircular stage stood ready to host meetings and performances whenever the cinema went dark.
 
-Two hours before showtime, crowds had already gathered on both sides of the screen. Many arrived straight from the cafeteria, lunchboxes in hand. Electric lights proved too dim, so several gas lamps had been hung to bathe the grounds in brilliant light. Families came in pairs; those with children brought them along. The cafeteria had set up a stand beside the cinema offering free juice and betel nut—the only snacks available. It was a bustling scene of harmonious festivity.
+Two hours before showtime, crowds had already massed on both sides of the screen. Many had come straight from the cafeteria, lunchboxes still in hand. The electric lights proved too dim, so someone had strung up gas lamps that bathed the grounds in brilliant light. Families arrived in pairs; those with children brought them along. The cafeteria had set up a stand beside the cinema offering free juice and betel nut—the only snacks available. It was a bustling scene of harmonious festivity.
 
-When the music started, the noisy chatter died instantly. Everyone waited, breathless. The film title appeared on screen:
+When the music started, the noisy chatter died instantly. Every breath was held in anticipation. The film title appeared on screen:
 
 *The Matrix.*
 
-The audience was floored. Was this satire or entertainment? Either way, every eye remained fixed on the screen. As Keanu Reeves struck his iconic poses, the earth-shaking audio drew workers from throughout the fortress. Discovering a gigantic "shadow play" in progress, no one wanted to leave. Some hurried back to fetch wives and children.
+The audience was floored. Was this satire or entertainment? Either way, every eye remained fixed on the screen. As Keanu Reeves struck his iconic poses, the earth-shaking audio drew workers from throughout the fortress. Upon discovering a gigantic "shadow play" in progress, no one wanted to leave. Some hurried back to fetch wives and children.
 
-Word spread that the chiefs were watching an unprecedented shadow play, and workers and families from Bairren Commune rushed over. They dared not sit on the tiered steps but gathered around the perimeter—the open-air design gave them a clear view.
+Word spread that the chiefs were watching an unprecedented shadow play, and workers and families from Bairren Commune rushed over. They dared not sit on the tiered steps, but gathered instead around the perimeter—the open-air design afforded them a clear view regardless.
 
 Luo Duo slipped quietly into the VIP section. Besides Xiao Zishan, Ma Qianzhu and several other commissioners were seated there. Wen Desi and a few others were absent—per leadership protection protocols, Xiao Zishan and Ma Qianzhu watched the first half while Wen Desi's group would take the second. Never all present at once.
 
@@ -26,27 +26,27 @@ Ma Qianzhu frowned. "No need. They're just here to watch. Don't be so nervous."
 
 "It's fine. Since they're workers, they should all be trustworthy."
 
-"Understood." Luo Duo turned to leave, but Xiao Zishan called him back. "No need to mobilize militia, but have the on-duty guards prepare extra No. 4 tear gas grenades."
+"Understood." Luo Duo turned to leave, but Xiao Zishan called him back. "No need to mobilize the militia, but have the on-duty guards prepare extra No. 4 tear gas grenades."
 
-"Right away." Luo Duo's reply was crisp and efficient—the tone leaders preferred. Seeing Ma Qianzhu raise no objection, he departed.
+"Right away." Luo Duo's reply was crisp and efficient—precisely the tone leaders preferred. Seeing that Ma Qianzhu raised no objection, he departed.
 
-On screen, Carrie-Anne Moss was flying through the air. Ma Qianzhu said, "You're still this wary of natives who are practically our own people. How will we ever carry out localization?"
+On screen, Carrie-Anne Moss was flying through the air. Ma Qianzhu remarked, "You're still this wary of natives who are practically our own people. How will we ever carry out localization?"
 
-"Our longest-serving people have only been with us three months. This isn't modern society with its background checks and information trails. We have to stay cautious."
+"Our longest-serving workers have only been with us three months. This isn't modern society with its background checks and information trails. We have to stay cautious."
 
 Ma Qianzhu snorted with laughter. "You call this caution? Pepper tear gas grenades? Pathetic."
 
 "Better than nothing." Xiao Zishan allowed himself a chuckle.
 
-The natives watching the shadow play harbored no such thoughts. The moving, lifelike images on the white cloth amazed and fascinated them: a Western man in a long black coat spinning gracefully through the air; giant, strange octopuses flying through the sky; towers as dense as mountain forests; vehicles trailing blue flames. Everything was utterly unprecedented yet looked startlingly real. Ma Peng watched entranced.
+The natives watching the shadow play harbored no such thoughts. The moving, lifelike images on the white cloth amazed and fascinated them—a Western man in a long black coat spinning gracefully through the air; giant, strange octopuses flying through the sky; towers as dense as mountain forests; vehicles trailing blue flames. Everything was utterly unprecedented yet looked startlingly real. Ma Peng watched, entranced.
 
 Then came the demon realm. Towers dotted with red lanterns, each containing a drowned figure. Monsters walked among them, long tentacles waving against the black night sky. Ma Peng shivered—this had to be Asura Hell itself.
 
 Shocking as the effects were, the ancients understood this was merely light and shadow, not reality. Though some were tempted to peek behind the screen to see what manner of troupe could perform such realistic shadow plays, no one acted rashly.
 
-"The natives seem utterly absorbed." Wu De had heard that many commune members had come to watch for free. Worried about trouble, he'd come to inspect. Seeing them all slack-jawed and mesmerized, he was somewhat surprised.
+"The natives seem utterly absorbed." Wu De had heard that many commune members had come to watch for free. Worried about trouble, he'd come to inspect. Finding them all slack-jawed and mesmerized, he was somewhat surprised.
 
-"Do they even understand what's being shown?" Luo Duo wondered.
+"Do they even understand what's being shown?" Luo Duo wondered aloud.
 
 "Never mind them—even I don't fully understand *The Matrix*." Wu De shrugged. "But these folk are purely watching for spectacle."
 
@@ -70,9 +70,9 @@ Just then, Neo on screen was delivering his classic lines:
 
 ...
 
-The speech ended, the movie concluded. Knowing more was coming, most people stretched lazily to wait. Then Ding Ding briskly mounted the stage—Western suit and tie, hair slicked, face radiant, looking ready for a wedding.
+The speech ended, the movie concluded. Knowing more was coming, most people stretched lazily and settled in to wait. Then Ding Ding bounded briskly onto the stage—Western suit and tie, hair slicked back, face radiant, looking ready for a wedding.
 
-"On this joyous New Year's Eve, the Executive Committee Propaganda Team and all staff of the *Lingao Times* wish you family happiness, all your wishes fulfilled, and a happy Spring Festival." He spoke loudly into the microphone. "Now we'll read a few congratulatory telegrams and letters—"
+"On this joyous New Year's Eve, the Executive Committee Propaganda Team and all staff of the *Lingao Times* wish you family happiness, all your wishes fulfilled, and a happy Spring Festival." His voice boomed through the microphone. "Now we'll read a few congratulatory telegrams and letters—"
 
 "The Baitu Village Committee and supporting units send this message: Baitu villagers are striving for self-improvement, determined to rebuild our homes with our own hands. We're doing well with fish and rice. Our beloved transmigrator army is building us new houses."
 
@@ -98,13 +98,13 @@ Ma Qianzhu sighed. "Honestly, it still feels like padding."
 
 "That day will come!" Xiao Zishan, infected by the grand ambition, spoke with full confidence.
 
-At that moment, strange hissing sounds erupted outside. Looking up, a green flame streaked into the night sky, followed by a red one. In an instant, rocket trails crisscrossed the starry canopy. Inside and outside the cinema, crowds were drawn by this unexpected show, exclaiming in admiration.
+At that moment, strange hissing sounds erupted outside. Looking up, they saw a green flame streak into the night sky, followed by a red one. In an instant, rocket trails crisscrossed the starry canopy. Inside and outside the cinema, crowds were drawn by this unexpected show, exclaiming in admiration.
 
 The rockets climbed higher and higher, then exploded against the darkness.
 
-Like thunder shaking the sky, bright red and dazzling white flames burst and scattered, illuminating each other. This was a fireworks spectacular unlike anything the people of this spacetime had ever witnessed. Spontaneous cheers and applause erupted.
+Like thunder shaking the sky, bright red and dazzling white flames burst and scattered, illuminating each other in spectacular fashion. This was a fireworks display unlike anything the people of this spacetime had ever witnessed. Spontaneous cheers and applause erupted from every direction.
 
-Not just Bairren Fortress—residents of the county seat and Bopu also witnessed this unprecedented spectacle over Lingao soil. Many who'd already gone to bed came running out to behold this rare foreign marvel.
+Not just Bairren Fortress—residents of the county seat and Bopu also witnessed this unprecedented spectacle over Lingao soil. Many who'd already gone to bed came running outside to behold this rare foreign marvel.
 
 Lin Shenhe and his artillery team colleagues didn't cheer or applaud, but they were equally excited. The rockets had finally proven usable.
 
