@@ -1,79 +1,83 @@
 # Chapter 72: Water and Power (Part 2)
 
-He remembered little of Zhuo Tianmin, only that he had a son who had once come to the Committee looking for Xiao Zishan, asking for a chit to get an egg from Wu Nanhai. For his son to eat—eggs were currently the scarcest item, only three or four per day were produced, normally reserved for the sick.
+Wang Luobin remembered little of Zhuo Tianmin—only that he had a son who had once visited the Committee looking for Xiao Zishan, asking for a chit to obtain an egg from Wu Nanhai. An egg for his child. They were the scarcest commodity these days, with only three or four produced daily, normally reserved for the sick.
 
-He looked mid-thirties, wearing a training suit covered in stone dust and mud. Pointing at the newly built pressure forebay, eyes on no one, he said: "...According to the design drawings: the inlet chamber floor should be higher than the anterior chamber floor. Now they have been built level."
+The man appeared to be in his mid-thirties, wearing a training suit caked with stone dust and mud. He stood pointing at the newly constructed pressure forebay, his eyes fixed on the structure rather than any of the people gathered around him.
 
-The engineering crew gathered around him, silent. Mei Wan was a bit impatient: "Just a few centimeters difference—what is the big deal? If we scrutinized every drawing detail, this would be a jerry-built project."
+"According to the design drawings, the inlet chamber floor should be higher than the anterior chamber floor. These have been built level."
 
-"That is substitution measures for lacking materials—cannot be helped," Zhuo Tianmin, hearing this, grew angry. "This pressure forebay used the full amount of cement, gravel, and sand. Why not follow the drawings?"
+The engineering crew had gathered in a silent circle. Mei Wan shifted impatiently. "We're talking about a few centimeters. What's the big deal? If we scrutinized every detail in those drawings, this would be nothing but a jerry-rigged mess."
 
-"The crew did not understand the drawings—did not notice..." Bing Feng tried to mediate.
+Zhuo Tianmin's expression hardened. "That kind of substitution is acceptable when materials are lacking—that can't be helped. But this pressure forebay used the full amount of cement, gravel, and sand. So why didn't we follow the drawings?"
 
-"That makes even less sense. The workers are novices, not professionals—that is not their fault. But we are all in construction engineering. How can we excuse such elementary mistakes?" People nearby were whispering.
+"The crew didn't understand the drawings well enough," Bing Feng offered, attempting to mediate. "They didn't notice the difference..."
 
-Several professionals turned red. Mei Wan could not refute him, only said: "So what do you suggest?"
+"That makes even less sense." Zhuo Tianmin's voice carried across the site. "The workers are novices, not professionals—no one blames them. But we're all in construction engineering. How can we excuse such an elementary mistake?" Murmurs rippled through the crowd.
 
-"Demolish and rebuild according to drawing specifications."
+Several of the professionals flushed red. Mei Wan had no rebuttal, so he simply asked, "What do you suggest, then?"
 
-"That wastes materials and delays schedule!" Mei Wan nearly jumped. "Besides, you are not from hydraulic engineering—do you even know why the pool should have different levels? Drawings are not always right—that happens plenty."
+"Demolish it. Rebuild according to specifications."
 
-"I certainly do not know. But precisely because we do not understand, we must follow drawings to the letter."
+"That wastes materials and delays the entire schedule!" Mei Wan nearly jumped at him. "Besides, you're not even in hydraulic engineering—do you actually know why the pool needs different levels? Drawings aren't always right. That happens all the time."
 
-Then someone noticed: "Commissioner Wang is here!"
+"I certainly don't know why," Zhuo Tianmin replied evenly. "But precisely because we don't understand, we must follow the drawings to the letter."
 
-Hearing this, Zhuo Tianmin turned. Sure enough, Wang Luobin stood in the crowd. He gave Wang Luobin a polite nod and fell silent.
+Someone in the crowd noticed movement behind them. "Commissioner Wang is here!"
+
+Zhuo Tianmin turned at the announcement. Sure enough, Wang Luobin stood among the onlookers. He gave the commissioner a polite nod and fell silent, waiting.
 
 "Engineer Zhuo, please continue."
 
-"I have said everything I have to say. And I truly do not understand hydroelectric construction. Commissioner Wang, you decide," Zhuo Tianmin said coolly. He wanted to see this Committee member's true mettle. Everyone's eyes focused on Wang Luobin.
+"I've said everything I have to say. And I truly don't understand hydroelectric construction." His voice was cool, measured. "Commissioner Wang, you decide." He wanted to see this Committee member's true mettle. Every eye turned to Wang Luobin.
 
-Wang Luobin walked around the pool, then took a measuring rod to check depths. Finished, he asked Zhuo Tianmin: "Engineer Zhuo, what do you think should be done?"
+Wang Luobin walked a slow circuit around the pool, then retrieved a measuring rod to check the depths at various points. When he finished, he turned back to Zhuo Tianmin. "Engineer Zhuo, what do you think should be done?"
 
-Zhuo Tianmin said: "Not building to drawings means substandard quality. We can fudge it, but there may be problems later."
+"Not building to drawings means substandard quality. We can fudge it for now, but there may be problems later."
 
-Wang Luobin turned to Mei Wan: "What do you think?"
+Wang Luobin turned to Mei Wan. "And you?"
 
-Mei Wan thought, then said: "There is indeed deviation from drawings. But materials are scarce and we are on deadline. I say we make do—improve later when conditions allow."
+Mei Wan considered the question before answering. "There is deviation from the drawings, yes. But materials are scarce and we're on a tight deadline. I say we make do for now and improve it later when conditions allow."
 
-This suggestion won approval from some Building Group members.
+The suggestion drew nods of approval from some members of the Building Group.
 
-Wang Luobin nodded: "Rework would waste some cement and rebar, and delay grid connection. But this matter cannot be fudged."
+Wang Luobin acknowledged them, then shook his head. "Rework would waste cement and rebar, and it would delay our grid connection. But this matter cannot be fudged."
 
-He pointed at the pool: "The pressure forebay is wider and deeper than the channel so that water entering the forebay slows down, allowing sediment to settle. That is step one. The inlet chamber floor is higher than the anterior chamber floor to prevent settled sediment from rushing into the penstock—ensuring safe turbine operation."
+He pointed at the pool. "The pressure forebay is wider and deeper than the channel so that water entering it slows down, allowing sediment to settle. That's step one. The inlet chamber floor is built higher than the anterior chamber floor to prevent that settled sediment from rushing into the penstock—which ensures safe turbine operation."
 
-Mei Wan realized he had again misread the Committee's intent. Highway construction had made him think the Committee prioritized speed, so he had insisted on schedule. Watching the construction crew stare at him, he waved dismissively:
+Mei Wan realized he had again misread the Committee's priorities. The highway construction had led him to believe they valued speed above all else, so he had pushed the schedule. Now, watching the construction crew stare at him, he waved dismissively.
 
-"Stop staring. Demolish the problem areas and rework!"
+"Stop gawking. Demolish the problem sections and rework them."
 
-The crew jumped into the pool with eight-pound hammers, pounding away. Concrete chunks fell. Wang Luobin's heart ached—who knew when they could produce cement? The long-range reconnaissance team had been dispatched precisely to find resources. They had been gone nearly a week; daily radio contact, but resource survey results had not come in yet...
+The crew jumped into the pool with eight-pound hammers and began pounding away. Concrete chunks fell in heavy thuds. Wang Luobin's heart ached watching the destruction—who knew when they would be able to produce cement again? The long-range reconnaissance team had been dispatched precisely to locate new resources. They had been gone nearly a week now, with daily radio contact, but no survey results had come in yet.
 
-Zhuo Tianmin stood aside, watching Wang Luobin as if seeing him for the first time. Previously, his impression of Committee members was that they were affable but slippery. Xiao Zishan was typical—never said anything to displease you, but you could not tell his position on anything. Even when making decisions in disputes, he would use rhetoric to save everyone's face. Zhuo Tianmin admired such people but simultaneously despised them—seeing it as a survival tactic for those without professional substance.
+Zhuo Tianmin stood apart from the others, studying Wang Luobin as if seeing him for the first time. His previous impression of Committee members was that they were affable but slippery. Xiao Zishan was the perfect example—he never said anything to displease anyone, yet you could never pin down his actual position on anything. Even when arbitrating disputes, he wielded rhetoric to preserve everyone's face. Zhuo Tianmin admired that kind of skill, yet simultaneously despised it—he saw it as a survival tactic for men who lacked professional substance.
 
-He knew well that after speaking up several times in the Building Engineering Group, he had become Mei Wan's bane. But he did not care at all—had he not brought his son here precisely to escape that hollow, hypocritical life? If he had to continue those games in another timespace, why come?
+He knew perfectly well that by speaking up several times in the Building Engineering Group, he had become a thorn in Mei Wan's side. But he did not care. Hadn't he brought his son here precisely to escape that hollow, hypocritical life? If he had to play those same games in another timespace, what was the point of coming at all?
 
-Wind blew strong. Trees with flexible branches swayed vigorously. Vegetation here at Bairren Rapids was better preserved than elsewhere; dense forests covered the surrounding low hills, wave after wave of tree-rustle carried on the wind. The wind suddenly strengthened; sky darkened—looked like rain. After the defective parts were demolished, Mei Wan immediately reorganized forces, personally leading the crew to rush repairs. Concrete pouring had to finish before rain. Wang Luobin also helped clear debris on-site. Working and thinking—as Director Wen had privately discussed with him, internal matters were not as simple as imagined. From these days of construction coordination, cracks within the Building Group were already evident.
+The wind picked up, bending the flexible branches of nearby trees into vigorous waves. The vegetation around Bairren Rapids had been better preserved than elsewhere; dense forests blanketed the surrounding low hills, and the rising wind carried wave after wave of rustling leaves. Then the sky darkened suddenly—rain was coming. Once the defective sections were demolished, Mei Wan immediately reorganized his forces and personally led the crew in a rush to complete repairs. The concrete pour had to finish before the rain arrived. Wang Luobin pitched in as well, helping clear debris on-site.
 
-After re-pouring concrete, turbine installation began immediately. Turbine installation had high precision requirements—leveling needed, ideally one-lift placement. Mei Wan called in the truck crane. After an afternoon of effort, the turbine was finally hoisted into position. With no bricks or tiles for the powerhouse, a temporary shelter was erected.
+As he worked, his mind wandered to what Director Wen had privately discussed with him: internal matters were not as simple as they appeared. These past days of construction coordination had already revealed cracks within the Building Group.
 
-The crew cleaned up stones and debris in light rain, installed the intake-channel gate, and finally completely excavated the intake opening. The curved wooden gate worked perfectly—no water surged in. Now they just had to wait for concrete to fully cure before generating power.
+After re-pouring the concrete, turbine installation began immediately. The work demanded high precision—proper leveling and, ideally, placement in a single lift. Mei Wan called in the truck crane. After an afternoon of painstaking effort, the turbine was finally hoisted into position. With no bricks or tiles available for a proper powerhouse, they erected a temporary shelter instead.
 
-This small hydroelectric station—20-meter head, 2 cubic meters per second flow—could provide the base with 200 kW of power. Future plans envisioned five turbines totaling 1000 kW.
+The crew cleaned up scattered stones and debris in a light rain, installed the intake-channel gate, and finally completed the excavation of the intake opening. The curved wooden gate worked perfectly—not a drop of water surged through. Now they simply had to wait for the concrete to fully cure before generating power.
 
-With two generators about to operate simultaneously, the previous simple direct-wiring model would need changes. Chang Kai'en planned to establish a new power grid. The system was procured complete. The grid would use 110kV high-voltage transmission; industrial power at 380V, residential at 220V—matching existing voltage standards and the equipment they had brought.
+This small hydroelectric station—with its twenty-meter head and flow of two cubic meters per second—would provide the base with 200 kilowatts of power. Future plans envisioned five turbines producing a combined output of 1,000 kilowatts.
 
-Mei Wan originally wanted transmission lines buried underground for safety, but without corrosion-resistant conduit, they continued using overhead power poles. Fortunately, the line from hydroelectric zone to main city was only one hundred meters—entirely within visual range. If necessary, walls could connect the two zones—but for now, unnecessary.
+With two generators soon to be operating simultaneously, the previous simple direct-wiring arrangement would need to change. Chang Kai'en planned to establish a proper power grid, and the system had been procured complete. The grid would use 110-kilovolt high-voltage transmission, with industrial power at 380 volts and residential at 220 volts—matching existing voltage standards and the equipment they had brought with them.
 
-With power, next came the water supply system. The Wenlan River's water quality suffered mainly from upstream residential and agricultural wastewater pollution—high organic content, much algae, but relatively little sediment. For such water quality, traditional sedimentation and disinfection alone was not enough. Algae produced foul odors that even chlorine could not mask—during the Taihu Wuxi cyanobacteria bloom, the water plant's output met all chemical standards but the smell could not be eliminated.
+Mei Wan had originally wanted to bury the transmission lines underground for safety, but without corrosion-resistant conduit, they continued using overhead poles instead. Fortunately, the distance from the hydroelectric zone to the main city was only a hundred meters—entirely within visual range. If necessary, walls could eventually connect the two zones, though for now that seemed unnecessary.
 
-Tian Jiujiu, as the water-supply specialist, after surveying hydrology and terrain, decided on an infiltration-type intake—river water filtered through riverside soil before entering the reservoir. Water obtained this way was typically uncontaminated, requiring minimal treatment.
+With power addressed, attention turned to the water supply system. The Wenlan River's water quality suffered mainly from upstream residential and agricultural runoff—high organic content with abundant algae, though relatively little sediment. For such conditions, traditional sedimentation and disinfection alone would not suffice. Algae produced foul odors that even chlorine could not mask. During the Taihu Wuxi cyanobacteria bloom, the water plant's output had met all chemical standards, yet the smell could not be eliminated.
 
-The simplest method was infiltration wells. But Tian Jiujiu considered the large population needing supply and modern habits consuming more water. So he adopted the more complex infiltration gallery water system.
+Tian Jiujiu, serving as the water-supply specialist, surveyed the local hydrology and terrain before deciding on an infiltration-type intake system. River water would filter through the riverside soil before entering the reservoir, producing water that was typically uncontaminated and required minimal treatment.
 
-First, fifteen meters from the river, parallel to the bank, a collection trench was dug. Trench depth had to be one meter below the lowest water level. Inside the trench: a filter bed of multiple layers of different-grade sand, gravel, and crushed stone. Collection pipes were buried in the center. Modern versions typically used perforated 50–100mm PVC pipe; Tian Jiujiu had none, so he used concrete pipe—200mm diameter logs as inner mold, gravel, fine sand, and cement mixed and cast on-site. This pipe did not need to be dense but porous; joints were not sealed either—so groundwater entering the trench could seep into the pipe. The entire trench was covered with at least 30mm of soil.
+The simplest approach would have been infiltration wells, but Tian Jiujiu had to account for the large population requiring supply and modern habits that consumed more water. He therefore adopted the more complex infiltration gallery system.
 
-Finally, at the trench's north end—the lowest point—a clear-water well was built with concrete-mortar masonry. Filtered water entering the collection pipes ultimately flowed here to settle. The Building Engineering Group made a reinforced-concrete cover for this well. Settled clear water was pumped into an elevated water tower. The tower's base was stone and cement-mortar masonry; atop was a ten-ton water tank removed from a ship, exterior coated with cement mortar for waterproofing and rust-proofing. An ozone generator was installed outside the tower—this device used high-frequency electronics to produce ozone for sterilization. Ozone sterilization was not worse than chlorine and did not require complex electrolysis equipment or piping, with minimal human health risk. Until salt electrolysis was operational, this could serve for quite a while.
+First, fifteen meters from the river and parallel to its bank, the crew dug a collection trench. Its depth had to extend one meter below the lowest water level. Inside the trench, they laid a filter bed of multiple layers: different grades of sand, gravel, and crushed stone. Collection pipes were buried at the center. Modern versions typically used perforated PVC pipe of fifty to one hundred millimeters in diameter; Tian Jiujiu had none, so he used concrete pipe instead—two-hundred-millimeter logs served as the inner mold, and a mixture of gravel, fine sand, and cement was cast around them on-site. This pipe did not need to be dense but rather porous, and the joints were left unsealed so that groundwater entering the trench could seep through. The entire trench was then covered with at least thirty millimeters of soil.
 
-To protect against typhoons, the elevated tank was firmly guy-wired to the ground with heavy ship cables. The main water pipe to the main city was PVC. Since the Building Group's ambitious underground utility tunnel project had not started, this water line was temporarily buried in a shallow ditch.
+Finally, at the northern end of the trench—its lowest point—a clear-water well was built using concrete-mortar masonry. Filtered water flowing through the collection pipes ultimately gathered here to settle. The Building Engineering Group fabricated a reinforced-concrete cover for the well. The settled clear water would be pumped into an elevated water tower whose base was constructed of stone and cement-mortar masonry, topped with a ten-ton water tank salvaged from a ship. The tank's exterior was coated with cement mortar for waterproofing and rust prevention. An ozone generator was installed outside the tower—a device that used high-frequency electronics to produce ozone for sterilization. Ozone sterilization was no less effective than chlorine and did not require complex electrolysis equipment or elaborate piping, with minimal risk to human health. Until salt electrolysis became operational, this system would serve them well.
+
+To protect against typhoons, the elevated tank was firmly guy-wired to the ground with heavy ship cables. The main water pipe running to the city was PVC. Since the Building Group's ambitious underground utility tunnel project had not yet begun, this water line was temporarily buried in a shallow ditch.
 
 **(End of Chapter)**

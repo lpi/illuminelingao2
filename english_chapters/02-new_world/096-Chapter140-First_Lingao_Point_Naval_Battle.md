@@ -1,89 +1,91 @@
 # Chapter 140: First Lingao Point Naval Battle
 
-Boarding team leader Wang Ruixiang hadn't yet steadied himself when the deck beneath him began strange vibrations. Flames erupted at the ship's rail. No military experience was needed to know: they'd walked into an ambush.
+Boarding team leader Wang Ruixiang hadn't even found his footing when the deck began to shudder beneath him. Flames erupted along the ship's rail. He needed no military experience to recognize what had happened: they had walked straight into an ambush.
 
-"Retreat!" Li Di's hoarse scream came through his earpiece. Instantly, *Fishing-1* was engulfed in gunpowder smoke.
+"Retreat!" Li Di's hoarse scream crackled through his earpiece. In the same instant, *Fishing-1* vanished behind a wall of gunpowder smoke.
 
-"All hands, retreat!" He quickly directed the boarding team back toward the rail, looking for chances to jump back. Pirates were already swarming up from below decks, wielding short swords, billhooks, and hook spears. Numerically, they were at an absolute disadvantage. Even their weapons weren't much of an advantage—five pistols couldn't possibly suppress this many.
+"All hands, retreat!" Wang Ruixiang spun toward the rail, directing his team back while searching desperately for a chance to jump. Pirates were already swarming up from below decks, a seething mass of short swords, billhooks, and hook spears. The numbers were hopeless—five pistols couldn't possibly suppress this many.
 
-"Throw Round One!" he yelled. The already-trained team members immediately pulled bamboo-shell grenades from their chest pockets and hurled them.
+"Throw Round One!" he shouted.
 
-Round One was the Mechanical Department's bamboo-shell grenade—black powder and porcelain shards packed inside. Its power was limited, but it was perfect for the cramped spaces of ships. Explosions and screams merged. Crew on *Fishing-1*'s deck, platforms, and crossbow positions opened fire with rifles and pistols, instantly suppressing the surging pirates. Seizing the moment, Wang Ruixiang's team scrambled back aboard. Collapsing on the deck, it had been under one minute—but it felt like they'd circled the gates of Hell. *Fishing-1* now looked terrifying—its steel plating was pockmarked with dents; all the glass facing the boats was shattered or cracked.
+His well-drilled team members yanked bamboo-shell grenades from their chest pockets and hurled them in unison. Round One was the Mechanical Department's improvised fragmentation device—black powder and porcelain shards packed into bamboo casings. Limited in power, but devastating in the cramped confines of a ship. Explosions and screams merged into a single cacophony. From *Fishing-1*'s deck, platforms, and crossbow positions, rifles and pistols opened up simultaneously, instantly pinning down the surging pirates.
+
+Wang Ruixiang seized the moment. His team scrambled back aboard and collapsed onto the deck, gasping. It had been less than a minute—but it felt like they'd walked to the gates of Hell and back. *Fishing-1* now looked terrifying: its steel plating was pockmarked with fresh dents, and every pane of glass facing the enemy boats was shattered or spiderwebbed with cracks.
 
 "Full astern!"
 
-Chen Haiyang, seeing the last team member climb aboard, issued the order. The instant thrust increase made the bow dip sharply, the stern foaming—*Fishing-1* rapidly reversed. The three boats were already enveloped in white gunpowder smoke. Smoke flickered with fire; cannon thunder rumbled.
+Chen Haiyang had watched the last team member climb aboard before issuing the order. The sudden thrust made the bow dip sharply as the stern churned white foam—*Fishing-1* surged backward. The three enemy boats were already wreathed in gunpowder smoke, flashes of fire flickering through the haze as cannon thunder rolled across the water.
 
-Dense pellets striking the deckhouse sounded like hail on car roofs.
+Dense pellets struck the deckhouse like hail hammering a car roof.
 
-"Away from windows! Take cover!" Chen Haiyang shouted into the mic—fishing boats lacked armored shutters. He struggled to see through the cracked glass. Then—"Boom—boom—"—the boats fired again. The deckhouse was hit; everyone jolted. A large stone dented the steel plating and shattered into pieces.
+"Away from windows! Take cover!" Chen Haiyang barked into the mic. These fishing boats had no armored shutters. He squinted through the cracked glass, struggling to see. Then—*boom, boom*—the boats fired again. The deckhouse shook as everyone jolted. A large stone struck the steel plating, denting it deeply before shattering into fragments.
 
-"They were fishing for us!" Li Di was pale, already half-crouched under the control panel.
+"They were fishing for us!" Li Di's face had gone pale. He was already half-crouched beneath the control panel.
 
-Chen Haiyang shook his head—no time to talk. Clearly, the enemies understood their advantage: speed and maneuverability. This trap had aimed to cripple them at closest range with one volley. But they'd underestimated the steel hull's protection.
+Chen Haiyang shook his head—no time for conversation. The enemy's strategy was clear enough. They understood their own advantages: speed and maneuverability. This trap had been designed to cripple *Fishing-1* at point-blank range with a single devastating volley. What they had underestimated was the protection offered by a steel hull.
 
-The smoke slightly cleared. Two of the other boats were approaching *Fishing-1* under eight oars, moving very fast. Unlike typical hard-sail single-oar boats. Their decks were packed with murderous pirates—many holding torches. Obviously, they were planning a three-boat pincer attack.
+The smoke began to clear. Two of the remaining boats were bearing down on *Fishing-1* under eight oars each, moving with startling speed—nothing like typical hard-sail single-oar vessels. Their decks bristled with armed pirates, many clutching torches. Their intention was obvious: a three-boat pincer attack.
 
-*Fishing-1*'s fore and aft Ballistae fired simultaneously. At this close range, both hit. The decks smoked with popping firecrackers, causing commotion—but the advance didn't stop. Round Two was tear gas: besides minimal black powder for the burst, it contained camphor powder and pepper powder. Made for maritime patrol security missions. Minimal lethality.
+*Fishing-1*'s fore and aft Ballistae fired simultaneously. At this range, both shots struck home. The enemy decks erupted with popping sounds like firecrackers, causing momentary chaos—but the advance didn't stop. Round Two was tear gas: minimal black powder for the burst, mixed with camphor and pepper powder. Originally designed for maritime patrol security missions. Minimal lethality.
 
-"Hard port, full ahead." By now, *Fishing-1* had reversed forty to fifty meters. Chen Haiyang didn't know the enemy cannons' capabilities—for safety, he decided to open the distance, avoid the three-boat encirclement, then formulate a strategy.
+"Hard to port, full ahead." By now, *Fishing-1* had reversed forty to fifty meters. Chen Haiyang had no idea what the enemy cannons were truly capable of—better to open the distance, slip the three-boat encirclement, and formulate a proper strategy.
 
-The engine roar intensified. *Fishing-1* elegantly circled in a half arc, easily escaping the pincer. Now they were broadside to broadside with Boat One—both sides maximizing their firepower. Chen Haiyang carefully maintained a two hundred meter distance. Based on the Industrial Department's test firing of captured weapons, this era's small and medium cannons rarely exceeded that effective range.
+The engine roar intensified. *Fishing-1* carved an elegant half-arc through the water, easily escaping the closing trap. Now they ran broadside to broadside with Boat One—both vessels presenting maximum firepower. Chen Haiyang carefully maintained two hundred meters of separation. According to the Industrial Department's test firings of captured weapons, small and medium cannons of this era rarely exceeded that effective range.
 
-"Boom! Boom! Boom! Boom!" Boat One's broadside flashed continuously. The sea splashed with various water spouts—the nearest splash was twenty meters away. His confidence grew.
+*Boom! Boom! Boom! Boom!* Boat One's broadside erupted in continuous flashes. Water spouts of varying heights splashed across the sea—the nearest impact a full twenty meters away. Chen Haiyang's confidence grew.
 
-He didn't want to use the Ballistae—reloading was too slow. Two people cranking levers took a full minute to reset.
+He didn't want to rely on the Ballistae. Reloading was far too slow—two people cranking the lever mechanism needed a full minute to reset.
 
 "Port-side rifles—free fire!"
 
-The already enraged crew immediately triggered maximum speed. On my turf—fishing for us? Outrageous! A dozen SKS-D rifles with twenty-round magazines sent dense bullets sweeping like monsoon rain from bow to stern. People, planks, sails, ropes... everything was shredded under the 7.62mm M43 rounds. When Chen Haiyang ordered cease fire, Boat One was completely paralyzed—drifting silently, smoking.
+The crew needed no encouragement. They were already furious. On their own turf—ambushed like fish in a net? Outrageous. A dozen SKS-D rifles with twenty-round magazines sent a wall of bullets sweeping across Boat One from bow to stern. People, planks, sails, ropes—everything disintegrated under the 7.62mm M43 rounds. By the time Chen Haiyang ordered cease fire, Boat One was completely paralyzed—drifting silently, wreathed in smoke.
 
 "Report damage!"
 
-"Forward crossbow: three wounded, one serious. No life danger."
+"Forward crossbow: three wounded, one serious. No life-threatening injuries."
 
-"Aft crossbow: one light wound."
+"Aft crossbow: one minor wound."
 
-"Deck: three light wounds."
+"Deck: three minor wounds."
 
-Damage was minor. The Ballista's bulletproof shields and steel parapet had protected the gunners. Honestly, the enemy fire was pathetically weak. The projectiles scattered across the deck included iron shards, nails, stones, and porcelain fragments...
+The damage was trivial. The Ballistae's bulletproof shields and steel parapets had protected the gunners well. Honestly, the enemy fire was pathetically weak. The projectiles scattered across the deck included iron shards, nails, stones, and porcelain fragments—a scattershot arsenal that looked fearsome but lacked punch against steel.
 
-"Notify Navy HQ—send a ship to secure Boat One!" Since the wounded weren't critical, Chen Haiyang ordered pursuit of the remaining two boats.
+"Notify Navy HQ—send a ship to secure Boat One!" Since no wounds were critical, Chen Haiyang ordered pursuit of the remaining two boats.
 
-The other two boats—seeing *Fishing-1* speed away from their pincer at high speed—had already turned and were fleeing seaward. Oars and sails at maximum. But wind and muscle couldn't outrun machine power. The diesel roared. *Fishing-1* sliced through the waves, rapidly closing to two hundred meters. Desperately, the enemies fired their stern guns—all fell far from *Fishing-1*.
+The other two vessels had already turned tail. The moment they saw *Fishing-1* burst free from their pincer at impossible speed, they had fled seaward with oars and sails straining at maximum. But wind and muscle could never outrun machine power. The diesel roared. *Fishing-1* sliced through the waves, rapidly closing to two hundred meters. The desperate enemy fired their stern guns—all shots fell far short.
 
-"Sink the Yoshino!" Li Di shouted excitedly on the bridge.
+"Sink the Yoshino!" Li Di shouted excitedly from the bridge.
 
-Nobody heeded his enthusiasm. *Fishing-1* was just a fishing boat—it had no underwater ram. Not worth the risk.
+Nobody paid attention to his enthusiasm. *Fishing-1* was just a fishing boat—it had no underwater ram. Ramming wasn't worth the risk.
 
-*Fishing-1* continuously launched incendiary projectiles from its Ballistae—tar balls. A stone core coated with thick straw and wood-tar paste, wrapped in straw sacking. When lit and launched, they left black smoke trails in the sky—easy for aiming correction.
+Instead, *Fishing-1* continuously launched incendiary projectiles from its Ballistae—tar balls. Each consisted of a stone core coated with thick straw and wood-tar paste, wrapped in sacking. When lit and launched, they left black smoke trails arcing across the sky—perfect for aiming corrections.
 
-The bridge continuously reported wind direction, speed, distance, and ship speed. The gunnery officer frantically calculated with a slide rule, then announced the Ballista firing angles. Imprecise ballistics calculation still showed immense value. After six shots, the seventh correction hit the fleeing Boat Two. Its sails caught fire.
+The bridge called out a steady stream of data: wind direction, speed, distance, ship velocity. The gunnery officer worked frantically with a slide rule, then announced the Ballista firing angles. The ballistics calculations were imprecise, but their value was immense. After six ranging shots, the seventh correction struck the fleeing Boat Two squarely. Its sails caught fire.
 
-The ship slowed. The distance closed. Tar balls became more accurate. Even the aft-deck Ballista joined in with high-angle over-shooting. Momentarily spectacular—smoke trails wove aerial nets; the net's bottom was Boat Two, constantly struck by tar balls. The fire intensified. Finally—probably a powder explosion—the ship was torn apart with a roar.
+The ship slowed. The distance closed. The tar balls grew more accurate. Even the aft-deck Ballista joined in with high-angle lob shots. For a brief, spectacular moment, smoke trails wove an aerial net across the sky—and at the bottom of that net was Boat Two, constantly struck by burning tar balls. The fire intensified until, with a thunderous roar—probably a powder magazine explosion—the ship was torn apart.
 
 "Signal Boat Three: drop sails, surrender."
 
-"Understood!" Li Di immediately swapped the recording tape. Surrender demands were standard: drop weapons, raise a white flag.
+"Understood!" Li Di immediately swapped the recording tape. The surrender demands were standard: drop weapons, raise a white flag.
 
-But Boat Three clearly wasn't surrendering. While they'd dealt with Boats One and Two, Boat Three had escaped nearly a kilometer. Through eight-times binoculars, they could see extra oars had been added aft; people were frantically jettisoning debris overboard.
+But Boat Three clearly had no intention of surrendering. While *Fishing-1* had dealt with its companions, Boat Three had escaped nearly a kilometer. Through eight-power binoculars, extra oars could be seen rigged aft; crewmen were frantically jettisoning debris overboard to lighten the vessel.
 
-"Destroy them!"
+"Destroy them."
 
-Though unfortunate to miss prisoners, safely ending the battle was paramount.
+It was unfortunate to lose potential prisoners, but ending the battle safely was paramount.
 
-*Fishing-1* again accelerated to two hundred meters, turned broadside toward the fleeing Boat Three—letting both Ballistae achieve maximum effect.
+*Fishing-1* accelerated again, closed to two hundred meters, and turned broadside toward the fleeing Boat Three—letting both Ballistae achieve maximum effect.
 
-Ten minutes later, Boat Three had become a giant torch. The powder had probably already been jettisoned—no explosion. Through binoculars, desperate pirates could be seen jumping overboard.
+Ten minutes later, Boat Three had become a giant torch drifting on the waves. The powder had probably already been jettisoned—there was no explosion. Through binoculars, desperate pirates could be seen leaping overboard into the sea.
 
 "Recover prisoners."
 
-Fifteen prisoners were fished out. Those wounded too badly to climb aboard were left to fate. Those swimming shoreward were systematically headshot by rifles—no mercy for enemies.
+Fifteen were fished out of the water. Those too badly wounded to climb aboard were left to their fate. Those attempting to swim toward shore were systematically picked off by rifle fire—no mercy for enemies.
 
-This historically named "First Lingao Point Naval Battle" had erupted with the transmigration Navy completely unprepared. The battle had lasted nearly one hour. The enemy's experience and cunning were fully displayed; their battle preparation had been thorough. Despite the hasty response, the transmigration Navy's excellent training and massive technological advantage achieved total victory.
+The engagement that would come to be known as the "First Lingao Point Naval Battle" had erupted with the transmigration Navy completely unprepared. The battle lasted nearly one hour. The enemy's experience and cunning were on full display; their ambush had been meticulously prepared. Despite the hasty response, the transmigration Navy's excellent training and overwhelming technological advantage carried them to total victory.
 
-Boat One, towed back by *Fishing-2*, contained only three survivors. Many had hidden below decks, thinking the thick planking would protect them. All were indiscriminately shot or had bled to death. Inspectors reported: blood had flowed from the second deck down to the bilge.
+Boat One, towed back by *Fishing-2*, contained only three survivors. Many pirates had hidden below decks, thinking the thick planking would protect them. All had been riddled with bullets or bled to death. The inspectors' report was grim: blood had flowed from the second deck all the way down to the bilge.
 
-Ship photos quickly received an Intelligence response: this was a common Ming-era Guangdong "double mast fast ship"—a Guangzhou type used for fishing and coastal cargo. Well made and suitable for the open sea, it was familiar to European and Southeast Asian traders. Measurements: 27.5 meters overall length, 21 meters waterline length, 6 meters beam. These dimensions suited anything—including piracy.
+Photographs of the captured vessel quickly received a response from Intelligence: this was a common Ming-era Guangdong "double mast fast ship"—a Guangzhou-type vessel used for fishing and coastal cargo. Well-constructed and suitable for open sea conditions, it was familiar to both European and Southeast Asian traders. Measurements: 27.5 meters overall length, 21 meters waterline length, 6 meters beam. Dimensions that suited almost any purpose—including piracy.
 
 **(End of Chapter)**

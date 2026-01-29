@@ -1,74 +1,74 @@
 # Chapter 144: Casting Cannons (Part 1)
 
-"Artillery Production Leadership Group's First Meeting—commence!"
+"The Artillery Production Leadership Group's first meeting is now in session!"
 
-In the Mechanical Plant's crude but spacious office, a blackboard was erected. Weapon enthusiasts had gathered around Mechanical Group head Zhan Wuya. The atmosphere was extremely heated; everyone fervently debated which cannon type to produce.
+The Mechanical Plant's office was crude but spacious, dominated by a blackboard that had been erected at one end. Weapon enthusiasts had gathered around Zhan Wuya, head of the Mechanical Group, and the atmosphere crackled with fervent debate over which type of cannon they should manufacture.
 
-"First, let me introduce attendees." Zhan Wuya introduced everyone. Mechanical Group's core members—Wang Luobin, Jiang Ye, Xiao Bailang—went without saying. Also present were some weapon enthusiasts who didn't necessarily understand machinery: including Zhang Bailin, who constantly said "cannons, more cannons" and repeatedly self-proclaimed himself "Artillery General"; Wang Ruixiang, who loved wielding axes; Li Yunxing, who'd designed the mechanical crossbow structures and supervised on-site construction; Bai Yu with weapons design, engineering design, and armored vehicle command backgrounds... Finally, there was Lin Shenhe—possessing extensive hands-on experience.
+"Let me begin with introductions," Zhan Wuya said. The core members of the Mechanical Group needed no explanation—Wang Luobin, Jiang Ye, and Xiao Bailang were all present. But they had also been joined by several weapon enthusiasts whose expertise lay outside machinery: Zhang Bailin, who peppered every conversation with "cannons, more cannons" and had taken to calling himself the "Artillery General"; Wang Ruixiang, who harbored an abiding love for axes; Li Yunxing, who had designed the mechanical crossbow structures and supervised their construction on-site; Bai Yu, whose background spanned weapons design, engineering, and armored vehicle command. Finally, there was Lin Shenhe, who brought extensive hands-on manufacturing experience to the table.
 
-This meeting's purpose wasn't production assignment—but determining the technical roadmap. It was properly called a "Technical Roadmap Seminar."
+The meeting's purpose was not to assign production tasks, but to determine the technical roadmap—a "Technical Roadmap Seminar," to use the proper term.
 
-"First—don't consider whether a twelve-pounder mountain howitzer or Type-92 infantry gun is better. Discuss from practical and manufacturing perspectives." Zhan Wuya set the discussion parameters.
+"First, let's set aside the question of whether a twelve-pounder mountain howitzer or a Type-92 infantry gun would be better," Zhan Wuya said, establishing the parameters for discussion. "We need to examine this from practical and manufacturing perspectives."
 
-From the transmigrators' machining capabilities, their processing level exceeded every civilization in this world. Now with steel available, manufacturing simple steel rifled breechloaders presented no major technical difficulties. Granted, recoil guns had spring bottlenecks—but carriage-recoil guns were no problem.
+In terms of machining capabilities, the transmigrators' processing level exceeded that of every civilization in this world. Now that steel was available, manufacturing simple rifled breechloaders presented no major technical difficulties. Recoil guns did face spring-related bottlenecks, but carriage-recoil guns posed no such problems.
 
-Even mid-nineteenth-century industrial levels could manufacture fifteen-inch cannons. Steel wasn't even needed—many super-caliber coastal guns were cast-iron. The travelers had no ironclad cruisers to fight—they needn't build such monstrosities.
+Even mid-nineteenth-century industrial levels had proven capable of manufacturing fifteen-inch cannons. Steel wasn't strictly necessary—many super-caliber coastal guns had been cast from iron. And since the travelers had no ironclad cruisers to contend with, they had no need to build such monstrosities.
 
-What did transmigrators need? Per staff recommendations: primarily equipping naval ships and gun emplacements.
+What did the transmigrators actually need? According to staff recommendations, their priority was equipping naval vessels and gun emplacements.
 
-"Rifled breechloaders, naturally!" Li Yunxing spoke first. "The advantages are too many."
+"Rifled breechloaders, obviously," Li Yunxing declared. "The advantages are too numerous to ignore."
 
-Following normal thinking, cannon range should be longer the better. This raised a question: modern cannons' increasing range was built on modern observation and fire-control systems. The travelers' sub-late-nineteenth-century industrial level couldn't achieve this. Even using twenty-first-century-brought equipment was only temporary.
+Following conventional thinking, a cannon's range should be as long as possible. But this raised a critical question: modern cannons' ever-increasing range was built upon modern observation and fire-control systems—technology the travelers, operating at a sub-late-nineteenth-century industrial level, simply could not replicate. Even the twenty-first-century equipment they had brought with them would only last so long.
 
-A twenty-four-pounder muzzle-loading heavy gun's effective range didn't exceed nine hundred meters. Ship-mounted—due to stability—effective range dropped at least half. British Royal Navy's eighteenth and nineteenth-century firing regulations specified twenty-four-pounder long guns' maximum range at four hundred yards. Relative to more common thirty-two-pounder large-caliber carronades, this was already considerable. Combat distances between opposing ships were often under one hundred meters.
+A twenty-four-pounder muzzle-loading heavy gun had an effective range of no more than nine hundred meters. Mount it on a ship, and stability issues cut that range by at least half. British Royal Navy firing regulations from the eighteenth and nineteenth centuries had specified that twenty-four-pounder long guns should have a maximum range of four hundred yards—already considerable compared to the more common thirty-two-pounder large-caliber carronades. In actual combat, opposing ships often closed to within a hundred meters of each other.
 
-Seventeenth-century cannons certainly wouldn't exceed this level. The travelers' naval rifled breechloaders aimed not for high power or long range—but rapid fire and weight reduction. Even if rifling increased range, it should be controlled under two thousand meters. Beyond this, on land there might be some value—but hitting moving point-targets at sea with the transmigrators' fire-control level became meaningless. Excessive range was pure waste.
+Seventeenth-century cannons certainly wouldn't exceed these limits. The travelers' naval rifled breechloaders should therefore aim not for high power or long range, but for rapid fire and reduced weight. Even if rifling increased effective range, they should cap it at two thousand meters. Beyond that distance, there might be some value in land engagements, but hitting moving point-targets at sea with the transmigrators' level of fire control was essentially futile. Excessive range was pure waste.
 
-Since range requirements weren't high, barrel length could be shortened, saving weight and manufacturing cost.
+Since range requirements weren't demanding, barrel length could be shortened, saving both weight and manufacturing costs.
 
-Another rifled breechloader advantage: rifled guns used pointed shells, not round balls. Pointed shells flew more stably than spherical balls. Their shape—being elongated—allowed rearward extension. Same caliber could adjust weight. Same-weight pointed shell versus round ball: the former's caliber was only approximately seventy percent of the latter. Cross-sectional area: only forty-nine percent. Meaning: same muzzle velocity, the pointed shell's impact energy concentrated on half the area—unit energy was twice the round ball's. Considering the pointed-cone's low drag—same-weight shell, the pointed shell's armor-piercing was three times or more that of the round ball.
+Rifled breechloaders offered another significant advantage: they used pointed shells rather than round balls. Pointed shells flew far more stably than spherical projectiles. Their elongated shape allowed for rearward extension, meaning that for any given caliber, the weight could be adjusted. When comparing a pointed shell to a round ball of the same weight, the former's caliber was only about seventy percent of the latter's. In cross-sectional area, that dropped to just forty-nine percent. The practical meaning was clear: at the same muzzle velocity, a pointed shell's impact energy was concentrated on half the area, doubling the unit energy compared to a round ball. Factor in the pointed cone's lower drag, and a pointed shell's armor-piercing capability was three times or more that of a round ball of the same weight.
 
-This meant: a twelve-pounder rifled breechloader with pointed shell (approximately seventy millimeter caliber)—using identical propellant and charge—would have effective range far exceeding a twelve-pound round ball, while armor-piercing equaled a twenty-four-pounder round-ball heavy gun!
+The implications were striking. A twelve-pounder rifled breechloader firing pointed shells—approximately seventy millimeters in caliber—using identical propellant and charge, would have an effective range far exceeding that of a twelve-pound round ball, while matching the armor-piercing capability of a twenty-four-pounder round-ball heavy gun.
 
-A seventy-millimeter rifled breechloader at sixteen-to-eighteen caliber length was very small—historically or modernly. Weight was only four hundred to five hundred kilograms—it could be mounted on three hundred-ton sailships. With recoil mechanisms—even one hundred fifty-ton small ships. Meaning: seventy-millimeter-armed medium sailships could fully confront British Royal Navy first-rate ships-of-the-line from the sail era's peak.
+A seventy-millimeter rifled breechloader with a caliber length of sixteen to eighteen was remarkably compact by any historical or modern standard. Weighing only four to five hundred kilograms, it could be mounted on three-hundred-ton sailing ships. Add recoil mechanisms, and even one-hundred-fifty-ton small vessels could carry them. Medium-sized sailing ships armed with seventy-millimeter guns would be capable of taking on British Royal Navy first-rate ships-of-the-line from the peak of the sail era.
 
-Considering the vastly higher firing rate versus twenty-four-pounder muzzle-loading cannons, plus effective range advantages—the result: large sail battleships would be helpless against it, possibly even getting outmatched.
+When you considered the vastly higher firing rate compared to twenty-four-pounder muzzle-loading cannons, plus the effective range advantages, the result was clear: large sail battleships would find themselves helpless against such weapons, possibly even outclassed entirely.
 
-Meaning: in early seventeenth-century, producing such small breechloaders was completely sufficient. Against any contemporary navy or pirates—overwhelming advantage was guaranteed.
+In the early seventeenth century, producing such small breechloaders would be completely sufficient. Against any contemporary navy or pirate fleet, overwhelming advantage was guaranteed.
 
-"Then let's just copy the Type-92 infantry gun?" Someone suggested after hearing the breechloader advantages. "Type-92 is seventy-five millimeter caliber, 2,800 meter maximum range—exactly matching the described performance. And Type-92 weighs only 210 kilograms—smaller than the estimated 500 kilograms."
+"So why not just copy the Type-92 infantry gun?" someone suggested after hearing about the breechloader's advantages. "The Type-92 has a seventy-five millimeter caliber and a maximum range of 2,800 meters—that matches the performance you described exactly. And the Type-92 weighs only 210 kilograms, far smaller than the estimated 500."
 
-"Type-92's problem is too-short caliber length—only six—causing low muzzle velocity. For naval guns, flatter trajectories are better. Type-92 is excellent for army use."
+"The Type-92's problem is its caliber length—it's only six, which means low muzzle velocity," came the response. "For naval guns, you want flatter trajectories. The Type-92 is excellent for army use, but not for our purposes."
 
-Wang Luobin proposed: naval guns could use Armstrong gun structure—relatively mature, reliable, yet simpler manufacturing. Compared to earlier breechloaders and muzzle-loading rifled guns, its feature was introducing screw breechblock and obturator to breechloaders. Removing the breechblock—Armstrong gun resembled through-bored muzzle-loaders. Barrel casting and machining was also similar.
+Wang Luobin proposed that naval guns could use the Armstrong gun structure, which was relatively mature and reliable while remaining simpler to manufacture. Compared to earlier breechloaders and muzzle-loading rifled guns, the Armstrong's distinguishing feature was its introduction of the screw breechblock and obturator. Remove the breechblock, and an Armstrong gun resembled a through-bored muzzle-loader. Barrel casting and machining were similarly straightforward.
 
-Armstrong's weakness: the early-type locking design was very complex, unstable, with high failure rate. The travelers naturally wouldn't blindly copy—they could adopt a screw breechblock. Technical requirements weren't too high—basically, if you could make screws, you could make this.
+The Armstrong's weakness lay in its early-type locking design, which was overly complex, unstable, and prone to high failure rates. The travelers naturally had no intention of copying it blindly—they could adopt a simple screw breechblock instead. The technical requirements weren't prohibitive; if you could manufacture screws, you could make this mechanism work.
 
-"Sounds simple," Xiao Bailang threw cold water. "But who actually knows how to make cannons? I think everyone's just read some books? Type-92—all made from ready-made seamless tubes. Where do we find such thick seamless tubes now?"
+"That sounds simple enough," Xiao Bailang said, throwing cold water on the enthusiasm, "but who here actually knows how to make cannons? I suspect everyone's just read some books. When we made the Type-92, we worked from ready-made seamless tubes. Where are we going to find tubes that thick now?"
 
-"Naturally casting is primary. Without large forging machines, deep-drilling requires specialized equipment." Lin Shenhe said. "I've actually cast cannons in America—though only smoothbores."
+"Casting is naturally the primary method," Lin Shenhe said. "Without large forging machines, deep-drilling requires specialized equipment. I've actually cast cannons in America—though only smoothbores."
 
-Bai Yu said: "Actually, I'm not worried about whether cannons can be made—rather, the ammunition issues. The previous breechloader advantages explanations—I agree. But one point wasn't clarified: breechloader shells are harder to make than the breechers themselves. Even solid armor-piercing is manageable. But HE shells, shrapnel—how do we make them? Pointed shell bodies require metal-drawing processes—how do we solve that? Shell fuzes are also issues."
+Bai Yu spoke up. "Honestly, I'm not worried about whether we can make the cannons themselves. My concern is ammunition. I agree with everything that's been said about breechloader advantages, but one point hasn't been addressed: breechloader shells are harder to manufacture than the breechers themselves. Solid armor-piercing rounds are manageable, but what about HE shells and shrapnel? How do we make those? Pointed shell bodies require metal-drawing processes—how do we solve that? Shell fuzes are another problem entirely."
 
-Jiang Ye said: "Shell body manufacturing isn't problematic. Our equipment can make them."
+"Shell body manufacturing isn't a problem," Jiang Ye said. "Our equipment can handle it."
 
-"Just 'can make' doesn't mean batch production. Single-bullet production lines require thirty or more specialized machines. Shells need more. Industrial capacity clearly can't support such production lines."
+"Just 'can handle it' doesn't mean batch production," Bai Yu countered. "A single-bullet production line requires thirty or more specialized machines. Shells require even more. Our industrial capacity clearly can't support such production lines."
 
-"Correct." Zhan Wuya acknowledged. "Also, materials might not pass." Shell bodies—whether cold-drawn or hot-drawn—required specialized round bar stock, plus specialized equipment. Not that the Industrial Department couldn't do it—but it needed entire industrial system support. Otherwise, costs would be unimaginably high.
+"Correct." Zhan Wuya nodded. "And materials might not pass muster either." Shell bodies—whether cold-drawn or hot-drawn—required specialized round bar stock and specialized equipment. It wasn't that the Industrial Department couldn't manage it, but it would need the support of an entire industrial system. Without that, costs would be unimaginably high.
 
-"No—old-style pointed shells weren't that complex." Lin Shenhe said. "Early breechloader shell bodies were cast-iron, lead-wrapped, with simple impact fuzes, black-powder-filled, black-powder bags as propellant, no cartridges, no primers. Firing still used igniters. Most pre-1890 shells belonged to this type. These shells wouldn't work for Type-92—but for Armstrong guns, absolutely fine."
+"No, old-style pointed shells weren't that complex," Lin Shenhe said. "Early breechloader shell bodies were cast-iron, lead-wrapped, with simple impact fuzes, black-powder fills, and black-powder bags as propellant. No cartridges, no primers. Firing still relied on igniters. Most pre-1890 shells belonged to this type. They wouldn't work for the Type-92, but for Armstrong guns, they'd be perfectly suitable."
 
-Rifled cannon shells needed lead-wrapping to embed shells into rifling—cast-iron or steel was too hard, severely damaging rifling. Even modern shells used steel bodies (diameter smaller than rifling inner diameter) with copper driving bands (diameter slightly larger, engaging rifling).
+Rifled cannon shells required lead-wrapping to embed shells into the rifling—cast-iron or steel was too hard and would severely damage the grooves. Even modern shells used steel bodies with diameters smaller than the rifling's inner diameter, fitted with copper driving bands slightly larger than the bore to engage the rifling.
 
-Wang Luobin said: "But lead-wrapping has issues. I recall Armstrong guns being decommissioned after brief service—Britain returning to muzzle-loading rifled guns—partly because firing Armstrong guns caused hot-dipped lead and iron's poor adhesion, tearing off lead fragments that scattered at close range, injuring friendly soldiers."
+"But lead-wrapping has issues," Wang Luobin said. "I recall Armstrong guns being decommissioned after only brief service, with Britain returning to muzzle-loading rifled guns. Part of the reason was that firing Armstrong guns caused hot-dipped lead's poor adhesion to iron, tearing off lead fragments that scattered at close range and injured friendly soldiers."
 
-"I don't think that's especially serious." Lin Shenhe said. "Mechanical Department people can surely devise solutions."
+"I don't think that's an especially serious problem," Lin Shenhe replied. "The Mechanical Department people can surely devise solutions."
 
-"Also, I personally think smoothbores can also be made." Lin Shenhe added.
+He paused, then added, "Also, I personally think we should make smoothbores as well."
 
-Smoothbores' simpler processes had lower material requirements. If steel was insufficient—they could directly use cast-iron. Early Armstrong-type breechloaders and smoothbores had nearly identical casting processes. Besides Lin Shenhe, nobody had cannon-casting experience. Using simpler smoothbores to practice, familiarizing themselves with casting processes, was a good choice.
+Smoothbores had simpler manufacturing processes and lower material requirements. If steel proved insufficient, they could use cast-iron directly. Early Armstrong-type breechloaders and smoothbores had nearly identical casting processes. Besides Lin Shenhe, nobody present had cannon-casting experience. Using simpler smoothbores to practice and familiarize themselves with casting processes seemed a wise choice.
 
-"I suggest the Commercial Department add smoothbores to the export catalog. The Portuguese are already Ming's arms merchants—we can't let them take all the silver!"
+"I suggest the Commercial Department add smoothbores to the export catalog," Lin Shenhe said. "The Portuguese are already serving as arms merchants for Ming—we can't let them take all the silver."
 
 **Note:** This chapter's seventeenth-century rifled cannon casting commentary comes entirely from SANJYSAN on SB-forum. Armstrong gun explanations provided by Wang Luobin himself.
 

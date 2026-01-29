@@ -1,83 +1,83 @@
 # Chapter 88: New Farm (Part 2)
 
-"Your stamina is really well-maintained."
+"Your stamina is remarkably well-maintained."
 
 "You make me sound ancient—I'm only thirty!"
 
 "Huh?"
 
-"This is what happens when you work at the grassroots long enough." Yang Baogui's smile was sunny. "Let's walk together." He called out: "Beibei, go! Bring Ukraine back!" At his shout, a dog sprinted off and herded a large white pig, which had been trying to gnaw tree bark, back to the road.
+"This is what years of grassroots work does to a man." Yang Baogui flashed his sunny smile. "Walk with me." He whistled sharply and called out: "Beibei, go! Bring Ukraine back!" At his command, a dog shot off like an arrow and expertly herded a large white pig—which had been attempting to gnaw the bark off a roadside tree—back onto the path.
 
-"It's called Beibei?"
+"The dog's name is Beibei?"
 
-"That's right—six in total: 'Beibei,' 'Jingjing,' 'Huanhuan,' 'Yingying,' 'Nini.'"
+"That's right. I've got six of them: Beibei, Jingjing, Huanhuan, Yingying, Nini—"
 
-"What's the sixth?" Wu Nanhai, infected by his strange humor, was eager to learn.
+"And the sixth?" Wu Nanhai found himself caught up in Yang Baogui's peculiar sense of humor.
 
-"Aoyun—Olympics," Yang Baogui said with a straight face, then yelled: "Aoyun!" A quietly walking dog suddenly bounded to his feet, circling joyfully. He contentedly stroked its neck fur.
+"Aoyun—Olympics," Yang Baogui replied with a perfectly straight face. He shouted the name, and a dog that had been padding along quietly suddenly bounded to his feet, circling him with pure joy. Yang Baogui reached down to stroke its neck, clearly pleased with himself.
 
 "You really know how to train dogs."
 
-"It's my specialty—but not my profession. Just for fun." Yang Baogui cracked the whip, snapping it sharply. "I can also drive wagons. I learned from farmers in the countryside. But there aren't any here. I went to the Industrial Group and asked them to make some rubber-wheeled wagons; hitch our captured Yunnan ponies to them, and a two-horse team could pull a thousand *jin* easily. These people hemmed and hawed about how such carts are backward—they're 'working hard' to develop some four-wheeled farm cart. It's all nonsense—can small horses even pull those?"
+"It's a specialty of mine—though not my profession. Just something I do for fun." He cracked his whip, the sound snapping through the air. "I can drive wagons too. Learned that from farmers back when I was working the countryside. No wagons here though, so I went to the Industrial Group and asked them to build some rubber-wheeled ones. Hitch our captured Yunnan ponies to them, and a two-horse team could pull a thousand *jin* without breaking a sweat. But those people hemmed and hawed about how such carts are 'backward'—they're too busy 'working hard' on developing some four-wheeled farm cart." He snorted. "Nonsense. Can small horses even pull those?"
 
-"Tieling draft horses could definitely pull them." Wu Nanhai eyed two especially tall, robust heavy horses in the column. These were the best draft horses bred in China since 1949, carrying bloodlines from Europe's finest cart and riding horses. Their maximum pulling force was 450 kg. One horse could pull a 1,000-kg loaded double-rubber-wheeled wagon.
+"Tieling draft horses certainly could." Wu Nanhai's gaze settled on two especially tall, robust animals in the column—heavy horses with powerful builds. These were among the finest draft horses bred in China since 1949, their bloodlines tracing back to Europe's premier cart and riding stock. Their maximum pulling force reached 450 kilograms; a single horse could haul a thousand-kilogram load on a double-rubber-wheeled wagon.
 
-"They could, but these two must be kept as studs—they shouldn't work too hard. Besides, Tieling draft horses have actually deteriorated significantly." *(Note: Tieling draft horse breeding stopped in the 1990s; only a few degraded studs now exist. The breed will soon disappear.)* Yang Baogui sighed. "Nanhai, honestly, I'm very worried about our Agriculture Group."
+"They could," Yang Baogui conceded, "but these two must be kept as studs—we can't work them too hard. Besides, Tieling draft horses have actually deteriorated significantly over the years." He let out a sigh. *(Note: Tieling draft horse breeding stopped in the 1990s; only a few degraded studs now exist. The breed will soon disappear.)* "Nanhai, honestly, I'm very worried about our Agriculture Group."
 
-"Mm, I also sense some problems, but there are so many threads—where to even start?" He imitated Yang Baogui, waving a willow branch to herd livestock.
+"I sense the problems too," Wu Nanhai admitted, "but there are so many tangled threads—I hardly know where to begin." He imitated Yang Baogui's technique, waving a willow branch to keep the livestock moving.
 
-"Nanhai, you studied agriculture—surely you know what underlies modern agriculture's high yields?"
+"You studied agriculture. Surely you know what underlies modern agriculture's high yields?"
 
-"Pesticides, fertilizers, improved varieties, irrigation, GMOs, soil chemistry..." Wu Nanhai listed.
+"Pesticides, fertilizers, improved varieties, irrigation, GMOs, soil chemistry..." Wu Nanhai rattled off the list.
 
-"Can that model be replicated here?"
+"And can that model be replicated here?"
 
-"Difficult. Conditions are too poor. Large-scale irrigation and promoting improved varieties are more realistic yield-boosting measures," Wu Nanhai pondered. "Fertilizer is somewhat manageable—once the Chemical Industry Group builds ammonia and sulfuric-acid plants. But pesticides are hard—that needs an organic chemical industry. I think without thirty or forty years of industrial buildup, it's impossible."
+Wu Nanhai considered the question carefully. "Difficult. Conditions are too poor. Large-scale irrigation and promoting improved seed varieties are probably our most realistic yield-boosting measures. Fertilizer is somewhat manageable—once the Chemical Industry Group builds their ammonia and sulfuric-acid plants, anyway. But pesticides are another matter entirely. That requires an organic chemical industry. Without thirty or forty years of industrial buildup, I don't see how it's possible."
 
-"No." Yang Baogui shook his head. "Those problems are superficial. The biggest issue is that modern society is a massive division-of-labor system—agriculture included. Under this system, our agricultural technicians' practical abilities have actually deteriorated—and farmers' too.
+"No." Yang Baogui shook his head firmly. "Those problems are superficial. The real issue cuts much deeper. Modern society operates as one massive division-of-labor system—and agriculture is no exception. Under that system, our agricultural technicians' practical abilities have actually atrophied. The farmers' too.
 
-"Before, farmers had to select and cultivate their own seeds. Now they just buy seeds directly. Agricultural technicians really only know which seeds to use, how to manage after sowing, when to apply which pesticides, what fertilizers...
+"Think about it. Before, farmers had to select and cultivate their own seeds. Now they simply buy them. Agricultural technicians really only know which seeds to use, how to manage crops after sowing, when to apply which pesticides, what fertilizers work best...
 
-"Here, there's no seed company, no pesticide factory, no veterinary drug factory, no agricultural machinery station... Everything must be done ourselves. We were all trained within this division-of-labor system—only knowing our own part. Modern agriculture is a complete chain, and we only have scattered links."
+"But here? There's no seed company. No pesticide factory. No veterinary drug facility. No agricultural machinery station. We have to do everything ourselves, and every one of us was trained within that division-of-labor system—each knowing only our own narrow piece. Modern agriculture is a complete chain, and all we have are scattered, disconnected links."
 
-He pointed at the dogs herding pigs. "Take those pigs—Georgia! Where are you going?!" Yang Baogui shouted, whipping a pig back onto the road. "Everyone expects these to start large-scale pig farming so we can eat meat every meal. Nobody knows how many vaccines a piglet gets from birth to market in modern pig farms, how much medication, how many disinfectants are used just for the pens. Even then, if a swine plague breaks out, they die in droves."
+He gestured toward the dogs herding pigs. "Take those pigs, for instance—Georgia! Where do you think you're going?!" Yang Baogui's whip cracked, driving a wayward pig back onto the road. "Everyone expects us to start large-scale pig farming so we can have meat at every meal. But nobody stops to think about how many vaccines a piglet receives from birth to slaughter in a modern operation. How much medication. How many disinfectants are used just for the pens. And even with all that, when swine plague breaks out, they still die in droves."
 
-Wu Nanhai grew worried. He had thought about these issues but never this deeply.
+Wu Nanhai felt a knot of worry tightening in his chest. He had considered these issues before, but never followed the thread this far.
 
-"Seems like we'll have to rebuild everything piece by piece." He looked at the carefree pigs grunting, foraging as they walked. "They have names too?"
+"Seems like we'll have to rebuild everything piece by piece," he said quietly. His eyes followed the carefree pigs grunting and foraging as they ambled along. "Do they have names too?"
 
-"Yes—all are breeding boars and sows. Names make them easier to remember."
+"Of course. They're all breeding stock—boars and sows. Names make them easier to remember."
 
 "What are they called?"
 
 "Ukraine, Big Bobo, Georgia, Russia—"
 
-"Ha! Russia must be that boar?" Wu Nanhai pointed at the largest, fiercest pig.
+"Ha!" Wu Nanhai pointed at the largest, most formidable pig in the group. "Russia must be that boar?"
 
 "No—that one's called Soviet Union."
 
-The two chatted as they walked. The ten-plus kilometers of simple road were well-maintained—dusty after vehicles passed, but pleasant for herding livestock. On one side was the rushing Wenlan River; on the banks, rice ears had ripened, but without the familiar rolling golden waves—agriculture here was quite backward. Wu Nanhai walked and sighed, thinking about how to turn everyone's knowledge into productivity, yet obstacles piled up before him.
+The two men chatted as they walked, and the kilometers passed easily. The simple road stretched more than ten kilometers, well-maintained despite raising clouds of dust whenever vehicles passed. It made for pleasant conditions when herding livestock. On one side flowed the rushing Wenlan River; along its banks, rice ears had ripened to gold, though without the familiar rolling waves of a modern harvest. Agriculture here remained quite backward. Wu Nanhai walked and sighed, his mind churning through ways to transform their collective knowledge into productivity—yet obstacles seemed to pile up faster than he could count them.
 
-The road was peaceful. Occasionally local people worked distant fields, but they were far away. Several watchtowers along the route provided great security for passing transmigrators. These originally rough wooden towers had been rebuilt as three-story brick-and-stone pillboxes with searchlights on top. Below, open ground was surrounded by deep trenches and barbed wire—if any attack happened, transmigrators and vehicles on the road could quickly shelter inside.
+The road was peaceful. Occasionally local people worked in distant fields, but they were too far away to matter. Several watchtowers punctuated the route, providing excellent security for passing transmigrators. What had originally been rough wooden towers had since been rebuilt as three-story brick-and-stone pillboxes, searchlights mounted on their roofs. Below each one, open ground was ringed by deep trenches and coils of barbed wire—if any attack occurred, transmigrators and vehicles on the road could quickly take shelter inside.
 
-The entire marching column took nearly three hours to reach the Bairren Rapids camp. All Agriculture Committee members awaited them—today was the Committee's official move-in day.
+The entire marching column took nearly three hours to reach the Bairren Rapids camp. All Agriculture Committee members stood waiting to receive them—today marked the Committee's official move-in day.
 
-Unlike departments already installed in the Committee Building compound, the Agriculture Committee was housed entirely in what became known as the "Nanhai Model Demonstration Farm." Wu Nanhai had learned in university that agriculture is not created sitting in offices writing plans and reports, but through every technician walking step by step through fields, fish ponds, and orchards. As an agricultural technician, you must live near farmland.
+Unlike departments already installed in the Committee Building compound downtown, the Agriculture Committee would be housed entirely at what had come to be known as the "Nanhai Model Demonstration Farm." Wu Nanhai had learned in university that agriculture is not created by people sitting in offices writing plans and reports. It is built through technicians walking step by step through fields, fish ponds, and orchards. If you were an agricultural technician, you lived near farmland. That was the only way.
 
-The entire farm compound was built with the brick kiln's newest red bricks, making it probably the grandest building complex in all of Bairren Fortress: offices, agricultural-tech labs, warehouses, machinery station, cellars, and neatly arranged granaries. By the river stood a water-powered mill; newly built animal pens were fragrant with fresh lumber. The only concrete structure was a row of pressure-type biogas digesters—processing waste, wastewater, and manure from residential and agricultural zones. The biogas supplied the cafeteria for cooking. When waste increased later, more biogas could generate electricity. Biogas slurry served as fertilizer or feed additive; the final residue was excellent fertilizer.
+The entire farm compound had been constructed with the brick kiln's newest red bricks, making it probably the grandest building complex in all of Bairren Fortress. There were offices, agricultural-tech labs, warehouses, a machinery station, cellars, and neatly arranged granaries. A water-powered mill stood by the river, and newly built animal pens still smelled fragrant with fresh lumber. The only concrete structure was a row of pressure-type biogas digesters designed to process waste, wastewater, and manure from both the residential and agricultural zones. The biogas they produced supplied the cafeteria for cooking, and once waste volumes increased, additional biogas could be used to generate electricity. The biogas slurry served double duty as fertilizer or feed additive; the final residue made excellent fertilizer as well.
 
-The original plan included a permanent glass greenhouse, but since the Industrial Sector had not yet manufactured glass, it was delayed for now. Fortunately, Hainan was subtropical; even during the Little Ice Age, the accumulated temperature was sufficient.
+The original plan had included a permanent glass greenhouse, but since the Industrial Sector had not yet begun manufacturing glass, that project was delayed. Fortunately, Hainan's subtropical climate meant that even during the Little Ice Age, accumulated temperatures remained sufficient for most purposes.
 
-"The land assigned as our test field—" Ye Yuming pointed to boundary stakes—"extends from here to the water mill by the river."
+"The land assigned as our test field—" Ye Yuming pointed to boundary stakes in the distance—"extends from here to the water mill by the river."
 
-From here to the river was over 100 meters, and the length was about 200 meters—an irregular long rectangle roughly twenty-plus modern *mu*. It was adequate for vegetable plots and test fields. A small portion was already leveled and planted with cabbage, greens, peppers, and tomatoes—some already harvestable. Cafeteria tables could become slightly more abundant.
+Wu Nanhai studied the terrain. From where they stood to the riverbank was over a hundred meters, with a length of perhaps two hundred meters—an irregular long rectangle roughly twenty-plus modern *mu* in area. Adequate for vegetable plots and test fields. A small portion had already been leveled and planted with cabbage, greens, peppers, and tomatoes, some of which were ready for harvest. The cafeteria tables would soon become slightly more abundant.
 
-But most land remained more stones than soil and still had tree stumps—it needed leveling, and probably soil brought in. He observed the riverbank height and high-water lines, estimating irrigation channels needed and whether to build flood dikes. Where to plant fruit trees, dig fish ponds, where to temporarily house tropical seedlings—all required consideration.
+But most of the land remained more stones than soil, still studded with tree stumps. It needed leveling, and probably imported topsoil as well. Wu Nanhai observed the riverbank height and traced the high-water lines, mentally calculating where irrigation channels would need to run and whether flood dikes should be built. Where to plant fruit trees and dig fish ponds, where to temporarily house tropical seedlings—all of it required careful consideration.
 
-The farm compound's space should not be wasted either—courtyard economy. Build a grape trellis over courtyard paths: half a *mu* of trellis could yield 1,000 *jin* of grapes without taking space, while providing shade. Plant some fruit trees behind buildings...
+The farm compound's space shouldn't be wasted either. Courtyard economy, he thought. Build a grape trellis over the courtyard paths: half a *mu* of trellis could yield a thousand *jin* of grapes without consuming any extra space, all while providing welcome shade. Plant fruit trees behind the buildings...
 
-He calculated happily. But with the labor shortage, he would need to ask Wu De for some local farmers to help—ideally hired as long-term workers. As for local agriculture conditions, it would be best to find a landlord to ask—but he had heard landlords and rich peasants had all been released. Too bad—such people had rich farming experience and understood rural social conditions better. But he could not speak Lingao dialect—he needed interpreters. Troublesome. Better to learn himself. At minimum, for future wife-taking and concubine-acquisition, he would need emotional communication. Start from "Ah, Oh, E"? But all that was for tomorrow—after walking for hours, he was exhausted.
+His mind raced happily through the calculations. But with the current labor shortage, he would need to ask Wu De for some local farmers to help—ideally hired as long-term workers. As for local agricultural conditions, it would be best to consult a landlord—though he had heard that all the landlords and rich peasants had been released. A pity, really. Such people possessed rich farming experience and understood rural social dynamics better than anyone. Unfortunately, he couldn't speak Lingao dialect, which meant he would need interpreters. Troublesome. Better to learn the language himself. At minimum, if he ever hoped to take a wife or acquire a concubine, he would need the ability to communicate emotionally. Start from the basics? But all of that was tomorrow's problem. After walking for hours, exhaustion had seeped into his bones.
 
-That day, he slept in the Agriculture Committee office. After so many days, finally having a roof overhead—sleeping indoors—felt incredibly happy. Apparently, happiness really did come from comparison.
+That night, he slept in the Agriculture Committee office. After so many days, finally having a roof overhead—sleeping indoors—felt like pure bliss. Apparently happiness really did come from comparison.
 
 **(End of Chapter)**

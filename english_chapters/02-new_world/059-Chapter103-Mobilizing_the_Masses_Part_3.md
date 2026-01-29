@@ -2,7 +2,9 @@
 
 Yet Xi Yazhou remained confident. "We'll handle government connections. Don't worry." Actually, he had long planned—trying to outwit the ancients would not work. Only force could break through.
 
-The salt villagers exchanged glances—clearly skeptical. Still, these short-haired Masters were not pushovers. Defeating hundreds of militia at Bairren Rapids—maybe they really could do it. Xi Yazhou was not anxious to prove anything. "If we reclaim salt-tax rights, can your hearts unite? Once we do, the Gou brothers definitely won't accept it—they'll come cause trouble—"
+The salt villagers exchanged glances—clearly skeptical. Still, these short-haired Masters were not pushovers. Defeating hundreds of militia at Bairren Rapids—maybe they really could do it. Xi Yazhou was not anxious to prove anything.
+
+"If we reclaim salt-tax rights, can your hearts unite? Once we do, the Gou brothers definitely won't accept it—they'll come cause trouble—"
 
 "Who's afraid of that?" Tan Chengqing flexed his shoulders decisively. "His handful of men—any village lad could handle three!"
 
@@ -28,9 +30,7 @@ Father and son calculated. "Over 2,000 *jin* daily. Recent weather's been good�
 
 Xi Yazhou thought: roughly one ton daily—substantial for manual labor, but for the chemistry departments, one ton would not cover a small chemical plant's daily raw-material consumption. Salt-making methods clearly had much room for improvement. But that was for later. Currently, salt as a commodity was needed to quickly exchange for grain and cloth.
 
-Lingao itself could not consume so much table salt—actually, most Hainan salt was exported to the mainland. They needed markets. No news yet from Xiao Zishan in Guangzhou. Even urgently notifying him about large salt supplies would be "distant water can't quench immediate thirst." He thought, then asked:
-
-"Do merchants who used to buy your salt still come?"
+Lingao itself could not consume so much table salt—actually, most Hainan salt was exported to the mainland. They needed markets. No news yet from Xiao Zishan in Guangzhou. Even urgently notifying him about large salt supplies would be "distant water can't quench immediate thirst." He thought, then asked, "Do merchants who used to buy your salt still come?"
 
 "Who'd dare!" Tan Guihuang said. "After Landlord Gou colluded with pirates and raided a Leizhou salt ship—killed all the merchants and crew—no one dares buy our salt anymore."
 
@@ -52,17 +52,15 @@ Tan Guihuang nodded, as if steeling himself. "Alright! I handled those salt merc
 
 "Okay! I'll handle this tomorrow." Tan Chengqing grew excited.
 
-"Good—now let me discuss the rescue." Xi Yazhou said. "Rescuing people isn't hard. But once we do, you'll have openly broken with the Gou family. Are you determined to fight to the end?" He deliberately added: "If not, you can use softer methods—gather 200 *yin* of salt first, then ransom them." This was a provocation.
+"Good—now let me discuss the rescue." Xi Yazhou's voice grew serious. "Rescuing people isn't hard. But once we do, you'll have openly broken with the Gou family. Are you determined to fight to the end?" He deliberately added, "If not, you can use softer methods—gather 200 *yin* of salt first, then ransom them." This was a provocation.
 
-Father and son looked at each other, then spoke in unison: "Let's fight! We've given an inch; they've taken a mile. If we don't bring them down, sooner or later this salt field and village will become Gou property!"
+Father and son looked at each other, then spoke in unison. "Let's fight! We've given an inch; they've taken a mile. If we don't bring them down, sooner or later this salt field and village will become Gou property!"
 
 "Good—then we'll arrange the rescue. Tomorrow, find me people familiar with the Gou household's situation."
 
 "Okay! We'll go tell the villagers and arrange things."
 
-The visitors disappeared into the night; the tent atmosphere grew lively. Everyone was pleased at the day's breakthrough.
-
-Xi Yazhou discussed more matters with everyone—deciding tomorrow to first ship grain from Bairren Fortress for relief, weapons too—the transmigrators could not use these captured arms anyway.
+The visitors disappeared into the night; the tent atmosphere grew lively. Everyone was pleased at the day's breakthrough. Xi Yazhou discussed more matters with everyone—deciding tomorrow to first ship grain from Bairren Fortress for relief, weapons too—the transmigrators could not use these captured arms anyway.
 
 ---
 
@@ -76,7 +74,7 @@ Outside Ge Hong Temple's ruined walls, curious children gathered—unlike the su
 
 "Then let's establish one," Xi Yazhou said. "How do land-reform teams work? Struggle against landlords, distribute land—and run night schools—"
 
-"Right!" Wang Luobin nodded excitedly. "I'd forgotten." He said somewhat embarrassedly: "I kept thinking of formal schools—buildings, dormitories, cafeterias, laboratories... So every time, I felt materials were still scarce—the timing wasn't ripe. Actually, teaching just needs one room and one blackboard!"
+"Right!" Wang Luobin nodded excitedly. "I'd forgotten." He said somewhat embarrassedly, "I kept thinking of formal schools—buildings, dormitories, cafeterias, laboratories... So every time, I felt materials were still scarce—the timing wasn't ripe. Actually, teaching just needs one room and one blackboard!"
 
 "Our thirty people can all teach children," Xi Yazhou said. "Otherwise, wouldn't everyone be bored to death at night?" Running night schools served education and gave everyone something to do in the tedious evenings—killing two birds with one stone.
 
@@ -88,19 +86,11 @@ The transmigrators' first construction task was still energy. For a small seasid
 
 He Ying and his team used primitive lever-and-pulley methods to hoist a heavy crate onto a stone platform. From the platform's appearance, it had once been a bell-and-drum tower, though the building had long since collapsed. Only thick rubble and soil covered the platform. He Ying wiped his sweat and measured the altitude—including this 5-meter-plus platform, the elevation above sea level was nearly 10 meters. The foundation was solid; the windward side open. The wind was strong—sweat dried quickly. He shivered involuntarily. This seemed a suitable spot.
 
-An hour later, a 2-meter-tall frame resembling a power-line tower had been erected.
-
-Two hours later, the frame had a head resembling an electric fan installed on top.
-
-Two and a half hours later, the blades were attached to the head.
-
-Below the frame sat a black box. A thick cable connected to the frame's "fan."
+An hour later, a 2-meter-tall frame resembling a power-line tower had been erected. Two hours later, the frame had a head resembling an electric fan installed on top. Two and a half hours later, the blades were attached to the head. Below the frame sat a black box. A thick cable connected to the frame's "fan."
 
 He Ying, foot braced on the frame, released the blade safety. The "fan" whooshed into rotation; the black box emitted a long beep. Clean Energy Facility #1 began operating.
 
-This wind turbine had been purchased ready-made. The blades were fiberglass; the generator was a small DC motor; the box below contained batteries. Actually, the generated power first charged the batteries, then supplied power—this stabilized the voltage. Output: only 400 watts.
-
-Four hundred watts, beyond lighting, could only run computers and such—sufficient for now. Per Energy Department planning, once the salt-field situation stabilized, a small thermal generator would be installed here—supposedly domestically produced. The Machinery Group was currently drawing boiler blueprints.
+This wind turbine had been purchased ready-made. The blades were fiberglass; the generator was a small DC motor; the box below contained batteries. Actually, the generated power first charged the batteries, then supplied power—this stabilized the voltage. Output: only 400 watts. Four hundred watts, beyond lighting, could only run computers and such—sufficient for now. Per Energy Department planning, once the salt-field situation stabilized, a small thermal generator would be installed here—supposedly domestically produced. The Machinery Group was currently drawing boiler blueprints.
 
 *This domestically produced generator better not cause trouble.* He Ying muttered to himself while installing—he personally would not be coming to install it. He had brought his own small generator, but it had been requisitioned by the Planning Committee upon landing. Because of that generator, he had become an Industrial Department Energy Group member.
 

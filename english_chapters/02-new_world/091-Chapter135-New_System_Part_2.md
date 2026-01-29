@@ -1,51 +1,47 @@
 # Chapter 135: New System (Part 2)
 
-The transmigrators decided to implement a completely different civil administration model in their fully controlled Bairren Production Teams One and Two—namely, China's 1960s–70s People's Commune system.
+For their fully controlled Bairren Production Teams One and Two, the transmigrators decided to implement a civil administration model radically different from anything the locals had ever known: China's People's Commune system from the 1960s and 70s.
 
-The People's Commune system had existed from 1958 to 1985—twenty-seven years total. Its most memorable impression: "big and public." However, the actually functioning people's communes followed the 1962 *Revised Draft of Rural People's Commune Work Regulations*—adopting three-tier ownership with production teams as the base, while maintaining the commune's "political-economic integration" structure.
+The People's Commune had existed from 1958 to 1985—twenty-seven years in total. Its most enduring impression was summed up in two words: "big and public." In practice, however, the actually functioning communes followed the 1962 *Revised Draft of Rural People's Commune Work Regulations*, which established three-tier ownership with production teams as the foundation while maintaining the commune's distinctive "political-economic integration" structure. Under this arrangement, people's communes served simultaneously as rural political units and production management entities. Commune secretaries managed not just party affairs but also industrial and agricultural production and all matters of civil administration.
 
-Under this system, people's communes were simultaneously rural political units and production management entities. Commune secretaries managed not just party affairs—but also industrial and agricultural production and civil administration. The negatives: communes over-managed, bureaucracies bloated, systems became rigid, distribution was too egalitarian, and members' production enthusiasm was low.
+The system had its drawbacks—communes tended to over-manage, bureaucracies bloated easily, rigid structures stifled initiative, distribution was too egalitarian, and members often lacked enthusiasm for production. Yet the positives were equally striking. Those twenty-seven years under the communes represented China's most tightly controlled rural period, one in which the old pattern of "government doesn't reach villages, clans and strongmen control the countryside" was largely eliminated. During an era of economic stagnation, backward productivity, and widespread illiteracy, the communes had concentrated forces to accomplish major tasks and maintain social stability. Rural primary healthcare, universal education, water conservancy projects, and mechanization all advanced significantly. It was precisely this power to concentrate resources and direct society from above that made the commune system so attractive to the transmigrators.
 
-The positives: those twenty-seven years under communes were China's most strictly controlled rural society period—"government doesn't reach villages, clans and strongmen control the countryside" was basically eliminated. In that era of economic stagnation, backward productivity, and low literacy—the communes concentrated forces for major tasks and stabilized social order. Rural primary healthcare, universal education, water conservancy, and mechanization all developed significantly. The commune system's power concentration and strong resource allocation capabilities were extremely attractive to the transmigrators.
+Still, some Committee members voiced concerns about agricultural efficiency. During the commune era, per-worker agricultural productivity had actually declined continuously. Would adopting this system lead them down the same path?
 
-Some Committee members worried about agricultural efficiency under this system: during the commune era, per-worker agricultural productivity had actually declined continuously. Would transmigrators adopting this system cause similar problems?
+"Personally, I don't think that will be an issue," Ma Qianzhu explained. "The commune's purpose here isn't agricultural production—it's civil administration. This system can effectively integrate administration, civil affairs, security, education, and military functions into a single social organization completely dependent on us."
 
-"Personally, I don't think it matters. This commune's intention isn't agricultural production—it's civil administration." Ma Qianzhu explained. "It can effectively integrate administration, civil affairs, security, education, and military—forming a social organization completely dependent on us."
+This new grassroots regime would fall administratively under the Committee's Internal Affairs Commission, with operational matters handled by the various professional departments.
 
-This new grassroots regime was administratively under the Committee's Internal Affairs Commission, and operationally under the various professional departments.
+The commune operated on a household registration system. Households formed the basic units, and even single men were required to establish separate households. All registered persons, regardless of age or gender, were designated "commune members," with those achieving worker status entitled to corresponding benefits per regulations.
 
-The commune used household registration. Households were the basic units—even single men had to establish separate households. All registered persons, regardless of age or gender, were called "commune members." Members achieving worker status enjoyed corresponding benefits per regulations.
+Each household received one private plot that could not be sold but could be inherited. What to grow was entirely the household head's decision. Crucially, plots were not allocated per capita but per household, with larger households receiving proportionally larger areas. A standard household of four persons served as the baseline coefficient of 1. Each additional person increased the coefficient by 0.1, capped at 1.5. The intent was clear: encourage family divisions and prevent the formation of sprawling multi-generational clans.
 
-Each household received one private plot. Plots could not be sold—only inherited. What to grow was entirely the household head's choice. Plots were not allocated per capita—only per household. Larger households received proportionally larger areas. A standard household (4 persons) equaled coefficient 1. Each additional person increased the coefficient by 0.1—capped at 1.5. The purpose: encourage family division and prevent multi-generational large families.
+The Committee had anticipated attempts at "fake divisions" to acquire more land, so regulations specified that family divisions with private plots were only permitted for married couples. Single men or women could establish household registrations but would not receive plots until they married.
 
-The Committee anticipated possible "fake divisions" to acquire more land. Regulations specified: family divisions with private plots were only permitted for married couples. Single men or women could establish household registrations—but could not receive plots until married.
+Members' housing was uniformly constructed by the transmigrators and sold to members under welfare policies, though each household could only take advantage of this once. Without permission from the Internal Affairs Commission, members could not build their own structures within transmigrator-controlled territory. Housing could be freely sold, gifted, or inherited—but only after full payment.
 
-Members' housing was uniformly constructed by transmigrators, then sold to members under welfare policies—but each household only enjoyed this once. Without Internal Affairs Commission permission—members could not self-build within transmigrator-controlled territory. Housing could be freely sold, gifted, or inherited—but only after full payment.
+Beyond their private plots, members received no additional land. Their basic income derived from three sources: produce from their private plots, work points earned from commune-dispatched labor, and whatever side income they could manage. Male members aged eighteen to fifty-five and female members aged eighteen to forty-five were classified as "full labor." Males aged thirteen to seventeen and fifty-six to sixty-five, and females aged thirteen to seventeen and forty-six to fifty-five, counted as "half labor." In principle, every half labor and full labor—unless recruited for specialized work, enlisted in the military, or attending school—was required to participate in commune-dispatched work and complete minimum attendance days. Beyond this minimum, any additional dispatched work counted as overtime, paid at 1.2 times the standard work points by the Committee's Labor Department.
 
-Members received no land beyond private plots. Basic income had three sources: first, private plot produce; second, work points from commune-dispatched labor; third, side income.
+Enterprises established by the transmigrators would preferentially recruit from among commune members. After becoming enterprise workers, members retained their status as commune members and remained administratively under commune management, but their labor management and wages became the enterprise's responsibility.
 
-Male members aged 18–55 and female members aged 18–45 were classified as "full labor." Males aged 13–17 and 56–65; females aged 13–17 and 46–55 were "half labor." In principle, every half labor and full labor—unless recruited, enlisted, or attending school—must participate in commune-dispatched work, completing minimum attendance days. Beyond this minimum, extra dispatched work counted as overtime—the Committee's Labor Department paid 1.2× work points.
+Commune administration followed a three-tier structure: Commune, Village, and Member Group. Member Groups formed the most basic unit, with every eight to ten households grouped together.
 
-Transmigrator-established enterprises would preferentially recruit from commune members. After becoming enterprise workers, members retained their member status—administratively under commune management. But labor management and wages were the enterprise's responsibility.
+At Bairren Fortress's bustling South Gate construction site, a modest wooden sign hung at the entrance to the first completed small courtyard: "Bairren Beach Commune." Wu De had been appointed Commune Director.
 
-Commune administration used three-tier management: Commune–Village–Member Group. Member Groups were the most basic unit—every eight to ten households formed a group.
+Lin Xing was named Deputy Director but did not immediately assume his duties. Instead, he and several others were sent to Salt Field Village to attend the first cadre-training session at Du Wen's newly established Peasant Training Institute. Before their departure, Wu De gathered them at the worksites and pointed toward a nearly complete tall building rising against the sky.
 
-At Bairren Fortress's busy South Gate construction site, a nondescript wooden sign hung at the first-completed small courtyard: "Bairren Beach Commune." Wu De served as Commune Director.
+"You'll live there eventually," he said.
 
-Lin Xing was appointed Deputy Director—but did not immediately assume duties. Instead, he and others were sent to Salt Field Village to attend Du Wen's first Peasant Training Institute cadre-training session. Before departure, Wu De gathered them at the worksites—pointing at a nearly complete tall building:
-
-"You'll live there eventually."
-
-Everyone was dumbstruck. After a moment, Lin Xing asked tremblingly: "Chief Wu—is this real?"
+Everyone stood dumbstruck. After a long moment, Lin Xing managed to ask, his voice trembling: "Chief Wu—is this real?"
 
 "Of course. We always keep our word."
 
-"How much to live—"
+"How much would it cost to live—"
 
-"Sixty taels silver. You workers get 10% off—fifty-four taels."
+"Sixty taels of silver. You workers get ten percent off—fifty-four taels."
 
-Hearing that payments could be spread over ten to twenty years—smiles became more apparent. Live first, pay later—such fortune was rare indeed.
+When they heard that payments could be spread over ten to twenty years, smiles began breaking across their faces. To live first and pay later—such fortune was rare indeed.
 
-Soon, news spread through the production teams. Ma Peng was among those visiting the worksites daily. Now he worked at the brick factory—digging and sifting earth. He and his coworkers no longer had short-hair guards' bayonets beside them—yet labor enthusiasm had reached unprecedented heights. They were adding bricks for their own homes. A completely different new life was about to unfold.
+Word soon spread through the production teams. Ma Peng was among those who visited the worksites daily, eager to see the progress. He now worked at the brick factory, digging and sifting earth alongside his coworkers. The short-haired guards with bayonets no longer stood beside them, yet labor enthusiasm had reached unprecedented heights. They were adding bricks for their own homes now. A completely different new life was about to unfold.
 
 **(End of Chapter)**

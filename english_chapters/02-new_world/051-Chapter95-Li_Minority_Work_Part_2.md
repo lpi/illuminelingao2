@@ -1,73 +1,73 @@
 # Chapter 95: Li Minority Work (Part 2)
 
-This strange party marched along the road to Lipan District. Eight Li carried salt for trade; the transmigrators were fully armed—they might encounter Ming troops or bandits, both equally apt to seize wealth on sight.
+The strange procession made its way along the road toward Lipan District. Eight Li porters carried salt for trade while the transmigrators marched fully armed—there was no telling whether they might encounter Ming troops or bandits along the way, and either would prove equally quick to seize wealth on sight.
 
-Travelers were already on the road. Seeing this odd procession approach, they all avoided it from a distance. Farmers in the fields were not disturbed—still busy with pre-harvest work, paddy water already drained, rice nearly ripe. The accompanying Agriculture staff estimated potential yields.
+The road was not empty. Travelers who spotted this peculiar column approaching gave it wide berth, though the farmers tending their fields paid little heed. They remained absorbed in their pre-harvest labors: draining paddy water, watching their rice approach ripeness. The Agriculture staff accompanying the group estimated potential yields as they walked.
 
-After walking less than an hour, the county seat appeared on the horizon. Two months ashore, transmigrators had already fought the Ming local government—but except for Military and Communications Groups' monitoring personnel, most were seeing Lingao's Ming administrative center for the first time. Previous tension had dissipated; city-wall militiamen had thinned; gates were open; people came and went—it was somewhat lively. At the gate, villagers sold vegetables, chickens, ducks, and firewood. A peaceful scene.
+After less than an hour's march, the county seat appeared on the horizon. Two months ashore and the transmigrators had already clashed with the local Ming government, yet except for the monitoring personnel from Military and Communications, most had never laid eyes on Lingao's Ming administrative center. The tension of earlier days had dissipated. Militiamen on the walls had thinned considerably, the gates stood open, and people came and went with an air of ordinary bustle. Villagers had set up near the gate to hawk vegetables, chickens, ducks, and bundles of firewood. A peaceful scene.
 
-Seeing their approach, the city walls seemed briefly tense. Team leader Lu Rong spotted an armored man watching from the wall. To avoid misunderstanding, the group did not approach the gate, passing at a distance. Farmers readying to flee, seeing them pass without incident, relaxed.
+Still, as their party drew near, a momentary ripple of tension passed over the walls. Team leader Lu Rong spotted an armored figure watching from above. To avoid any misunderstanding, they gave the gate a wide berth and passed at a distance. Farmers who had been readying to flee relaxed visibly when the strange procession moved on without incident.
 
-Per prisoners' accounts, their *dong* village was over 100 *li* from the county seat—one day's travel impossible. Overnight rest was required.
+According to their prisoners' accounts, their *dong* village lay more than a hundred *li* from the county seat—impossible to reach in a single day. They would need to stop overnight.
 
-"I didn't expect such desolation!" Mu Min exclaimed. Along the route, few fields existed—mostly vast grasslands with head-high weeds.
+"I didn't expect such desolation!" Mu Min exclaimed as they walked. The landscape offered few cultivated fields; instead, vast grasslands stretched away, choked with head-high weeds.
 
-"Lingao is itself a remote small county." Wen Desi was also in the party—though he had joined purely from curiosity and to unwind. After D-Day, daily meetings, documents, and drafts left him busier than before, with no time for his beloved outdoor activities. This was a chance to recover.
+"Lingao is itself a remote small county," Wen Desi replied. He had joined the party purely from curiosity and a desire to unwind. Since D-Day, an endless succession of meetings, documents, and drafts had consumed his every waking hour—far busier than life before—leaving no time for the outdoor activities he loved. This expedition was a chance to recover.
 
-As for safety—he saw no danger. Someone who never removed his stab-proof vest, kept pepper spray, and enjoyed carrying and wielding long folding knives and 1.2-meter Western hand-and-a-half swords—whether Chinese pirates, Ming soldiers, rural militia, or bandits—all were trash to him. Plus, his twenty-odd companions were armed to the teeth, minus steel helmets—for mobility, they wore rattan safety hats, the Industrial Department's first successful batch after a month's research. Originally intended colonial-style, but the products looked somewhat mismatched. Still, with leather suspension installed, they felt decent; rear flaps added sunshade cloth, colloquially "butt-curtains."
+As for safety, he saw no danger whatsoever. A man who never removed his stab-proof vest, kept pepper spray close at hand, and delighted in carrying and wielding everything from long folding knives to 1.2-meter Western hand-and-a-half swords—Chinese pirates, Ming soldiers, rural militia, bandits—they were all mere trash to him. Moreover, his twenty-odd companions bristled with weapons. In place of steel helmets, which would have hindered mobility, they wore rattan safety hats—the Industrial Department's first successful batch after a month of research. Originally intended to emulate colonial-style pith helmets, the results looked somewhat mismatched. Still, with leather suspension systems installed, they felt decent enough, and rear flaps had been added with sunshade cloth—colloquially dubbed "butt-curtains."
 
-"Strange—with so much wasteland, why isn't anyone cultivating? Those prisoners, Li or Han, are either tenants or laborers. Water's available; soil doesn't look poor."
+"Strange," Mu Min mused. "With so much wasteland, why isn't anyone cultivating it? Those prisoners—Li or Han—are all either tenants or laborers. There's water available, and the soil doesn't look poor."
 
-"Lack of water." Wen Desi had not farmed but understood basics.
+"Lack of water," Wen Desi said. He had never farmed himself but understood the basics.
 
-"Nonsense—such a big river—lacking water?"
+"Nonsense—with a river that size, you're telling me there's no water?"
 
-"Water's still in the river. Getting it into fields is what matters. Irrigation is a great science—lifting water, channels, sluice gates..."
+"The water's still in the river. Getting it into the fields is another matter entirely. Irrigation is a great science unto itself—lifting mechanisms, channels, sluice gates..."
 
-"Why not dig channels?"
+"Then why not dig channels?"
 
-"Water projects are laborious." Wen Desi explained. "Individual households can't dig irrigation channels alone. Throughout history, water projects required government organization—massive labor and money."
+"Water projects are laborious." Wen Desi shook his head. "Individual households can't dig irrigation channels on their own. Throughout history, such projects have required government organization—massive investments of labor and money."
 
-"So that's how it is. Nothing's easy." Mu Min sighed. "Then why did you all come here? Wasn't staying in the 21st century fine? Why risk traveling to this timespace?"
+"So that's how it is. Nothing's ever simple." Mu Min sighed, then looked at him with sudden curiosity. "So why did you all come here, anyway? Wasn't staying in the twenty-first century perfectly fine? Why risk traveling to this timespace?"
 
-Wen Desi smiled mysteriously. He could not say he had come to become a god. But Mu Min apparently interpreted his enigmatic smile as lecherous, curling her lip: "How disgusting—you men are the worst!"
+Wen Desi smiled mysteriously. He could hardly tell her he had come to become a god. But Mu Min apparently interpreted his enigmatic expression as something lecherous, because she curled her lip in disgust. "How revolting—you men are the worst!"
 
-Ming Lang, following far behind, watching his wife chatting and laughing with bandit-chief "Boss Wen," wanted to rush forward and slash him. These days had truly depressed him. Since learning this was Ming-era Lingao, their family of four had been semi-detained. Their wonderful Hainan family vacation had become permanent Ming-era Lingao exile—these crazy bandits wanted to come to the Ming; his family had no such intentions!
+Far behind them, Ming Lang watched his wife chatting and laughing with the bandit-chief "Boss Wen" and felt the urge to rush forward and slash the man. These past days had truly depressed him. Ever since learning they were in Ming-era Lingao, their family of four had been semi-detained. Their wonderful Hainan vacation had transformed into permanent exile in the Ming Dynasty—these lunatic bandits had wanted to come here, but his family certainly hadn't!
 
-He also resented his wife's meddling—insisting on helping some Public Security Group, wearing that hideous training uniform, cheerfully going to work, returning late, then chattering about everything she had seen. Father too: initially brooding silently, but hearing daughter-in-law's reports, some nerve got triggered—he had actually volunteered for work assignment. Supposedly becoming "naval advisor"?! Hearing this, Ming Lang thought he was feverish. Dad, this old Party member, old PLA Navy man, was now collaborating with these people? As for Mom—always a social butterfly—within days she had befriended local women, never home, recently talking about starting a women's welfare cooperative for trading.
+He resented his wife's meddling as well. She had insisted on helping some Public Security Group, donning that hideous training uniform, cheerfully heading off to work each day and returning late, then chattering endlessly about everything she had seen. His father was no better. Initially the old man had brooded in silence, but upon hearing his daughter-in-law's reports, some nerve had been triggered. He had actually volunteered for a work assignment and was now supposedly serving as "naval advisor"—whatever that meant. Hearing this, Ming Lang wondered if the old man was feverish. His own father, a longtime Party member, a former PLA Navy man, was now collaborating with these people? As for his mother—always a social butterfly—she had befriended local women within days, was never home anymore, and had recently begun talking about starting some kind of women's welfare cooperative for trading.
 
-Looking around, only he was doing worst. Apparently useless—still no proper work assignment, just day after day as a wretched "basic laborer," working alongside local coolies. This time, wife mentioned going to Li territory for work; he quickly signed up. Xiao Zishan had wanted to refuse, but reconsidered—they were legally married; not allowing the husband seemed unreasonable.
+Looking around at his family, only he was doing worst. Apparently useless to everyone, he had received no proper assignment—just day after day as a wretched "basic laborer," toiling alongside local coolies. When his wife mentioned this expedition to Li territory for work, he had signed up immediately. Xiao Zishan had wanted to refuse him, but reconsidered—they were legally married, after all. Denying the husband seemed unreasonable.
 
-So he had barely joined—but wife was the team's "ethnic advisor," clearly core personnel, far above his porter-level rank. Since departure, she had been with the leaders—discussing work, chatting and laughing. He was furious—consequences would be serious!
+So he had barely scraped onto the team. But his wife served as the team's "ethnic advisor," clearly core personnel, ranking far above his porter-level status. Since departure, she had been at the leaders' sides—discussing work, chatting and laughing with them. He was furious. Consequences would be serious.
 
 ---
 
-During the noon rest, the Communications Group radioed Bairren Fortress headquarters as routine, reporting the all-clear. They had agreed pre-departure to contact every three hours; the expedition would report their current position so HQ could track their movement. Everyone sampled Agriculture Department's newly-developed field rations: Wu Nanhai's personally-made, bizarrely-flavored "Jinhua Flaky Biscuits"; "Japanese Rice Balls" with rice vinegar and dried plums; and walnut-sized things of unknown composition, wrapped in bamboo tubes labeled "Soldier Provisions Pills" in non-standard Chinese—supposedly one equals one meal...
+During the noon rest, the Communications Group radioed Bairren Fortress headquarters as routine, reporting all clear. They had agreed before departure to make contact every three hours; the expedition would report their position so headquarters could track their movement. Everyone sampled the Agriculture Department's newly developed field rations: Wu Nanhai's personally made "Jinhua Flaky Biscuits," which featured a bizarre flavor; "Japanese Rice Balls" seasoned with rice vinegar and dried plums; and walnut-sized lumps of unknown composition wrapped in bamboo tubes labeled "Soldier Provisions Pills" in nonstandard Chinese—supposedly one equaled one meal.
 
-"What is this stuff!" Lu Rong had eaten a rice ball so sour his teeth nearly fell out—though unpalatable, it successfully killed his appetite after half a day's walking; mission accomplished.
+"What is this stuff!" Lu Rong had eaten a rice ball so sour his teeth nearly fell out. Unpalatable as it was, it successfully killed his appetite after half a day's walking. Mission accomplished.
 
-"Everyone rest briefly—we're leaving soon." Just then, he spotted Mu Min slowly emerging from behind a rock, patting her hands.
+"Everyone rest a bit longer—we're leaving soon." Just then he spotted Mu Min emerging slowly from behind a rock, patting her hands.
 
 "Lost weight—not fun to fight—"
 
 ---
 
-The journey was uneventful. Approaching Li territory, terrain grew rougher—gentle slopes became rolling hills. Transmigrator travelers grew scarce. Occasionally they encountered Han peddlers carrying goods to Li areas, or Li carrying goods out for trade—all avoided them widely. Lu Rong could not find anyone to ask about conditions ahead.
+The remainder of the journey proved uneventful. As they approached Li territory, the terrain grew rougher—gentle slopes gave way to rolling hills. Transmigrator travelers became scarce. Occasionally they encountered Han peddlers carrying goods into Li areas, or Li people bearing goods out for trade, but everyone gave them wide berth. Lu Rong could not find anyone willing to share information about conditions ahead.
 
-Progress slowed. Survey team members periodically stopped to correct maps; some ran off to collect stone samples and plants. Everyone used these pauses to rest and stretch.
+Progress slowed. Survey team members stopped periodically to correct their maps; some ran off to collect stone samples and plants. Everyone used these pauses to rest and stretch.
 
-The survey results were exciting: a coal belt distribution was here! Though of poor quality—low-caloric-value lignite with limited reserves—the belt should extend far south; the modern Nanbao Coal Mine was roughly in this direction. Lignite was not great fuel but made excellent fertilizer. Most thrilling: many brown-iron-ore vein traces, shallowly buried, suitable for small-scale open-pit mining.
+The survey results proved exciting: a coal belt distribution existed here! Though of poor quality—low-caloric-value lignite with limited reserves—the belt should extend far to the south; the modern Nanbao Coal Mine was roughly in this direction. Lignite made poor fuel but excellent fertilizer. Most thrilling of all were the many traces of brown iron-ore veins, shallowly buried and suitable for small-scale open-pit mining.
 
-"We must open this trade route quickly." Wen Desi was very excited.
+"We must open this trade route quickly," Wen Desi said, visibly excited.
 
-"Ming troops along the way are troublesome." Lu Rong frowned.
+"The Ming troops along the way are troublesome," Lu Rong replied with a frown.
 
-They had passed two Ming military checkpoints and one camp. But seeing their full armament, guards did not bother them. Wen Desi used the opportunity to observe their future military adversaries: soldiers were sallow and thin; forget armor, they could not even find complete clothes. He wondered—such troops, a few hundred holding the Li-area border? Either they were formidable fighters, or Li combat capability was weak.
+They had passed two Ming military checkpoints and one camp. Seeing their full armament, the guards had not bothered them. Wen Desi used the opportunity to observe their future military adversaries: the soldiers were sallow and thin. Forget armor—they could not even find complete clothing. He wondered: could such troops, a few hundred of them, really hold the Li-area border? Either they were formidable fighters, or Li combat capability was extremely weak.
 
-"Mm." Wen Desi nodded. "First negotiate terms with the Li. We send technicians; they handle extraction. Exchange products—saves establishing a secondary base."
+"Mm," Wen Desi nodded. "First we negotiate terms with the Li. We send technicians; they handle extraction. We exchange products—saves establishing a secondary base."
 
-After breakfast, per the prisoners' account, they had reached Li territory's edge. Han peddlers still occasionally passed; ahead was Juti Village with a large Ming camp called Nanlu Camp—garrisoning the strategic Fanbao Shan pass to Li territory. Though the camp had all-Li soldiers, and some extortion occurred, nothing serious happened.
+After breakfast the next morning, according to the prisoners' account, they had reached the edge of Li territory. Han peddlers still passed occasionally. Ahead lay Juti Village with a large Ming camp called Nanlu Camp, garrisoning the strategic Fanbao Shan pass into Li territory. Though the camp's soldiers were all Li themselves, and some extortion occurred, nothing truly serious happened there.
 
-Wen Desi had learned from the Intelligence Group's *Li Affairs Bulletin*: Fanbaoshan terrain was treacherous, with only a one-person-wide mountain path. This was the main Han-Li boundary pass. Without security guarantees, best not to cross. These prisoners' *dong* villages were north of the pass; beyond Fanbaoshan were mostly "raw Li." Their dialects and customs differed from "cooked Li"; interactions were rare—only uniting during rebellions.
+Wen Desi had learned from the Intelligence Group's *Li Affairs Bulletin* that the Fanbaoshan terrain was treacherous, with only a path wide enough for one person. This was the main pass along the Han-Li boundary. Without security guarantees, it was best not to cross. The prisoners' *dong* villages lay north of the pass; beyond Fanbaoshan lived mostly "raw Li," whose dialects and customs differed markedly from the "cooked Li." Interactions between the two groups were rare—they came together only during rebellions.
 
 **(End of Chapter)**

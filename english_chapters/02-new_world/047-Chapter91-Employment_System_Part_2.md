@@ -1,71 +1,71 @@
 # Chapter 91: Employment System (Part 2)
 
-Wu De held a mass meeting. Fu Youdi and his enforcers were fiercely denounced. All his problems were laid out for criticism; even scratching his feet before meals and snoring during sleep were exposed. Wu De let the masses widely participate, enhancing their sense of ownership. It was a so-called "organized rebellion"—fully satisfying their liberation euphoria while demonstrating his wisdom.
+Wu De convened a mass meeting where Fu Youdi and his enforcers faced fierce denunciation. Every fault was dragged into the light for public criticism—even trivial offenses like scratching his feet before meals and snoring in his sleep. Wu De encouraged broad participation, fostering a sense of collective ownership among the laborers. It was what he privately called an "organized rebellion," a calculated spectacle that satisfied their hunger for liberation while showcasing his own wisdom as a leader.
 
-Fu Youdi was declared stripped of all positions; he and his enforcers would "undergo labor reform under mass supervision." But when the masses tried to beat him—some even suggested public beheading—Wu De stopped them. No matter what, Fu Youdi had served the transmigrators faithfully. His fate could not be too miserable—otherwise, who would defect in the future?
+Fu Youdi was formally stripped of all positions. He and his enforcers would "undergo labor reform under mass supervision." When the crowd surged forward to beat him—some voices even calling for public beheading—Wu De intervened. Whatever his crimes, Fu Youdi had served the transmigrators faithfully. His fate could not be too miserable, or who would ever defect to their side in the future?
 
-Next, two other captains' problems were exposed: skimming food and slacking off. Nervously, both stood up and knelt before Wu De to confess.
+Next came the exposure of two other captains' transgressions: skimming food and shirking duties. Both men stood up nervously and dropped to their knees before Wu De, confessing everything.
 
-"Your problems are serious." Wu De put on a stern-magistrate face. "But your recent work achievements are obvious to all, so these issues won't be pursued."
+"Your problems are serious," Wu De declared, adopting the stern countenance of a magistrate passing judgment. "However, your recent work has been exemplary—everyone can attest to that. These matters will not be pursued further."
 
-"Thank you, Master, for your great magnanimity." Both wept with gratitude.
+"Thank you, Master, for your great magnanimity," they wept, overwhelmed with gratitude.
 
-"Continue working well." After speaking, Wu De reorganized the entire prisoner labor team—now called the "Production Team." Captain: Lin Xing. Deputy captain: Wang Tian. Clerk: Zhang Xingjiao. Below them, there were still four production squads; each squad leader was elected by the workers. Wu De stipulated that all management positions must learn Mandarin—so the two criticized captains could resume duty, naturally much more restrained. Others mostly developed intentions to learn the "Chiefs'" language.
+"Continue working well." With that pronouncement, Wu De reorganized the entire prisoner labor team, now rechristened the "Production Team." Lin Xing was appointed captain, Wang Tian deputy captain, and Zhang Xingjiao clerk. Beneath them, four production squads remained, with each squad leader elected by the workers themselves. Wu De stipulated that all management positions required learning Mandarin—which meant the two chastened captains could eventually resume their duties, though they would naturally be far more restrained going forward. The others, watching this unfold, began developing their own intentions to learn the language of the "Chiefs."
 
-The new labor system used work points. Each person completing basic daily work received one point. Managers and skilled positions received 1.2 points base. Exceeding quotas added points proportionally. Especially arduous, dangerous, or difficult work received bonus points.
+The new labor system operated on work points. Each person completing basic daily tasks earned one point. Managers and skilled positions received a base rate of 1.2 points. Exceeding quotas yielded proportional bonuses. Especially arduous, dangerous, or difficult work earned additional points still.
 
-Wu De stood before a rough blackboard, using Lin Xing and Xiong Buyou to simultaneously translate, finally explaining what work points meant.
+Wu De stood before a rough blackboard while Lin Xing and Xiong Buyou translated simultaneously, finally making clear what these work points actually meant.
 
-"What are work points for?" he said. "Work points can now exchange for extra food. They're like money—want more fish? Buy it with work points. Want more rice? Same." He paused. "In the future, you can use work points for more things—those farm tools, implements. If you have enough points, you can buy them..."
+"What are work points for?" he asked. "Starting now, work points can be exchanged for extra food. Think of them like money. Want more fish? Buy it with work points. Want more rice? Same principle." He paused, letting this sink in. "In the future, you'll be able to use work points for other things too—farm tools, implements. Accumulate enough points, and you can purchase them."
 
-Someone timidly raised a hand—Ma Peng. "Can I buy rice and have my mother eat it?" Probably fearing Wu De would think he wanted to escape, he added, "I can bring my mother here to eat..."
+A hand rose timidly from the crowd—Ma Peng. "Can I buy rice and give it to my mother to eat?" Fearing Wu De might suspect him of planning an escape, he quickly added, "I could bring my mother here to eat it..."
 
-Everyone laughed. "Are you crazy? What would the masters want with your old mother?"
+Laughter rippled through the assembly. "Are you crazy? What would the masters want with your old mother?"
 
-"Of course you can." Wu De seized the opportunity to announce new policies. "This is money you earned—how you use it is your freedom. We'll introduce more purchasable items in the future."
+"Of course you can," Wu De said, seizing the moment to announce further policies. "This is money you've earned. How you spend it is your freedom. We'll be introducing more purchasable items in the future."
 
-People whispered and murmured below. Everyone was clearly interested in getting paid for work. Someone asked, "The meals we eat now—will we need to pay work points for them later?"
+Whispers and murmurs spread through the crowd. Everyone was clearly intrigued by the prospect of being paid for their labor. Someone called out, "The meals we eat now—will we have to pay work points for those later?"
 
-"No—I said before, for extra food." Wu De explained that meals continued at two per day, one dry and one thin.
+"No. I said this is for *extra* food." Wu De explained that the regular meal schedule would continue unchanged: two meals per day, one substantial and one thin gruel.
 
-"Chief Wu said before, good workers can become 'employees.' Do 'employees' also earn work points?"
+"Chief Wu mentioned before that good workers can become 'employees.' Do employees also earn work points?"
 
-"Yes." Wu De explained the difference. Employees' point income would exceed theirs—for the same work, they got 1 point, while employees got 1.2. Explaining decimals was difficult, and Xiong Buyou struggled mightily. Finally, he used two fruits: one fruit represented 1.0; another cut into ten pieces, with two pieces representing 0.2. This visual education finally clarified things.
+"Yes." Wu De explained the distinction. Employees' point income would exceed that of regular laborers—for the same work, ordinary workers earned 1 point while employees earned 1.2. Explaining decimal fractions proved challenging, and Xiong Buyou struggled mightily with the concept. Finally, he resorted to visual demonstration: one whole fruit represented 1.0; another fruit cut into ten pieces, with two pieces representing 0.2. This crude bit of visual education finally brought clarity.
 
-Employees received three free meals (two dry, one thin), were provided housing, and might later receive private plots—conditions that made many envious. But the concern about employees being rebels made most pessimistic about this bright future.
+Employees would receive three free meals daily—two substantial, one thin—along with provided housing and the possibility of private plots in the future. These conditions stirred envy among the listeners. But the understanding that employees were essentially rebels dampened most people's optimism about ever reaching that bright future.
 
-Wu De understood their concerns, so did not oversell. Excessive enthusiasm would backfire. Chinese peasants were most practical and most suspicious. Without tangible benefits, they would not easily board your pirate ship.
+Wu De recognized their concerns and refrained from overselling the prospect. Excessive enthusiasm would only backfire. Chinese peasants were the most practical people on earth, and also the most suspicious. Without tangible benefits in hand, they would never willingly board your pirate ship.
 
-Indeed, everyone was skeptical of the work-point system. Some thought it was fraud—paying prisoners for work? What world was this? But from then on, Zhang Xingjiao was responsible for daily work assignments and point recording. After one week—they now knew "Chiefs" used seven-day weeks—everyone received varying work-point vouchers: minimum 7 points, maximum 10-plus. Vouchers came in four denominations: 1 point, 1 *li*, 2 *li*, and 5 *li*.
+Sure enough, skepticism pervaded reactions to the work-point system. Some thought it outright fraud—paying prisoners for their labor? What kind of world was this? Nevertheless, Zhang Xingjiao began handling daily work assignments and point recording. After one week—everyone now understood that the "Chiefs" operated on seven-day weeks—each laborer received work-point vouchers in varying amounts: a minimum of 7 points, some earning 10 or more. The vouchers came in four denominations: 1 point, 1 *li*, 2 *li*, and 5 *li*.
 
-Given that work-point vouchers were effectively disguised currency, the Planning Committee's economics specialists evaluated their issuance. Discussion concluded: no problem. Work-point vouchers were essentially grain-backed internal-circulation coupons—redeemable only at the two transmigrator cafeterias for food. Issuance and circulation were extremely limited. As long as transmigrators had sufficient grain, maintaining basic credit was unproblematic.
+Given that these work-point vouchers were effectively disguised currency, the Planning Committee's economics specialists conducted a thorough evaluation of their issuance. After extensive discussion, they concluded there was no problem. The vouchers were essentially grain-backed internal-circulation coupons, redeemable only at the two transmigrator cafeterias for food. Both issuance and circulation remained extremely limited. As long as the transmigrators maintained sufficient grain reserves, preserving basic credit posed no difficulty.
 
-Moreover, work-point vouchers had negligible value: 1 point = 1 bowl dry rice (100g); 1 bowl porridge = 0.5 points (50g rice); 1 salted fish = 2 points.
+Moreover, the vouchers held negligible value: 1 point equaled 1 bowl of dry rice at 100 grams; 1 bowl of porridge cost 0.5 points at 50 grams of rice; 1 salted fish ran 2 points.
 
-Daily earnings could only marginally improve meals—negligible impact on transmigrator food reserves. As Wu Nanhai put it: "If after six months ashore we still can't even feed laborers, we might as well commit group suicide."
+Daily earnings could only marginally improve a laborer's meals—the impact on transmigrator food reserves was trivial. As Wu Nanhai put it: "If after six months ashore we still can't manage to feed our laborers, we might as well commit group suicide."
 
-As a first currency-issuance attempt, the Planning Committee cautiously established a Finance Working Group, regulating voucher issuance, printing, circulation, and storage. The vouchers were lithographed in the Document Printing Office; the paper was imported card stock, roughly the size of a one-*jiao* RMB note. The 1-*li*, 2-*li*, and 5-*li* matched the old 1-*fen* RMB size. They used single-color black-ink printing without color registration. Front: the Committee Building's majestic form. Back: the *Fengcheng*'s silhouette. Border pattern: coconut palms. Only the denomination used different ink colors for distinction. Each voucher had a unique Arabic serial number.
+As a first foray into currency issuance, the Planning Committee cautiously established a Finance Working Group to regulate voucher printing, circulation, storage, and distribution. The vouchers were lithographed at the Document Printing Office on imported card stock, roughly the size of a one-*jiao* RMB note. The smaller denominations—1 *li*, 2 *li*, and 5 *li*—matched the old 1-*fen* RMB size. Single-color black ink was used throughout, with no color registration. The front depicted the Committee Building in all its majestic form; the back showed the silhouette of the *Fengcheng*. A border pattern of coconut palms framed each note. Only the denomination numbers used different ink colors for distinction. Every voucher bore a unique Arabic serial number.
 
-Xi Yazhou volunteered to write "Crossing Central Bank" as the masthead, but Finance Group Leader Cheng Dong felt these were just crude tokens—like cafeteria meal tickets. There was currently no bank. Better to preserve their token-coupon nature; do not misuse "bank" terminology to avoid future complications.
+Xi Yazhou volunteered to calligraph "Crossing Central Bank" as the masthead, but Finance Group Leader Cheng Dong felt these were merely crude tokens—no different from cafeteria meal tickets, really. No bank existed yet. Better to preserve their nature as simple token-coupons and avoid misusing banking terminology, which could cause complications down the road.
 
-The final "fancy paper" in Wu De's hands simply read "Work-Point Voucher"; the issuing unit was the "Bairren Production Team." Due to crude printing and unsuitable paper, they looked somewhat like shoddy cemetery spirit-money—but technically, no one in the Ming could replicate them.
+The final "fancy paper" that reached Wu De's hands simply read "Work-Point Voucher," with the issuing unit listed as the "Bairren Production Team." Due to crude printing techniques and unsuitable paper stock, they looked somewhat like shoddy cemetery spirit-money—though technically, no one in the Ming Dynasty could replicate them.
 
-They bore a beautiful ink seal in seal-script—on closer inspection, Wu De's personal name-seal. He did not know whether to laugh or cry. What was this supposed to mean?
+They bore a beautiful ink seal in seal-script. Upon closer inspection, Wu De discovered it was his own personal name-seal. He did not know whether to laugh or cry. What was this supposed to mean?
 
-Cheng Dong said it made things official—made vouchers look dignified—essentially using Wu De as a credit guarantee. After all, those laborers did not recognize any Committee.
+Cheng Dong explained that it made things official—gave the vouchers an air of dignity. Essentially, they were using Wu De himself as a credit guarantee. After all, those laborers did not recognize any Committee.
 
-"If there's nothing on it, wouldn't it become true wastepaper—Greater Japanese Empire military scrip?"
+"And if there's nothing on it," Cheng Dong added, "wouldn't it just become worthless scrip—like Greater Japanese Empire military notes?"
 
-After printing, all vouchers went to the Finance Group. Weekly, Wu De personally claimed them against point-tally sheets. Since payroll was detailed work beyond Wu De's financial skills, he only submitted weekly tally sheets; Finance Group payroll specialists compiled wage tables and distributed vouchers accordingly.
+After printing, all vouchers went to the Finance Group for safekeeping. Each week, Wu De personally claimed them against the point-tally sheets. Since payroll involved detailed calculations beyond Wu De's financial abilities, he simply submitted weekly tally sheets; Finance Group payroll specialists compiled proper wage tables and distributed vouchers accordingly.
 
-For Production Team laborers, this was a novelty. Copper coins—everyone used them. Silver—they had seen. Gold—heard of. Sometimes cashless, they would barter vegetables, chickens, or rough cloth for salt and goods. But paper buying things? First time hearing this.
+For the Production Team laborers, this was something entirely new. Copper coins—everyone knew those. Silver—they had seen it. Gold—they had heard of it. In lean times, they would barter vegetables, chickens, or rough cloth for salt and goods. But paper buying things? This was the first they had heard of such a thing.
 
-The Ming had once issued paper money. But this government-promoted currency, under financially ignorant emperors and officials, had long since died. In this remote region, for many years only copper and silver circulated. Though there were bills of exchange like later bank drafts, ordinary commoners never touched them.
+The Ming Dynasty had once issued paper money, but that government-promoted currency, under the stewardship of financially ignorant emperors and officials, had long since collapsed. In this remote region, only copper and silver had circulated for many years. Bills of exchange existed, functioning like later bank drafts, but ordinary commoners never touched such instruments.
 
-After receiving vouchers, everyone looked at each other—no one believed these could buy food. They thought: *if I rashly try exchanging—Chief Wu said it works, but if Cafeteria Chief Wu says no?* Even government offices often contradicted each other. Cafeteria Chief Wu did look fair-skinned and kindly—but presenting fancy paper to buy things might anger him. When gods fight, commoners suffer.
+After receiving their vouchers, everyone looked at each other uncertainly. No one truly believed these slips of paper could purchase food. The common thought ran: *If I rashly try to exchange this—Chief Wu says it works, but what if Cafeteria Chief Wu refuses?* Even government offices often contradicted each other. Cafeteria Chief Wu did appear fair-skinned and kindly enough, but presenting fancy paper to buy things might anger him. When gods fight, commoners suffer.
 
-Finally, under everyone's urging—and with Lin Xing's guarantee that if Cafeteria Chief Wu tried hitting anyone, he would fetch Chief Wu De—Ma Peng shakily presented a 5-*li* voucher to buy one bowl of porridge. The server readily accepted it and ladled him a bowl.
+Finally, under everyone's urging—and with Lin Xing's guarantee that if Cafeteria Chief Wu tried hitting anyone, he would personally fetch Chief Wu De—Ma Peng approached the counter on shaking legs and presented a 5-*li* voucher to buy one bowl of porridge. The server readily accepted it and ladled him a bowl.
 
-Onlookers saw Ma Peng receive porridge, watched him slurp it down, then noticed the server showed no intention of punishing Ma Peng. After a stunned pause, everyone surged forward, scrambling to pull out vouchers—buying rice, buying salted fish. The cafeteria's Hu Yicheng was caught off guard; extras quickly sold out. No one had expected this sudden purchasing frenzy—so extra provisions were minimal. Those who missed out stared at him. Surrounding them were loud chewing sounds and greedy eyes that seemed ready to swallow him too. He quickly phoned Wu Nanhai.
+The onlookers watched Ma Peng receive his porridge, watched him slurp it down, then noticed that the server showed no intention of punishing him. After a stunned pause, everyone surged forward in a scramble, pulling out vouchers left and right—buying rice, buying salted fish. Hu Yicheng at the cafeteria was caught completely off guard. The extra provisions sold out almost instantly. No one had anticipated this sudden purchasing frenzy, so reserves were minimal. Those who missed out stared at him with hungry eyes. All around them rose the loud sounds of chewing, and those greedy gazes seemed ready to swallow him whole. He quickly picked up the phone and called Wu Nanhai.
 
 **(End of Chapter)**

@@ -1,103 +1,103 @@
 # Chapter 84: Tribute Negotiations
 
-"Old Wu, you're here!" Just as he was reading, Zhou Dongtian entered. His training suit was covered with ink stains. Before crossing, he had been a fire-department officer, then a judicial worker. But because he was very familiar with printing, he had become head of this Document Printing Office. Most equipment here had been purchased with his money.
+"Old Wu, you made it!" Zhou Dongtian strode in just as Wu De was reading. His training suit was splattered with ink stains—an occupational hazard for the man who now ran the Document Printing Office. Before the crossing, Zhou had served as a fire department officer and later worked in the judicial system, but his extensive familiarity with printing had landed him this particular assignment. Most of the equipment in the office had been purchased with his own money.
 
-"So—we're publishing a newspaper?" Wu De pointed at the proof.
+Wu De pointed at the proof sheet. "So we're publishing a newspaper now?"
 
-"Yes, the Committee approved Dingding's proposal. A newspaper—though just an irregular small paper. First issue: fifty copies."
+"The Committee approved Dingding's proposal. It'll be a small irregular publication—nothing fancy. First print run is fifty copies."
 
-"I think this newspaper's positioning is wrong. Who's the target audience?"
+"I think the positioning is all wrong," Wu De said. "Who's the target audience supposed to be?"
 
 "You think we don't know Marx?"
 
-"If it's for locals, why simplified characters? Also, has the Committee considered literacy rates?" Wu De thought this was a joke. Of the 138 prisoners he managed, besides Zhang Xingjiao who could read and write, only two or three small landlords knew a few characters. Illiteracy exceeded 95%. In such an environment, printing newspapers was pointless.
+"If it's meant for locals, why use simplified characters?" Wu De shook his head. "Has the Committee even considered literacy rates? Of the hundred and thirty-eight prisoners I manage, only Zhang Xingjiao can read and write properly. Two or three small landlords know a handful of characters, but that's it. Illiteracy runs above ninety-five percent. In that kind of environment, printing newspapers is an exercise in futility."
 
-"We're about to start literacy classes for your labor teams." Zhou Dongtian pointed at the computers. "The Cultural-Education Group already has a first draft of literacy materials. We're also preparing lithography for flash cards."
+"We're about to launch literacy classes for your labor teams." Zhou Dongtian gestured toward the computers. "The Cultural-Education Group has already drafted preliminary teaching materials. We're also preparing lithographed flash cards."
 
-"Creative thinking indeed."
+"Creative thinking, I'll grant you that."
 
-"All Dingding's ideas." Zhou Dongtian chuckled. "This journalist really thinks big—ambitious. Besides newspapers, he wants to publish textbooks."
+"All Dingding's ideas." Zhou Dongtian chuckled. "That journalist really thinks big—ambitious as they come. He's not satisfied with just newspapers. He wants to publish textbooks too."
 
-"Having ideas is good. Here's my manuscript—please print it soon."
+"Well, having ideas is good. Here's my manuscript—please print it as soon as you can."
 
-"Your little thing—I can just print wax stencils. Wait a moment." He went to turn on the computer. Wu De's draft was on computer, transmitted directly via wireless network to OA—even saving the typing effort.
+"That little thing? I can just run off wax stencils. Give me a moment." He went to power up the computer. Wu De's draft was already in the system, transmitted directly via the wireless network to the office automation system—saving even the effort of typing it out.
 
-"Since we have computer networks, why print documents at all? Bureaucratism!" Wu De sighed.
+"Since we have computer networks," Wu De sighed, "why bother printing documents at all? Pure bureaucratism."
 
-"Probably to leave written archives for the future. Computers will break someday." Zhou Dongtian adjusted the machine, inserting wax paper. "In another ten years, probably all this will be handwritten. I brought an old Chinese typewriter—when machines break, we'll depend on it for stencils."
+"Probably to leave written archives for future generations. Computers won't last forever." Zhou Dongtian adjusted the machine and fed in the wax paper. "Give it another ten years, and we'll likely be doing everything by hand. I brought an old Chinese typewriter along—when the machines finally give out, we'll depend on that for making stencils."
 
-After mimeographing materials, one copy routinely went to the Intelligence Group for archives. He went directly to discuss with Committee leaders.
+After the mimeographed materials were ready, one copy went routinely to the Intelligence Group for archiving. Wu De headed directly to discuss matters with the Committee leadership.
 
-"You're saying prisoners are uneasy?" Wen Desi asked.
+"You're saying the prisoners are growing uneasy?" Wen Desi asked.
 
-"Yes, and some will probably remain uneasy." Wu De pointed at his trend report. "According to the latest report, those small landlords, rich peasants, and middle peasants with their own homesteads—because harvest season is coming and they can't go back to work, and they're worried about family—have been restless."
+"Yes, and I suspect some will remain that way." Wu De indicated his trend report. "According to the latest assessment, the small landlords, rich peasants, and middle peasants who own their own homesteads are getting restless. Harvest season is approaching, and they can't return to work their land. They're worried about their families."
 
-"These people shouldn't be many."
+"There can't be that many of them."
 
-"Right, but ordinary tenant farmers have similar problems. If they don't harvest, they can't pay rent. Their own and families' livelihoods are insecure."
+"True, but ordinary tenant farmers face similar problems. If they don't bring in the harvest, they can't pay their rent. Their own livelihoods and their families' security hang in the balance."
 
-"Mm, mm."
+"Mm, I see."
 
-"Those truly comfortable anywhere are only the destitute without family burdens, or long-term laborers."
+"The only ones truly comfortable here are the destitute without family obligations, or the long-term laborers who have nothing to lose."
 
-"So few want to join us." Wen Desi was somewhat discouraged.
+"So few actually want to join us." Wen Desi sounded discouraged.
 
-"Yes. Actually we're attractive to poor people, especially after we introduced 'worker' benefits. For former hired hands, working for us is better than working for the wealthy. But for tenant farmers and poor peasants with some family and property—maybe not. They care more about 'living peacefully.' Really, these people doubt 'how long the red flag can fly.'"
+"That's the reality. We are attractive to the poor—especially after we introduced worker benefits. For former hired hands, working for us beats working for wealthy landlords. But for tenant farmers and poor peasants with some family and property to their name, it's a harder sell. They care most about living peacefully, without disruption. Frankly, these people doubt whether the red flag can fly for long."
 
-"Before we achieve greater victory or legitimate status, this doubt probably can't be eliminated." Xiao Zishan also seemed disappointed.
+"Until we achieve a greater victory or gain legitimate status, that doubt probably won't go away." Xiao Zishan looked equally disappointed.
 
-"Even with doubts, we must proceed." Wen Desi considered. "Remember the predetermined policy—'Beacon Effect.' Once everyone sees that serving us means living better, they'll naturally lean toward us. Common people mostly look at what's in front of them."
+"Even so, we must press forward." Wen Desi considered the problem carefully. "Remember the predetermined policy—the Beacon Effect. Once everyone sees that serving us means living better, they'll naturally gravitate toward our side. Common people are practical. They focus on what's right in front of them."
 
-"I agree. If you genuinely give benefits, common people won't forget."
-
----
-
-"Also, those eight Li minority prisoners are still held in the POW camp—not assigned to labor teams. How does the Committee plan to handle them?"
-
-"We're preparing to use them as a breakthrough for establishing relations with the Li tribes to the south." Xiao Zishan explained. "Mu Min is working on this. Results should come in a few days."
-
-The implication: this was not Wu De's domain. He nodded. Just then, Wen Desi's PHS rang. Someone said something over the phone. Wen Desi replied, "Have them wait. Treat them well. We'll come." To Wu De: "Locals have come to visit us."
-
-"Oh?" Wu De was interested.
-
-"Regarding prisoners. Come with us. Also bring Xiong Buyou. And the local interpreter—call everyone."
-
-"Got it."
+"I agree. Give people genuine benefits, and they won't forget it."
 
 ---
 
-Since the county's two-pronged counterattack had ended in disaster, Lingao County had tensed up again. According to returning militia survivors, the pirates' firearms were terrifying—one volley killed everyone nearby. Even the famous Huang Family Village militia had been defeated; Huang Shoutong himself was seriously wounded, carried directly back to Huang Village. City residents panicked. Some gentry were already transferring property and people to remote relatives or their own rural strongholds. Others claimed family emergencies or illness, returning home. Even refugees inside the city wanted to leave—rumors said these short-haired pirates would wash the city in revenge.
+"There's another matter," Wu De continued. "Those eight Li minority prisoners are still being held in the POW camp—they haven't been assigned to any labor teams. What does the Committee plan to do with them?"
 
-After several days, seeing the shaven-headed pirates showed no intent to attack, officials and gentry calmed slightly. Because losses were so heavy, internal quarrels erupted. The supposedly flawless attack plan had failed ignominiously—proving *Jinshi* Liu's so-called suppression strategy useless. Rumors circulated that *Jinshi* Liu was a "scholar playing soldier"—failing court above and homeland below. The already frail Liu Dalin, infuriated by this outcome after a month of exhausting effort, retired home to recuperate.
+"We're preparing to use them as a breakthrough for establishing relations with the Li tribes to the south," Xiao Zishan explained. "Mu Min is working on it. We should have results within a few days."
 
-Magistrate Wu was angry but could not stop him. Daily, he fumed in his reception hall, worried. The pirates had landed nearly a month ago with no sign of leaving. Gentry had lost trust in him. City morale had collapsed. If the shaven-heads attacked, archers and militia would likely scatter instantly. As for the prefectural capital—besides a letter telling him to "guard the city" and other useless platitudes—only reminders that court autumn grain collection was imminent, demanding he focus on this.
+The implication was clear: this fell outside Wu De's domain. He nodded his understanding. Just then, Wen Desi's PHS buzzed. Someone spoke briefly on the other end, and Wen Desi replied, "Have them wait. Treat them well. We'll be there shortly." He turned to Wu De. "We have local visitors."
 
-"Collect grain! Collect grain! Everything's a mess—what grain to collect!" Wu Mingjin was full of frustration. Thinking it over, he could only consult his private secretary.
+"Oh?" Wu De's interest was piqued.
 
-Secretary Wang, named Zhaomin, was Cantonese—years serving in various prefectural and county secretariats across the province, very familiar with local procedures.
+"Regarding the prisoners. Come with us. Bring Xiong Buyou as well, and the local interpreter—get everyone together."
 
-Secretary Wang pondered a while, then said quietly, "Your Honor, since we cannot expel pirates, we can only pay tribute."
+"Understood."
 
-"Tribute?" Magistrate Wu was startled, nearly jumping up to curse this absurdity. But having been in local politics for years, he quickly composed himself.
+---
+
+Ever since the county's two-pronged counterattack had ended in catastrophe, tension had gripped Lingao County once more. According to the militia survivors who had straggled back, the pirates' firearms were devastating—a single volley was enough to kill everyone in the vicinity. Even the renowned Huang Family Village militia had been routed; Huang Shoutong himself had been gravely wounded and carried directly back to Huang Village. The city's residents were in a panic. Some gentry had already begun transferring property and household members to distant relatives or their own rural strongholds. Others claimed family emergencies or sudden illnesses as pretexts to return to their home villages. Even the refugees sheltering inside the city walls wanted to leave—rumors swirled that these short-haired pirates would wash the streets in blood as revenge.
+
+Several days passed. When it became clear that the shaven-headed pirates had no intention of attacking, officials and gentry began to calm somewhat. But the heavy losses sparked bitter internal quarrels. The supposedly flawless attack plan had failed ignominiously, proving that *Jinshi* Liu's vaunted suppression strategy was worthless. Whispers spread that *Jinshi* Liu was nothing but a "scholar playing soldier"—failing both the court above and his homeland below. Liu Dalin, already frail, had exhausted himself over a month of planning only to see it end in disaster. Infuriated by the outcome and the gossip, he retired to his home to recuperate.
+
+Magistrate Wu was furious but could do nothing to stop him. Each day he sat fuming in his reception hall, consumed by worry. The pirates had been camped on his shores for nearly a month now, with no sign of departure. The gentry had lost faith in him. City morale had collapsed entirely. If the shaven-heads launched an assault, his archers and militia would likely scatter at the first shot. As for aid from the prefectural capital—besides a letter advising him to "guard the city" and other useless platitudes—the only communications he received were reminders that the court's autumn grain collection was imminent and that he must focus his attention on that.
+
+"Collect grain! Collect grain!" Wu Mingjin muttered bitterly. "Everything has gone to hell—what grain is there to collect?" After stewing over the problem, he could think of only one recourse: consulting his private secretary.
+
+Secretary Wang, whose given name was Zhaomin, was Cantonese by origin. He had spent years serving in various prefectural and county secretariats across the province and knew local procedures inside and out.
+
+The secretary pondered for a while, then spoke quietly. "Your Honor, since we cannot expel the pirates, we can only pay tribute."
+
+"Tribute?" Magistrate Wu started, nearly leaping to his feet to denounce the absurdity. But years of navigating local politics had taught him restraint. He composed himself quickly.
 
 "Would it work?"
 
-Secretary Wang stroked his beard, smiling. "Call it expediency. The most pressing matter is autumn grain! If this season's grain is collected, all will be peaceful. Pirates? Fujian and Guangdong are both troubled—can't we be troubled too?"
+Secretary Wang stroked his beard, a knowing smile playing at his lips. "Call it a tactical expedient. The most pressing matter is the autumn grain. If this season's collection proceeds smoothly, all will be well. As for the pirates? Fujian has its troubles, Guangdong has its troubles—can't we have ours as well?"
 
-"Yes, yes, the elder speaks truth." Magistrate Wu felt enlightened. Suddenly he frowned. "But this matter probably can't be hidden from superiors—and the secret-police—" He instinctively glanced around.
+"Yes, yes, the elder speaks wisely." Magistrate Wu felt as though a path had suddenly opened before him. Then his brow furrowed. "But surely this matter cannot be hidden from our superiors—and the secret police—" He glanced instinctively around the room.
 
-"Your Honor needn't worry. In officialdom, less trouble is better. As long as autumn grain enters the granary and the county seat isn't lost, will the prefect bother with this? Others likewise." Secretary Wang whispered, "With the pirates' power, if they wanted this county seat, they'd have taken it already. Why camp at Bairren Rapids? They haven't plundered or killed in our county—quite righteous. We just buy peace for now."
+"Your Honor need not worry. In officialdom, the less trouble, the better. As long as the autumn grain enters the granary and the county seat remains in our hands, do you think the prefect will concern himself with the details? The others likewise." Secretary Wang lowered his voice conspiratorially. "With the power these pirates have demonstrated, if they wanted this county seat, they would have taken it already. Why else would they camp at Bairren Rapids? They haven't plundered or killed anywhere in our county—quite righteous behavior, really. We simply buy ourselves some peace for now."
 
-"Reasonable, reasonable." Wu Mingjin nodded repeatedly. "But this matter is hardly trivial—"
+"Reasonable, quite reasonable." Wu Mingjin nodded repeatedly. "But this is no trivial matter—"
 
-"Your Honor, rest assured." Secretary Wang looked utterly confident. "Those eager to pay tribute to the pirates won't be us—but the gentry." He lowered his voice, saying much more.
+"Your Honor, rest assured." Secretary Wang's expression radiated confidence. "Those eager to pay tribute to the pirates won't be us—it will be the gentry." He leaned in and spoke at length, his voice barely above a whisper.
 
-Indeed, gentry worried about their harvests. Some had relatives missing in the "suppression campaign" and wanted to contact the pirates. Once Secretary Wang hinted slightly, everyone went to prepare these matters themselves.
+Indeed, the gentry were anxious about their harvests. Some had relatives missing from the failed suppression campaign and desperately wanted to contact the pirates. Once Secretary Wang dropped a few subtle hints, everyone set about making arrangements on their own.
 
-After discussion, the gentry's representative was a down-on-his-luck landlord named Zhang Xingfu. His father had been a gambler who had nearly ruined the family, leaving him barely a hundred *mu* of hillside—purely dependent on weather. Because his wife's family had distant relations with the Liu Xiang gang, he could speak with various armed groups in the area. He often acted as intermediary with pirates—negotiating terms, discussing hostages. Though no party fully trusted him, when matters arose, they still needed his mediation. He himself used this role for side income and fees.
+After some discussion, the gentry settled on a down-on-his-luck landlord named Zhang Xingfu as their representative. His father had been a gambler who had nearly ruined the family, leaving Zhang with barely a hundred *mu* of hillside land—purely dependent on the weather's mercy. However, his wife's family had distant connections to the Liu Xiang gang, which allowed him to speak with various armed groups operating in the area. He often served as an intermediary with pirates—negotiating terms, arranging hostage releases. No party fully trusted him, yet when trouble arose, they still needed his mediation. He sustained himself on the side income and fees this role provided.
 
-Those accompanying him were either someone's household manager or distant kinsman. Gentry feared being captured for ransom if they came personally—so they sent expendable people. All brought gifts: pigs, sheep, presents, and calling cards. Following the era's gentry etiquette for peer interaction, cards humbly styled themselves "unworthy student."
+Those accompanying him were either someone's household manager or a distant kinsman of little consequence. The gentry feared being captured for ransom if they appeared in person, so they sent expendable people instead. All the visitors brought gifts: pigs, sheep, various presents, and formal calling cards. Following the era's gentry etiquette for interactions between peers, each card humbly styled its bearer as an "unworthy student."
 
-Walking less than half a *shichen* from the county seat, they saw earthen berms and guard towers ahead—knowing the pirate camp was reached. These pirates had landed over a month ago; everyone knew the name but had not even heard them. Many knew they had crushed the county's strongest militia in moments—even Huang Shoutong was struck down. But hearing the pirates had good discipline somewhat reassured them.
+They walked less than half a *shichen* from the county seat before earthen berms and guard towers came into view ahead—the pirate camp had been reached. These pirates had been ashore for over a month now; everyone knew the name, yet few had actually laid eyes on them. Many had heard how they crushed the county's strongest militia in moments, how even Huang Shoutong had been struck down. But word of their good discipline offered some small reassurance.
 
 **(End of Chapter)**

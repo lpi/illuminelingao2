@@ -1,97 +1,101 @@
 # Chapter 66: Master Huang
 
-Wu Mingjin's face fell. He was deeply moved. He knew this Master Huang, ever public-spirited, had led clansmen and militia to fight bandits whenever there were local threats—already losing several close nephews and cousins. He had not expected this time to cost even a son.
+Wu Mingjin's expression darkened with genuine sorrow. He knew Master Huang well—a man of unwavering public spirit who had rallied clansmen and militia against bandits whenever threats arose in the region. The old man had already lost several nephews and cousins to such conflicts over the years. That this latest battle had claimed a son struck the magistrate deeply.
 
-"Please accept my condolences, Elder. After the pirates retreat, this student will certainly report to superiors and request posthumous honors for your son." Though Master Huang had no scholarly status, his son was a county-school student. Magistrate Wu, deliberately elevating him, usually addressed him as "Elder."
+"Please accept my condolences, Elder. Once the pirates withdraw, I will personally petition my superiors to secure posthumous honors for your son." Though Huang Shoutong held no scholarly degree himself, his son had been enrolled at the county school. Magistrate Wu, in a deliberate show of respect, always addressed him as "Elder."
 
-"My foolish son died pacifying the region. Our Huang family has long received the nation's grace; we must repay court and homeland even if ground to powder. We do not covet these posthumous honors." Huang Shoutong did not want to dwell on his son—though he had three sons, this one was a concubine's child without scholarly status. Yet losing a son still felt like his heart was tearing.
+"My foolish son died defending our homeland. The Huang family has long enjoyed the nation's grace, and we stand ready to repay that debt to court and country, even if it means being ground to dust. We do not covet such honors." Huang Shoutong's voice was steady, but he did not wish to linger on the subject. True, the boy had been born of a concubine and never earned scholarly status—he was just one of three sons. Yet the loss tore at him all the same, a grief that clawed at his heart.
 
-"Shoutong comes to warn Your Honor." He spoke directly. "These pirates are unlike any before. Great disaster awaits Lingao!"
+"I have come to warn Your Honor," he continued, his tone turning urgent. "These pirates are unlike any we have faced before. Great disaster threatens Lingao."
 
-"Elder, what do you mean?" Wu Mingjin was shocked. He knew this old man was calm and steady—not one for empty boasts.
+"What do you mean, Elder?" Wu Mingjin leaned forward, alarmed. He knew this old man to be calm and measured—not given to exaggeration or empty warnings.
 
-Huang Shoutong described yesterday's events: his son had led a dozen-odd militia to ambush three pirate scouts near Bairrentou Beach. Though he had not participated, the survivors' accounts alarmed him. The initial arrow volley felled only one; though the old saying went "three arrows are not worth one blade," and the militia's bows were poor—the opponents wore no armor, yet two big men took seven or eight arrows each and still fought their way through, killing several, including his son.
+Huang Shoutong recounted the events of the previous day. His son had led a dozen militia to ambush three pirate scouts near Bairrentou Beach. Though he had not participated himself, the survivors' reports had shaken him to the core. The initial volley of arrows had felled only one man. The old saying held that "three arrows are not worth one blade," and the militia's bows were indeed of poor quality. Yet the pirates wore no armor—and still, two of them had absorbed seven or eight arrows each and fought their way through, killing several men before escaping. His son had been among the dead.
 
-He closed his eyes, recalling his son's corpse when the militia brought it back—half the face nearly shattered, an eye missing. From the militia's account: this person, despite multiple arrows and being surrounded, killed his son—who had loved martial arts since childhood—in a single exchange. Such a man would be a rare fierce general even in the regular army.
+He closed his eyes, the image of his son's corpse returning unbidden. When the militia had carried the body home, half the face had been shattered, one eye socket a gaping ruin. According to the survivors, one of the pirates—despite being riddled with arrows and surrounded—had killed his son in a single exchange. The boy had trained in martial arts since childhood. For a man to cut him down so easily, while grievously wounded himself... such a warrior would be considered a fierce general even among regular army troops.
 
-Individual valor alone did not overly concern him. But another item the militia brought back did.
+But individual prowess, however remarkable, was not what truly concerned him. What the militia had brought back troubled him far more.
 
-"The pirates' firearms are extremely formidable. One of them used a small hand-cannon, killing several men—without even loading powder or shot. Please see, Your Honor—" He handed over a cloth bundle. Wu Mingjin unwrapped it: inside was a blueish-black piece of iron, very compact. The style vaguely resembled European hand-cannons but with clean, simple lines—no visible matchlock mechanism.
+"Their firearms are extraordinarily formidable. One of the pirates wielded a small hand-cannon that killed several men—without once loading powder or shot." He produced a cloth bundle and handed it over. "Please examine it, Your Honor."
+
+Wu Mingjin unwrapped the bundle to reveal a compact piece of bluish-black iron. The design bore a passing resemblance to European hand-cannons, but with clean, simple lines. He could see no matchlock mechanism anywhere.
 
 "This is a hand-cannon?"
 
-"Indeed." Seeing the magistrate's puzzlement, Huang Shoutong said the militia had found it on the battlefield afterward—apparently dropped by a pirate in the melee.
+"Indeed." Seeing the magistrate's confusion, Huang Shoutong explained that the militia had recovered it from the battlefield afterward—apparently dropped by one of the pirates during the chaos of the fight.
 
-"Is the militia's account reliable?" The magistrate was still skeptical. Though a scholar, in recent decades literati had become fond of discussing military matters and firearms. He had not seen all types of fire-cannon in person, but he had seen illustrations in books. This thing resembled no cannon—except for a barrel and trigger.
+"Is the militia's account reliable?" The magistrate remained skeptical. Though a scholar by training, he had followed the recent fashion among literati for discussing military matters and firearms. He had not personally examined every type of fire-cannon in existence, but he had studied illustrations in various treatises. This object resembled nothing he recognized—nothing beyond a barrel and a trigger.
 
-*(Note: Late Ming saw a surge of firearms discourse among intellectuals. Most were armchair strategists. Song Yingxing criticized this trend in* Tiangong Kaiwu.*)*
+*(Note: The late Ming saw a surge of firearms discourse among intellectuals. Most were armchair strategists. Song Yingxing criticized this trend in* Tiangong Kaiwu.*)*
 
-"Reliable. This weapon requires no powder-loading. Pull the trigger and it fires." Huang Shoutong stroked his beard. "After bringing it back, I test-fired one shot. Considerable power—penetrated thick wooden boards at five *zhang*. But a second pull did not fire. It must pre-store multiple charges internally; each trigger pull fires one."
+"Entirely reliable. This weapon requires no loading of powder. One simply pulls the trigger and it fires." Huang Shoutong stroked his beard thoughtfully. "After it was brought back to me, I test-fired a single shot. The power was considerable—it penetrated thick wooden boards at five *zhang*. But a second pull of the trigger produced nothing. I believe it must store multiple charges internally, each trigger pull releasing one."
 
-"That is truly a formidable weapon." Wu Mingjin stared at this small blueish-black object, deeply worried. If the pirates had many such cannons, how could militia archers resist in open battle? Defending with cannon from the walls seemed the only strategy.
+"A formidable weapon indeed." Wu Mingjin stared at the small bluish-black object, his worry deepening. If the pirates possessed many such weapons, how could militia archers hope to stand against them in open battle? Defending from the walls with cannon seemed the only viable strategy.
 
-"I have come to the county for two reasons: first, to warn; second, to request some weapons."
+"I have come to the county for two reasons," Huang Shoutong continued. "First, to deliver this warning. Second, to request weapons."
 
-As commander of the six-village mutual-defense alliance, he had several hundred able men but scarce weapons. Besides leaders and some retainers with blades and spears, ordinary militia had only wooden poles. Lingao had always lacked iron; weapons were even scarcer. His family's retainers used blades and spears passed down from ancestors generations ago. They had many bows, but Hainan's climate was poor for archery—the bows were not reliable.
+As commander of the six-village mutual-defense alliance, he had several hundred able-bodied men at his disposal but precious few arms to equip them. Beyond the leaders and some household retainers who carried blades and spears, the ordinary militia had nothing but wooden poles. Lingao had always suffered from a shortage of iron, and weapons were scarcer still. Even the blades and spears his family's retainers carried had been passed down from ancestors several generations back. They possessed many bows, but Hainan's humid climate was unkind to archery equipment—the weapons could not be relied upon.
 
-Wu Mingjin could not refuse. From the armory he allocated: twenty waist-sabers, ten shield-boards, forty tiger-forks, five iron spears. Plus some gunpowder and shot—the Huang family fortress had some iron cannons and blunderbusses, but gunpowder was a government monopoly, difficult to obtain.
+Wu Mingjin could not refuse such a request. From the county armory, he allocated twenty waist-sabers, ten shield-boards, forty tiger-forks, and five iron spears. He also provided gunpowder and shot—the Huang family fortress possessed some iron cannons and blunderbusses, but gunpowder remained a government monopoly and was difficult to obtain through normal channels.
 
-As Huang Shoutong was about to take his leave to rest, a runner reported: the scouts sent out this morning had returned. Since the pirates landed, the county sent daily scouts to gather intelligence—all locals familiar with roads and terrain.
+As Huang Shoutong was preparing to take his leave and rest, a runner burst in with news: the scouts dispatched that morning had returned. Since the pirates' landing, the county had been sending out daily reconnaissance parties to gather intelligence—all local men familiar with the roads and terrain.
 
-The gates could not be opened; a prepared large basket was lowered to haul people up the walls. Scouts went out daily without incident, but today's group returned in great alarm. Citizens on the walls buzzed with speculation.
+The gates could not be opened, so a large basket had been prepared to haul people up and over the walls. The scouts had been going out without incident for days, but today's group had returned in a state of visible alarm. Citizens gathered on the walls, buzzing with speculation.
 
-"What—road-building?" The magistrate asked in shock.
+"What—they're building a road?" The magistrate's voice cracked with disbelief.
 
-"Yes, Your Honor." The scout knelt, stealing a glance at the magistrate.
+"Yes, Your Honor." The scout knelt before him, stealing a nervous glance upward.
 
-"From Bopu toward Bairrentou Beach. Markers all along the way. The pirates heap soil into road. Already built five or six *li*."
+"From Bopu toward Bairrentou Beach. They've placed markers all along the route. The pirates are heaping up soil to form a roadbed. They've already completed five or six *li*."
 
-"Five or six *li*—you are not mistaken?!" Huang Shoutong surged forward, demanding.
+"Five or six *li*—are you certain?" Huang Shoutong surged forward, seizing the scout's arm.
 
-"I am not mistaken." The scout fearfully looked at this famous figure.
+"I am certain." The man shrank back from the famous figure's intensity.
 
-Huang Shoutong was astonished. He turned and bowed: "Your Honor, our village militia fought yesterday. On the way, there was no road yet..."
+Huang Shoutong stood stunned. He turned and bowed to the magistrate. "Your Honor, our village militia fought them only yesterday. On our way there, there was no road..."
 
-Wu Mingjin nodded, speaking solemnly: "The road-building you witnessed—nothing exaggerated? If there is the slightest falsehood, you will not be spared!"
+Wu Mingjin nodded gravely. "This road-building you witnessed—you are not exaggerating anything? If there is the slightest falsehood in your report, you will answer for it."
 
-The scout kowtowed repeatedly: "I dare not deceive Your Honor. Indeed, five or six *li* of road completed." He added that the pirates had sorcery: carts without wheels that moved, with giant iron arms that could scoop soil with massive blades. Mountains of dirt were effortlessly excavated and moved...
+The scout pressed his forehead to the floor repeatedly. "I would not dare deceive Your Honor. They have indeed completed five or six *li* of road." He added, his voice dropping to an awed whisper, that the pirates seemed to possess sorcery: carts without wheels that moved on their own, with giant iron arms that scooped up soil using massive blades. Mountains of earth were excavated and moved as if it were nothing...
 
-*Sorcery again!* The magistrate did not believe in supernatural explanations, but things beyond his understanding kept accumulating—pirates' capabilities kept growing. This was truly worrying. Take road-building: he had considered repairing bridges and roads in the county, but various obstacles always intervened. Either lacking funds to mobilize laborers, or landlords quarreling, refusing to cede land. Even with everything smooth, he could not possibly build five or six *li* of highway in two days—let alone by heaping soil. What kind of people were these pirates?
+*Sorcery again.* The magistrate did not believe in supernatural explanations, but evidence of inexplicable capabilities kept accumulating. The pirates' resources and methods seemed to grow more formidable with each report. Take road-building as an example: he himself had considered repairing bridges and roads in the county, but obstacles always intervened. Funds to mobilize laborers were never available. Landlords quarreled endlessly, refusing to cede land. Even with everything proceeding smoothly, he could not possibly construct five or six *li* of highway in two days—certainly not by heaping up soil. What manner of men were these pirates?
 
-But the current problem was not the road itself—it was *why* the pirates were building it. Being bandits, they could not be earning merit. Their goal was plunder—this was unnecessary. Besides, what was there to plunder at Bairrentou Beach? Just a few stonemason families, likely already fled.
+Yet the immediate problem was not the road itself. The question was *why* they were building it. As bandits, they could not be earning merit with the court. Their purpose was plunder—and road construction was entirely unnecessary for that. Besides, what was there to plunder at Bairrentou Beach? Nothing but a few stonemason families, who had likely fled long ago.
 
-In his uncertainty, he quickly summoned yamen officials, Jinshi Liu Dalin, and the reinforcement Captain to discuss countermeasures. After hearing from the scout and Master Huang, the hall of officials and gentry fell silent. Originally, they had assumed that however bad a pirate landing might be, at worst they would plunder commoners and burn some villages and markets. Since the Song Dynasty, neither Li-people uprisings nor pirate raids had ever taken this county. Some were even relieved the pirates landed after mid-autumn—if it had been before winter when the autumn grain was ready, losses would have been far worse. But bad news kept coming: first, scouts reported the pirates had established a large camp at Bopu, unloading cargo day and night. Then the famously fierce Huang family militia was routed. Now the pirates were building roads. No one could figure out what these shaven-headed bandits intended.
+Uncertain how to proceed, the magistrate hastily summoned his yamen officials, the *jinshi* Liu Dalin, and the reinforcement Captain to discuss countermeasures. After hearing testimony from both the scout and Master Huang, the assembled officials and gentry fell into uneasy silence. They had assumed that however dire a pirate landing might be, the worst outcome would be plundered commoners and a few burned villages and markets. Since the Song Dynasty, neither Li-people uprisings nor pirate raids had ever succeeded in taking this county. Some had even felt a grim relief that the pirates had landed after mid-autumn—if they had arrived before winter, when the grain harvest was still in the fields, the losses would have been far worse.
 
-Wu Mingjin looked to his trusted advisor, Liu Dalin: "Elder, what do you think?"
+But the bad news kept mounting. First, scouts reported that the pirates had established a large camp at Bopu and were unloading cargo day and night. Then the famously fierce Huang family militia had been routed. Now the pirates were building roads. No one could fathom what these shaven-headed bandits intended.
 
-The *jinshi* propped his head with one hand. After a long pause: "Your Honor, this bodes great peril."
+Wu Mingjin turned to his trusted advisor. "Elder Liu, what do you make of this?"
 
-Both Magistrate Wu and Vice-Magistrate Wu startled. The magistrate quickly bowed: "Please enlighten me, Elder."
+The *jinshi* sat with his head propped on one hand, deep in thought. After a long pause, he spoke. "Your Honor, this bodes great peril."
 
-"I fear these shaven-headed pirates intend to attack the city!"
+Both Magistrate Wu and Vice-Magistrate Wu started in their seats. The magistrate quickly bowed. "Please enlighten me, Elder."
 
-"How so?"
+"I fear these shaven-headed pirates intend to attack the city."
 
-"Mountain and sea bandits travel light for raids. Why build roads? If building roads, the only explanation is intent to attack the city. I believe the pirates must have siege equipment—extremely heavy—requiring roads to transport to the walls."
+"How do you reach that conclusion?"
 
-Siege equipment so heavy it needed roads—how massive must it be? The whole hall fell silent. Wu Mingjin's voice trembled: "Could it be... the Red-Barbarian Cannon..."
+"Mountain and sea bandits travel light for their raids. Why would they build roads? If they are building roads, the only explanation is that they mean to assault our walls. I believe the pirates must possess siege equipment—extremely heavy equipment—that requires proper roads to transport to the city."
 
-"No other explanation."
+Siege equipment so heavy it required roads to move—how massive must such weapons be? The entire hall fell silent. Wu Mingjin's voice trembled when he finally spoke. "Could it be... the Red-Barbarian Cannon..."
 
-Hainan was near Guangdong and Macau; European ships occasionally passed. The court purchasing cannons from the Europeans in Guangzhou was known in official circles. Wu Mingjin knew these cannons were extremely heavy but devastatingly powerful—the court used them in Liaodong defense. Last year, Guangning's siege was held thanks to these cannons—truly military treasures.
+"I can think of no other explanation."
 
-If such a weapon were dragged to the city walls—the magistrate dared not imagine the consequences.
+Hainan lay near Guangdong and Macau; European ships occasionally passed through these waters. It was known in official circles that the court had purchased cannons from the Europeans in Guangzhou. Wu Mingjin knew these weapons to be extraordinarily heavy yet devastatingly powerful—the court deployed them for the defense of Liaodong. Just last year, the siege at Guangning had been held thanks to these very cannons. They were truly military treasures.
 
-"What can be done? This is just a small county." Vice-Magistrate Wu had already cried out in alarm. His unspoken implication was clear to all present: what did this remote small county have that was worth such massive pirate effort? What sin had Lingao committed to attract such devastating weaponry?
+If such a weapon were dragged to the walls of Lingao—the magistrate dared not imagine the consequences.
 
-They did not yet know they faced something even more terrifying than Red-Barbarian Cannons. As storytellers in Lingao's teahouses would later say: "Tragedy!"
+"What can possibly be done? This is just a small county." Vice-Magistrate Wu had already cried out in alarm. What he left unspoken was clear to everyone present: what could this remote backwater possibly possess that would justify such massive pirate effort? What offense had Lingao committed to attract such devastating force?
 
-All eyes turned to Captain Sun in his mandarin-duck coat. This hereditary centurion had originally thought this was a cushy assignment. Upon arriving, he had collected ten taels of silver as a reward; he had skimmed half the soldiers' bonuses too. These two days meant wine and meat every meal—far more comfortable than the half-dead garrison life. As for pirates attacking the city—he thought that impossible.
+They did not yet know they faced something even more terrifying than Red-Barbarian Cannons. As the storytellers in Lingao's teahouses would later say: "Tragedy!"
 
-Now seeing the whole hall staring at him, he panicked. He knew well that despite his hereditary centurion title, he was really just a small landlord. The thirty soldiers he had brought spent more time holding hoes than weapons. Their only real asset was one Frankish cannon. How could he produce a strategy? Besides, if the pirates truly dragged Red-Barbarian Cannons here, he would be too busy fleeing. Knowing anything he said would be wrong, he simply feigned composure and said nothing.
+All eyes turned to Captain Sun in his mandarin-duck coat. This hereditary centurion had originally thought this assignment would be an easy posting. Upon arriving, he had collected ten taels of silver as a reward and had skimmed half the soldiers' bonuses for himself as well. These past two days had meant wine and meat at every meal—far more comfortable than the half-dead existence of garrison life. As for pirates actually attacking the city—he had thought it impossible.
 
-Magistrate Wu silently cursed Captain Sun as useless—but he had never expected garrison troops to accomplish much anyway. This matter would likely require requesting General Tang to send troops.
+Now, finding the entire hall staring at him expectantly, he felt panic rising in his chest. He knew perfectly well that despite his hereditary centurion title, he was really just a small landlord playing soldier. The thirty men he had brought spent more time holding hoes than weapons. Their only real military asset was a single Frankish cannon. How could he possibly produce a strategy? Besides, if the pirates truly dragged Red-Barbarian Cannons to these walls, he would be too busy fleeing to fight. Knowing that anything he said would be wrong, he simply assumed an expression of thoughtful composure and said nothing at all.
 
-"The only current strategy is harassment," said Liu Dalin. "The shaven-headed pirates building roads cannot always stay clustered together. We send more militia, offer heavy rewards—harass with arrows, seize chances to set fires, disrupt them day and night. That should obstruct their road-building."
+Magistrate Wu silently cursed Captain Sun as useless—but then again, he had never expected much from garrison troops in the first place. This matter would likely require petitioning General Tang to send reinforcements.
+
+"The only viable strategy at present is harassment," Liu Dalin finally offered. "These shaven-headed pirates building roads cannot remain clustered together at all times. We should dispatch more militia and offer substantial rewards. Harass them with arrows, seize opportunities to set fires, disrupt their work day and night. That should obstruct their road-building efforts."
 
 **(End of Chapter)**

@@ -1,59 +1,57 @@
 # Chapter 128: The Radio
 
-Zhang Yuchen knew: outdoors somewhere, in some dark corner, in some back alley, or in some quiet courtyard room, someone sat before a radio—carefully turning dials, headphones on—a hunter cautiously stalking prey through the airwaves...
+Zhang Yuchen could picture it clearly: somewhere out there in the city, tucked away in a shadowed alley or behind the shuttered windows of a quiet courtyard, a man hunched over a radio receiver. Headphones clamped to his ears, fingers delicately working the dials, he would be a hunter stalking his prey through the invisible currents of the airwaves...
 
-The fantasy stopped there, because the mental image of this radio hunter wore Flying Fish robes. Zhang Yuchen shook his head, dispelling the spy-movie fantasy. The Brocade Guards lacked direction-finding equipment. But right now, he was doing exactly what hunted radio operators did.
+The fantasy dissolved the moment he imagined that hunter wearing Flying Fish robes. Zhang Yuchen shook his head and banished the spy-movie daydream. The Brocade Guards possessed no direction-finding equipment—they couldn't triangulate a signal if their lives depended on it. Still, he found it amusing that he was now doing exactly what those hunted radio operators did in the old films.
 
 *Transmigration Political Security Bureau Personal Assessment of Transmigrator Zhang Yuchen (Top Secret):*
 *"Born XXXX/XX/XX. Joined transmigration enterprise XXXX/XX. Han ethnicity. Political orientation: moderate socialist. Personality—gentle, approachable with friends, taciturn; merciless toward enemies. Upstanding character, no bad habits, clear social ties. Expertise: communications and cryptography. Evaluation—a rare professional expert—"*
 
-Zhang Yuchen had previously worked in telecommunications. Due to his cryptography expertise, he had been transferred to Intelligence for this Guangzhou underground operation as the designated radio operator.
+Before all this, Zhang Yuchen had worked in telecommunications. His background in cryptography had made him the natural choice when Intelligence needed a radio operator for the Guangzhou underground operation. The new assignment had rattled him at first—but then he'd started imagining himself as a secret operative broadcasting from behind enemy lines, just like in the novels and films, and his blood had quickened with anticipation. In a burst of enthusiasm, he'd even compiled an entire cipher set before departure. When he presented the codebook to Shao Zong with solemn ceremony, his superior had only laughed.
 
-The new assignment had initially unsettled him—but imagining himself as a secret radio operator behind enemy lines, like in the novels and films, his blood boiled with anticipation. In his excitement, he had even compiled a cipher set before departure. When he solemnly presented the codebook to Shao Zong, the latter laughed ruefully:
+"Who exactly are you encrypting messages against? In this timespace, who else has radios besides us?"
 
-"Who's this cipher for? In this timespace—besides us—who has radios?"
+"Well—" Zhang Yuchen scratched his head sheepishly. "It'll come in handy someday."
 
-"Well—" Zhang Yuchen scratched his head. "It'll be useful someday."
+As it turned out, the cipher set did prove useful later on.
 
-This cipher set did indeed prove useful later on.
+At 15:50 hours, alone in the empty radio room, Zhang Yuchen rubbed his hands together the way a man might warm himself by a fire on a bitter winter night—half nervous energy, half ritualistic preparation for what lay ahead.
 
-15:50 hours. In the empty radio room, Zhang Yuchen rubbed his hands like someone warming by a fire on a cold night—half from nervousness, half from meticulous preparation.
+The forward station's scheduled contact with Bairren Fortress was at 16:00. Intelligence regulations mandated daily check-ins to confirm operational safety; three consecutive missed contacts would trigger the dispatch of a rescue team. This would be his first real transmission.
 
-The forward station's scheduled contact with the Bairren Fortress base station was at 16:00. Per Intelligence regulations, stations made daily contact to confirm safety. Three consecutive missed contacts would trigger the dispatch of a rescue team. Today would be his first transmission.
+He assembled the transmitter and connected the power supply—lead-acid battery banks with a hand-crank generator available for recharging. The antenna wire snaked up through the window and hung from a tree in the courtyard.
 
-He set up the transmitter and connected the power. Power came from lead-acid battery banks, with a hand-crank generator available for charging. The antenna was strung on a courtyard tree.
+The message sat before him: four-digit groups, plaintext. Beyond the routine confirmation of their safe arrival, it contained Xiao Zishan's work report—and clearly the man had never drafted a telegram in his life. His rambling prose had ballooned the message to an unwieldy length. Fortunately, with no radio-detection vehicles prowling the streets, brevity wasn't a matter of survival.
 
-The message lay before him—four-digit groups, plaintext. Besides confirming their safe arrival, it contained Xiao Zishan's work report—clearly the man had never written telegrams before. His rambling prose had made the message very long. Fortunately, without radio-detection vehicles to worry about, brevity was not a safety issue.
+When 16:00 arrived, Zhang Yuchen nodded to Guo Yi and Xiao Zishan through the doorway, then pulled on his headphones. His fingers found the dial and spun it quickly. Almost immediately, the base station's call sign flooded his ears, loud and crystalline: "GDA... GDA... GDA..." The signal traversed the vast distance between them, repeating steadily, and confidence swelled in his chest. Barring any surprises, the operator on the other end would be Li Chiqi's cousin Zhang Yu—the nineteen-year-old girl who had been lured here by her scheming cousin's promise of "somewhere fun to visit." After she'd fainted and vomited at the sight of blood during nurse training, Shao Zong had talked her into becoming a radio operator instead.
 
-16:00 arrived. He nodded to Guo Yi and Xiao Zishan inside, then donned his headphones. Quickly tuning the dials, he immediately heard loud, clear calls from the base station: "GDA... GDA... GDA..." The calls traversed space repeatedly, filling him with confidence. Barring surprises, the operator on the other end was Li Chiqi's cousin Zhang Yu—the nineteen-year-old girl who had been tricked into coming here by her scheming cousin, who had told her "let's go somewhere fun." After fainting from blood exposure during nurse training—and vomiting as well—she had subsequently been conned by Shao Zong into becoming a radio operator.
+That clear signal meant their lifeline to Bairren Fortress remained intact. Zhang Yuchen fine-tuned the frequency until the reception peaked. The electromagnetic spectrum in this timespace was blessedly empty—no competing broadcasts, no static from distant stations. The sky was silent.
 
-Hearing those calls also meant the safety tether to Bairren Fortress was intact. He adjusted the frequency for the strongest signal. Fortunately, this timespace had no other radio waves—the sky was silent.
+He began transmitting the Guangzhou station's call sign: "GDA," repeated several times. Then he leaned back and listened.
 
-He began transmitting Guangzhou station's call sign: "GDA" several times—then leaned back, listening.
+"BRL... BRL... BRL"—the Bairren base station's response came through, sharp and strong against the pristine background.
 
-"BRL... BRL... BRL"—the Bairren base station responded. The signal was loud and clear against the clean background.
+The base was ready to receive. Zhang Yuchen checked the clock, then pressed the telegraph key. Within seconds, he had lost himself entirely in the work—mind and body fused into a single instrument, focused on his nimble fingers and the key's staccato rhythm of dots and dashes.
 
-The base station was ready to receive. Zhang Yuchen glanced at the clock and pressed the key. Seconds later, he forgot himself—his mind and body concentrated entirely on his nimble fingers, on the key's staccato long-and-short clicks.
+His form was extraordinary, faster than any practice session. At 16:22, he transmitted the final code group, then signed off with "GDA" to signal the message's end. He sat back and waited for acknowledgment. At Bairren Fortress's "Lingao Telecom" building, the novice Zhang Yu was probably decoding group by group, checking for missed or garbled codes. Any errors would require retransmission.
 
-His form seemed extraordinarily good—faster than any practice session. At 16:22, after the final code group, he transmitted "GDA" to signal the end of the message. He leaned back, listening for the base station acknowledgment. At Bairren Fortress's "Lingao Telecom" building, the novice Zhang Yu was probably decoding group by group—confirming there were no missed or erroneous codes. Errors would require retransmission.
+About fifteen minutes later, "BRL" crackled through—reception confirmed. The transmigrators' first long-distance telegram was complete.
 
-About fifteen minutes later, "BRL" sounded—reception confirmed successful. The transmigrators' first long-distance telegram transmission was complete.
+"Right about now, Ding Ding's probably dragging his Western mare along for live coverage of this historic moment." Xiao Zishan laughed. "'Dear viewers and listeners, perhaps you've just switched on the elevator—'"
 
-"Right now, Ding Ding's probably dragging his Western mare along for live coverage of this historic moment." Xiao Zishan laughed. "'Dear viewers and listeners, perhaps you've just switched on the elevator—'"
+"A Western mare—I could use one of those myself." Zhang Yuchen's inner otaku was showing.
 
-"A Western mare—I want one too." Zhang Yuchen's inner otaku emerged.
+"When are we going to Macau? Time to sample some foreign flavor!" The others were growing restless.
 
-"When are we going to Macau? Let's try some foreign flavor!" Several of them were getting restless.
+"Forget it—women who haven't bathed in ten years? She could be Audrey Hepburn's ancestor and I still wouldn't be interested."
 
-"Forget it—women who don't bathe for ten years... Even if she's Audrey Hepburn's ancestor, I'm not interested."
+"Little Guo, I hear Salina's taken a shine to you?" Xiao Zishan shifted into gossip mode.
 
-"Little Guo, Salina seems pretty nice. I heard she's interested in you?" Xiao Zishan started gossiping.
+Guo Yi's face reddened immediately. "That's not true at all! We barely interact." It wasn't entirely false—during his Security Group assignment, Salina had shown interest—but he'd maintained strict distance to avoid any misunderstandings.
 
-Guo Yi suddenly blushed. "No such thing! We rarely interact." This was true—during his Security Group work, Salina had shown interest. But fearing misunderstandings, he had maintained strict distance.
+"Why so bashful? Landing a Western mare for a girlfriend wouldn't be half bad. Spreading China's divine might, sowing seeds across the four seas—" Xiao Zishan chuckled, and the others piled on with their own ribald jokes. They were still carrying on when the radio suddenly came alive with clicking. Zhang Yuchen grabbed his headphones, pressed them to his ears, and began transcribing.
 
-"Why so shy? Getting a Western mare girlfriend isn't bad. Spreading China's divine might, sowing seeds across the four seas—" Xiao Zishan chuckled. Others chimed in with their own jokes. While they were talking, the radio suddenly started clicking. Zhang Yuchen quickly donned headphones, listened carefully, and began transcribing.
-
-"What's the message?" Everyone tensed up. There had been no earlier reply—now this sudden transmission. Was it some important directive?
+"What's the message?" The room tensed. There had been no scheduled reply—this unexpected transmission could only mean something important.
 
 "Agricultural Department to Guangzhou Forward Station—" Zhang Yuchen transcribed while decoding: "Please procure in Guangzhou:
 
@@ -69,46 +67,46 @@ Donkeys: 10
 
 ..."
 
-"Heavens—Wu Nanhai thinks this is a farmers' market!" Lu Rong exclaimed. "Donkeys? I've never even seen donkeys in Guangdong!"
+"Good heavens—Wu Nanhai thinks this is a farmers' market!" Lu Rong exclaimed. "Donkeys? I've never even seen a donkey in Guangdong!"
 
-"Horses aren't easy either," Zhang Xin said. "Maybe up north. In Guangzhou—probably only from the military."
+"Horses won't be easy either," Zhang Xin added. "Maybe up north you could find them, but in Guangzhou? Probably only through military channels."
 
-Most puzzling of all was the two thousand kilograms of oil. What for? Before departure, the cafeteria food—though slightly improved from the early days—was famously oil-lacking. Fried foods never appeared. Stir-fries were rare. Only the big-pot soups had stingy drops of lard floating on top. Was Wu Nanhai in a rush to improve meals with fried foods?
+Most baffling of all was the two thousand kilograms of oil. What on earth was that for? Before they'd departed, the cafeteria food—slightly improved from the early starvation days, but still infamous for its lack of grease—had never included anything fried. Stir-fries were rare luxuries. Even the communal soups had only the stingiest film of lard floating on top. Was Wu Nanhai in a sudden rush to improve morale with deep-fried delicacies?
 
-"I'm guessing the oil isn't his request—probably for soap."
+"I'm guessing the oil isn't his idea," someone ventured. "Probably for soap."
 
-"Soap!" Zhang Xin's eyes lit up. "That's a transmigration money-making weapon! Every household needs soap."
+"Soap!" Zhang Xin's eyes lit up. "Now that's a transmigration money-maker if there ever was one! Every household needs soap."
 
-"We can make different grades: various scented soaps and transparent soaps for the wealthy. Maybe add some aphrodisiac effects for the brothels—"
+"We could manufacture different grades—scented varieties and transparent soaps for the wealthy. Maybe add some aphrodisiac properties for the brothels—"
 
 "What counts as an aphrodisiac?" Yan Maoda asked.
 
-"Myrrh or something? Anyway, the Arabs do this kind of stuff."
+"Myrrh or something? The Arabs do that sort of thing."
 
-"What's myrrh? The Arabian Peninsula is far away."
+"What's myrrh? The Arabian Peninsula is a world away."
 
-"Don't worry—what doesn't Guangzhou have?" Guo Yi was confident. "We haven't fully mapped out the local supplies yet."
+"Don't worry—what doesn't Guangzhou have?" Guo Yi was confident. "We haven't even finished mapping out the local supply chains yet."
 
-Yan Maoda nodded. "First, we establish what Guangzhou can supply—then what we can sell to Guangzhou."
+Yan Maoda nodded thoughtfully. "First priority is establishing what Guangzhou can supply. Then we figure out what we can sell to Guangzhou."
 
-Trade goods had been discussed in various meetings. Per Industrial Department reports, near-term products included: salt, cigarettes, glassware, refined sugar, matches, soap, and iron products—mainly sewing needles. Someone had proposed liquor—but Ming-era distilled spirits were already widespread and would not generate premium profits.
+Trade goods had already been discussed at length in various planning meetings. According to Industrial Department reports, their near-term products would include salt, cigarettes, glassware, refined sugar, matches, soap, and iron goods—primarily sewing needles. Someone had proposed liquor, but Ming-era distilled spirits were already widespread throughout the region. There was no premium to be captured there.
 
-"About liquor—I have an idea. But it needs Agricultural and Industrial cooperation." Zhang Hongda said.
+"About liquor—I have an idea," Zhang Hongda said. "But it would require cooperation between Agricultural and Industrial."
 
 Xiao Zishan nodded. "I'll coordinate with them when I get back to base."
 
-"We've lost first-mover advantage on baijiu—but packaging can open new markets."
+"We've lost first-mover advantage on baijiu itself, but creative packaging could open entirely new markets."
 
-Zhang Xin already understood. "New bottles, old wine?!"
+Zhang Xin understood immediately. "New bottles, old wine!"
 
-Yan Maoda nodded. "Exactly. We needn't even brew it ourselves—brewing requires grain. Bulk-purchase baijiu here in Guangzhou; ship glass bottles from Lingao; bottle locally. The value will instantly multiply."
+Yan Maoda grinned. "Exactly. We don't even need to brew it ourselves—brewing requires grain we can't spare. We bulk-purchase baijiu here in Guangzhou, ship glass bottles from Lingao, and bottle locally. The perceived value multiplies overnight."
 
-"Excellent!" Xiao Zishan was energized by the idea.
+"Excellent!" Xiao Zishan was energized by the prospect.
 
-"Thinking further—there are even more possibilities. Like dyeing the baijiu golden—like XO cognac?" Guo Yi spoke up.
+"If we're thinking along those lines, the possibilities expand even further," Guo Yi spoke up. "What if we dyed the baijiu golden—made it look like XO cognac?"
 
-Everyone stared at him. Guo Yi felt his scalp tingling. "What?"
+Everyone turned to stare at him. Guo Yi felt his scalp prickle under the scrutiny. "What?"
 
-Yan Maoda chuckled. "Sometimes outsiders make the craftiest swindlers."
+Yan Maoda chuckled. "Sometimes it's the outsiders who make the craftiest swindlers."
 
 **(End of Chapter)**

@@ -1,135 +1,135 @@
 # Chapter 68: Wu De's New Assignment (Part 2)
 
-"I think you had better continue with bioengineering—that would help the crossing enterprise more."
+"I think you'd be better off sticking with bioengineering—that would help the crossing enterprise far more."
 
-"If you do not like my smoked fish, just say so." Hu Yicheng looked crestfallen. "Fine. I just finished dissecting a rabbit anyway..."
+"If you don't like my smoked fish, just say so." Hu Yicheng's face fell. "Fine. I just finished dissecting a rabbit anyway..."
 
-"Rabbit?!" Wu De started. This was good stuff.
+"Rabbit?!" Wu De perked up instantly. Now that was the good stuff.
 
-"Caught yesterday." Hu Yicheng smiled like a fox. "Planning to roast it for lunch."
+"Caught it yesterday." Hu Yicheng grinned like a fox who'd found the henhouse. "I'm planning to roast it for lunch."
 
-"Lunch?" Wu De regretfully realized that by then he would be on watch at the construction site—no chance for roast rabbit.
+Wu De's heart sank as he realized that by noon he'd be standing watch at the construction site—no chance of tasting that roast rabbit.
 
-"But I can save you a front leg..."
+"But I could save you a front leg..."
 
-Wu De was about to thank him when an old saying came to mind: *When someone offers favors for nothing, they are either a thief or a swindler.* He barely knew this Xiao Hu—why offer rabbit?
+Wu De was about to thank him when an old saying surfaced in his mind: *When someone offers favors for nothing, they're either a thief or a swindler.* He barely knew this Xiao Hu—why the sudden generosity?
 
-Sure enough, Hu Yicheng immediately revealed his tail: "Yesterday, um, I saw you making seafood rice. Could I, uh, join your mess?"
+Sure enough, Hu Yicheng immediately revealed his true intentions: "Yesterday, um, I saw you making that seafood rice. Could I maybe... join your mess?"
 
-"Sure, but bring your own rice." Wu De agreed readily—seafood rice was better with more portions.
+"Sure, but bring your own rice." Wu De agreed readily enough—seafood rice only got better with larger portions.
 
-"That would be great—I can also learn." He pointed toward the back kitchen. "Group Leader Wu Nanhai just got back. Caught over ten baskets of fish this morning—trying to figure out how to process them."
+"That would be wonderful—I could learn from you too." Hu Yicheng gestured toward the back kitchen. "Group Leader Wu Nanhai just got back. They caught over ten baskets of fish this morning and he's trying to figure out how to process them all."
 
-"Process? I should check that out—do not want it ruined again." This timespace really was resource-rich.
+"Process? I should take a look—don't want it ruined like last time." This timespace really was blessed with abundant resources.
 
-"I will take you." Hu Yicheng apparently admired Wu De's cooking skills. Hearing he would supervise the cooking, he was delighted.
+"I'll take you." Hu Yicheng clearly admired Wu De's culinary skills, and the prospect of having him supervise the cooking had put a spring in his step.
 
-In back, a canvas shed had been set up with tree-trunk posts. Inside, it was steaming hot. A row of large pots was set up, fires burning, wood being chopped, water being carried—busy, busy, busy... and there were several women! Wu De was glad he had had the foresight to put on underwear—otherwise he would be an exhibitionist.
+Out back, a canvas shed had been erected on tree-trunk posts. The moment Wu De stepped inside, the steamy heat hit him like a wall. A row of large pots sat over roaring fires while workers chopped wood and hauled water in a ceaseless rhythm of activity—and he noticed several women among the crew. Wu De silently congratulated himself on his foresight in putting on underwear that morning. Otherwise he'd have been quite the exhibitionist.
 
-Entering the "kitchen," he saw a guy hunched over a laptop working. Xiao Hu called out: "Nanhai, someone is here to help with the fish!"
+Inside the makeshift kitchen, a man sat hunched over a laptop. Xiao Hu called out to him: "Nanhai, someone's here to help with the fish!"
 
-Wu Nanhai looked up: "Ah De? You are a fisherman—why have I not seen you on the boats lately?" He looked him up and down. "A few days gone and you look like a native."
+Wu Nanhai looked up from his screen. "Ah De? You're a fisherman—why haven't I seen you on the boats lately?" He looked Wu De up and down with an amused expression. "A few days away and you've gone completely native."
 
-"I have been on guard duty. Used to be a sailor; now I am a marine." He looked at himself: stripped down, lean, already dark-skinned, now barefoot and bare-chested in just shorts... quite the primitive look.
+"Been on guard duty. Used to be a sailor; now I'm a marine." Wu De glanced at himself: stripped down to essentials, lean and wiry, his already dark skin now deeply tanned, barefoot and bare-chested in nothing but shorts. He certainly looked the part of a primitive.
 
-"Nanhai, are you not in the Agriculture Group? Should you not be doing vegetable greenhouses, raising chickens and pigs—not playing cook?"
+"Nanhai, aren't you in the Agriculture Group? Shouldn't you be building vegetable greenhouses and raising chickens and pigs—not playing head cook?"
 
-"Xiao Zishan's idea. That kid wanted to dump the cafeteria headache, so he claimed agriculture equals food issues, making me Cafeteria Office Director as 'natural,'" Wu Nanhai said helplessly. "Actually, I want to care for the rabbits and chickens. The chickens seem not to have adjusted—or got spooked—have not laid eggs since coming ashore. No idea when they will recover. And the pigs are not well either—will not eat—worrying..." His tender concern for the pigs, cattle, sheep, chickens, and ducks made Wu De shudder.
+"Xiao Zishan's brilliant idea." Wu Nanhai's voice dripped with resignation. "That kid wanted to dump the cafeteria headache on someone else, so he argued that agriculture naturally encompasses food issues, which made me the 'obvious choice' for Cafeteria Office Director." He sighed heavily. "What I actually want is to care for the rabbits and chickens. The chickens haven't adjusted—or something spooked them—they haven't laid a single egg since coming ashore. No idea when they'll recover. And the pigs aren't doing well either—refusing to eat—it's worrying..." The tender concern he showed for the pigs, cattle, sheep, chickens, and ducks made Wu De shudder.
 
-"Cafeteria Office has quite a few ladies. Lucky you..."
+"Still, the Cafeteria Office has quite a few ladies. Lucky you..."
 
-"Lucky? They are all someone else's wives." Wu Nanhai had no interest. "Besides, I am not into modern women. If I am going to raise one, I will start from a loli. Speaking of which, the Committee should be sending someone to Guangzhou to buy lolis soon, right?"
+"Lucky? They're all someone else's wives." Wu Nanhai showed zero interest. "Besides, I'm not into modern women. If I'm going to raise one, I'll start from a loli. Speaking of which, shouldn't the Committee be sending someone to Guangzhou soon to buy lolis?"
 
-They were deep in discussing critical matters—at what age lolis were mature, and whether to raise them as *tsundere, kuudere, natural airhead,* or *glasses girl*—when a fat man stormed in furiously. Wu Nanhai's face changed; he tried to bury his head deeper but was yanked out.
+They were deep in discussion of critical matters—at precisely what age lolis reached maturity, and whether to raise them as *tsundere, kuudere, natural airhead,* or *glasses girl*—when a heavyset man stormed in, fury radiating from every pore. Wu Nanhai's face went pale; he tried to bury his head deeper into the laptop, but the man yanked him upright.
 
 "Where is my 'Blue Lightning'?"
 
-Wu Nanhai said miserably: "Well... please accept my condolences... we buried it. You know, the weather is hot..."
+Wu Nanhai's voice came out miserable: "Well... please accept my condolences... we buried it. You know how hot the weather's been..."
 
-The newcomer's face froze. Tears welled in his eyes. He turned and left abruptly—leaving everyone stunned.
+The newcomer's expression froze. Tears welled in his eyes. He turned and walked out without another word—leaving everyone stunned in his wake.
 
 "Who was that?..."
 
-Wu Nanhai said: "That is Nikecha, back from Australia. Brought two racehorses and some carrier pigeons."
+"That's Nikecha, just back from Australia," Wu Nanhai explained. "He brought two racehorses and some carrier pigeons."
 
-The two retired racehorses "Alanchi" and "Blue Lightning" had both been registered with an Australian racing association, though getting old. Nikecha had hoped to use his expertise to form a cavalry someday. But after arriving, harsh reality crushed his dreams. Horses are sensitive animals; the commotion after landing spooked "Blue Lightning." Despite the restraining frames, it stubbornly kept smashing its head against the wooden beam. Only after personnel and supplies were unloaded were horses and livestock hoisted ashore. The camp had no clean stables or horse hay. The nascent base could barely pipe in drinking water for humans; the daily supply of clean warm water horses needed could not be provided.
+The two retired racehorses, "Alanchi" and "Blue Lightning," had both been registered with an Australian racing association, though they were getting on in years. Nikecha had hoped to use his expertise to form a cavalry someday. But harsh reality had crushed those dreams the moment they arrived. Horses are sensitive creatures, and the chaos following their landing had thoroughly spooked Blue Lightning. Despite the restraining frames, the horse had stubbornly kept smashing its head against the wooden beam. Only after all personnel and supplies were unloaded were the horses and livestock hoisted ashore—by which time the damage was done. The camp had no proper stables or horse hay. The nascent base could barely pipe in drinking water for humans; the daily supply of clean warm water that horses required was simply impossible to provide.
 
-"He personally went to the Committee, repeatedly explaining how precious the horses were, and demanded 'at least five human portions' of beans and wheat daily."
+"He personally went to the Committee," Wu Nanhai continued, "repeatedly explaining how precious the horses were. He demanded 'at least five human portions' of beans and wheat daily."
 
-"Result?"
+"And?"
 
-"Need you ask? Where would the ship have soybeans, black beans, or barley? I only have some seeds. We brought some grain, but to save space, all rice."
+"Need you ask? Where would the ship find soybeans, black beans, or barley? I only have seeds. We brought grain, but to save space, it's all rice."
 
-"So he was refused?"
+"So they refused him?"
 
-"More precisely, politely declined—because that bastard Xiao Zishan kicked the ball to me again!" Wu Nanhai said indignantly. "He insisted I have the most love for animals. I am interested in obtaining animal products—not about love. Now anything involving live creatures gets dumped on Agriculture Group."
+"More precisely, they politely declined—because that bastard Xiao Zishan kicked the ball to me again!" Wu Nanhai's indignation boiled over. "He insisted I have the most love for animals. I'm interested in *obtaining animal products*—that's not the same as love! Now anything involving live creatures gets dumped on the Agriculture Group."
 
-As if to prove his words, barking erupted from behind a bamboo fence—rising and falling, then joined by horse neighs, cattle lowing, pig grunts, chickens and ducks joining the racket. A cat with a bow tie around its neck rubbed against Wu Nanhai's pant leg.
+As if to prove his point, barking erupted from behind a bamboo fence—rising and falling in a canine chorus, soon joined by horse neighs, cattle lowing, pig grunts, and the frantic clucking and quacking of chickens and ducks. A cat with a bow tie around its neck wound itself around Wu Nanhai's leg.
 
-"That is Yang Baogui's dog. He brought five—says they are future military/police dogs..."
+"That's Yang Baogui's dog. He brought five of them—says they're future military and police dogs..."
 
-"What about the horse?" Wu De could not forget the racehorse.
+"What happened to the horse?" Wu De couldn't let go of the racehorse's fate.
 
-"Embarrassingly, he personally delivered the horse and pigeons, telling me to take care of these 'voiceless friends.'" Wu Nanhai grabbed a small fish from a basket and tossed it to the cat. "I never learned horse husbandry—do not know how to do it. The horse refused to eat—"
+"Embarrassingly, Nikecha personally delivered the horse and pigeons to me, asking me to care for these 'voiceless friends.'" Wu Nanhai grabbed a small fish from a basket and tossed it to the cat. "I never learned horse husbandry—didn't know what I was doing. The horse refused to eat anything—"
 
-Hu Yicheng nearby nodded: "That horse was really hard to please. Would not eat the grass we cut. Just fasted."
+Hu Yicheng nodded in confirmation. "That horse was impossible to please. Wouldn't touch the grass we cut for it. Just fasted."
 
-"Right, seemed agitated too," Wu Nanhai said. Nikecha had tried everything but could not calm the horse. Days without eating, plus heat, plus flies and mosquitoes—it collapsed yesterday.
+"Right, and it seemed agitated too," Wu Nanhai added. Nikecha had tried everything but couldn't calm the animal. Days without eating, combined with the relentless heat and swarms of flies and mosquitoes—the horse had collapsed yesterday.
 
-"Last night I called Yang Baogui—he is a vet. He said it was hopeless. Then it died. I did not dare tell Old Ni..."
+"Last night I called Yang Baogui—he's a vet. He took one look and said it was hopeless. Then it died. I didn't dare tell Old Ni..."
 
-"That is a pity—racehorses have great bloodlines."
+"That's a real shame—racehorses have excellent bloodlines."
 
-"Actually, nothing to pity," Hu Yicheng said dismissively. "Both were geldings. What use are eighteen- or nineteen-year-old geldings?"
+"Actually, nothing to mourn," Hu Yicheng said dismissively. "They were both geldings. What use are eighteen- or nineteen-year-old geldings?"
 
-"I agree—nothing to lose." Wu Nanhai was also unconcerned. "Racehorses cannot do farm work—cannot pull carts or plow fields. Draft horses are more useful."
+"I agree—no great loss." Wu Nanhai was equally unmoved. "Racehorses can't do farm work—can't pull carts or plow fields. Draft horses are what we actually need."
 
-"Anyway, the fish?"
+"Anyway, what about the fish?"
 
-"All in those baskets." Wu Nanhai frowned. "Do not know what to do—boiled fish every day..."
+"All in those baskets." Wu Nanhai frowned at the pile. "I have no idea what to do with them—it's been boiled fish every single day..."
 
-"Tomorrow there will be..."
+"Tomorrow there'll be—"
 
-"Shh, what are you babbling about?" Wu Nanhai nodded toward the women in the shed, whispering. "You want to be drowned in spit? I am warning you—if this leaks, I know nothing."
+"Shh! What are you babbling about?" Wu Nanhai shot a meaningful look toward the women working in the shed and dropped his voice to a whisper. "You want to be drowned in spit? I'm warning you—if this leaks, I know nothing."
 
 "Fine, fine."
 
-"Rabbit meat?"
+"What about the rabbit meat?"
 
-"Hey, first help me figure out how to deal with this pile of fish." Wu Nanhai dragged him to the baskets—dripping wet, smelling of salty sea. It felt familiar to Wu De.
+"Hey, first help me figure out what to do with this mountain of fish." Wu Nanhai dragged him over to the baskets—dripping wet, reeking of brine and the sea. The smell felt strangely familiar to Wu De.
 
-The baskets held all sorts of fish, big and small—even a small shark. That thing had too much ammonia smell; needed processing to be edible.
+The baskets held fish of every variety, large and small—even a small shark lurked among them. That thing had far too much ammonia; it would need special processing before anyone could stomach it.
 
-"For seafood appreciation, boiling is best—preserves original flavor. But for daily protein supplementation, plain boiling is too bland. My method is not fancy—just seafood rice or grilling."
+"For true seafood appreciation, boiling is best—it preserves the original flavor," Wu De explained. "But for daily protein supplementation, plain boiling is too bland. My approach isn't fancy—just seafood rice or grilling."
 
-"Grilled fish? We do not have spices..."
+"Grilled fish? We don't have any spices..."
 
-"Can do without spices. Seafood rice is even simpler." He checked his watch—nearly 10. His shift started at noon; he had time to eat and demonstrate. "I will show you."
+"You can do without spices. And seafood rice is even simpler." He checked his watch—nearly ten o'clock. His shift started at noon; he had time to eat and demonstrate. "I'll show you."
 
-"What is the maximum the field-kitchen rice pot can handle?"
+"What's the maximum the field-kitchen rice pot can handle?"
 
 "About one hundred portions at 200 grams per person."
 
-"Fine, I will make one batch first—then you continue."
+"Fine, I'll make one batch first—then you can continue from there."
 
-Wu Nanhai, seeing a volunteer, quickly assembled the Cafeteria Office staff.
+Wu Nanhai, delighted to have found a volunteer, quickly assembled the Cafeteria Office staff.
 
-Wu De directed everyone to clean and sort the fish by size and species. Red-meat fish and white-meat fish separated; oily ones separated from lean; everything graded by size.
+Wu De directed everyone to clean the catch and sort it by size and species. Red-meat fish went in one pile, white-meat fish in another; oily specimens were separated from lean ones; everything graded by size.
 
-"Sea fish come in many varieties; we use them differently. Once the catch is ashore, sort promptly for easier processing."
+"Sea fish come in countless varieties, and we use them differently," he explained. "Once the catch is ashore, sort it promptly—makes processing much easier."
 
-He then led people to the riverside to gather wild vegetables. Last night nearby he had found plenty: plantain, bitter greens, wild onion, and wild perilla. He picked two bundles, washed them in the river, tied them with grass, and brought everything back.
+He then led a group to the riverside to gather wild vegetables. The night before, he'd discovered an abundance growing nearby: plantain, bitter greens, wild onion, and wild perilla. He picked two generous bundles, washed them clean in the river, tied them with grass, and brought everything back to the kitchen.
 
-The stove was fed large amounts of firewood. With a dedicated bellows-operator, flames quickly grew. Water boiled; rice went in. While the rice cooked, he led by example processing fish.
+The stove was fed great quantities of firewood. With someone working the bellows, flames roared to life. Water boiled; rice went in. While the rice cooked, Wu De led by example in processing the fish.
 
-Fish heads, tails, and guts went aside; bodies were chopped into small pieces. Shellfish were pried open for meat. Seaweed and wild vegetables were all chopped. A couple of stokes and the rice had expanded into porridge. Fish meat, shellfish meat, and seaweed were all thrown in. Using a large ladle, he stirred rice and fish together, covered for a few minutes, then added wild vegetables and wild onion, covered one more minute, sprinkled some salt—a pot of seafood rice was done.
+Fish heads, tails, and guts went into a separate pile; bodies were chopped into bite-sized pieces. Shellfish were pried open for their meat. Seaweed and wild vegetables alike were roughly chopped. A few stirs later, the rice had expanded into a thick porridge. In went the fish meat, shellfish, and seaweed all at once. Using a large ladle, Wu De stirred rice and fish together, covered the pot for several minutes, then added the wild vegetables and wild onion, covered it for one more minute, sprinkled in some salt—and a pot of seafood rice was ready.
 
-The fish offal plus worthless small fry could be fermented into fish sauce. The Cafeteria Office did not have cement tanks, but they had found some large ceramic vats from the Patrol Inspector's kitchen. Wu De instructed them in making fish sauce.
+The fish offal and worthless small fry could be fermented into fish sauce. The Cafeteria Office lacked cement tanks, but they'd salvaged some large ceramic vats from the Patrol Inspector's kitchen. Wu De instructed them in the art of making fish sauce.
 
-Theoretically, any fish could make fish sauce, but typically only small, worthless fry were used. Processing byproducts like fish offal also worked. Add about one-third the fish weight in salt, mix evenly, cover with bamboo-mat lids, press down with large stones—done. Fermentation was best at 30°C or higher. Wu De had them place the vats outdoors for better fermentation.
+Theoretically, any fish could produce fish sauce, but typically only small, worthless fry were used. Processing byproducts like fish offal worked just as well. Add roughly one-third the fish's weight in salt, mix thoroughly, cover with bamboo-mat lids, press down with heavy stones—and the work was done. Fermentation proceeded best at 30°C or higher, so Wu De had them place the vats outdoors to take advantage of the tropical heat.
 
-"It takes a year to mature," Wu De said. "But the flavor is incredibly delicious..."
+"It takes a full year to mature," he told them. "But the flavor is absolutely exquisite..."
 
-He also taught them salting and drying fish. Soon the kitchen reeked, fish-stench overwhelming, flies swarming. Everyone was barely enduring it. One girl finally could not take it and ran outside to vomit—today's seafood rice was beyond her enjoyment.
+He also taught them the techniques for salting and drying fish. Before long, the kitchen reeked with an overwhelming fish-stench, and flies swarmed in thick clouds. Everyone bore it as best they could. Finally, one girl couldn't take it anymore and fled outside to vomit—today's seafood rice would not be gracing her palate.
 
 **(End of Chapter)**

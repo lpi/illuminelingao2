@@ -1,75 +1,71 @@
 # Chapter 146: Casting Cannons (Part 3)
 
-Now the Artillery Group faced another choice: solid-casting plus deep-drilling for barrel manufacture, or continuing hollow-casting.
+The Artillery Group now faced a crossroads: should they pursue solid-casting with deep-drilling for their barrels, or continue refining their hollow-casting technique?
 
-"Next, let's try the drilling method? But first—we need to make a drilling machine." The Mechanical Group members were enthusiastic.
+"Why not try the drilling method next?" suggested the Mechanical Group members, their enthusiasm undimmed. "Though we'll need to build a drilling machine first."
 
-"The drilling method is trickier." Lin Shenhe thought. "Efficiency's also low. I'd suggest trying Rodman Casting."
+Lin Shenhe shook his head. "Drilling is finicky work, and the efficiency leaves much to be desired. I'd recommend we attempt Rodman Casting instead."
 
 "Center-cooling casting?" Wang Luobin asked.
 
-"You know about it?" Lin Shenhe was surprised. "I thought few in China knew."
+Lin Shenhe raised an eyebrow. "You've heard of it? I didn't think many people in China knew about the technique."
 
-"Personal hobby, purely personal hobby." Wang Luobin thought: if I weren't in a water-product nation, not as free as you in decadent America, I'd have cast cannons already.
+"Personal hobby," Wang Luobin replied with a slight shrug. "Purely a personal hobby." What he kept to himself was the thought: *If I hadn't been stuck in a nation where such things were frowned upon—not free like you in decadent America—I'd have cast my own cannons long ago.*
 
-So-called Rodman Casting: the internal-mold water-cooling method.
+The Rodman method, properly called internal-mold water-cooling, operated on an elegantly simple principle. The rate at which pig iron cooled during casting directly affected its mechanical properties—faster cooling produced harder material. Ideally, a cannon should be hardest at its center, around the bore where the greatest stresses occurred. But conventional casting produced exactly the opposite result. The bore cooled slowest for two inescapable reasons: first, the outer layers enclosed the inner ones, preventing the exterior from cooling before the interior; second, the outer surface area far exceeded the inner, and whether through radiation or convection, cooling rate remained proportional to surface area. The result was that the outside hardened first, leaving the barrel's density distribution far from optimal and dramatically reducing its service life.
 
-The principle was simple: pig iron's cooling rate during casting affects mechanical properties. Theoretically, faster cooling meant harder material. Ideal cannons should be hardest at the center (bore). But reality was the opposite—cannon casting had slowest center cooling. Because: first, outer layers enclosed inner layers—outer couldn't cool before inner. Second, outer surface area exceeded inner. Whether radiation or convection, cooling rate was proportional to surface area. So outside cooled first. This made barrel density distribution non-ideal—greatly reducing barrel lifespan.
+What cooled first also shrank first. When the outer layer hardened while the inner remained molten, the exterior became harder than the interior. The inner bore might warp, or cracks could propagate as the center finally cooled. This phenomenon drove up rejection rates, shortened barrel lifespans, and sometimes compromised firing performance entirely.
 
-First to cool meant first to shrink. If the outer layer hardened while the inner layer remained hot, the outer became harder than the inner. The inner bore might deform, or cracks might form during inner cooling. This raised casting rejection rates, shortened barrel lifespan, and sometimes affected firing performance.
+During the 1860s American Civil War, U.S. Army Major Thomas Jackson Rodman devised an ingenious solution: a hollow-casting process that placed water-cooled cores at the center of the mold. This forced the bore interior to harden first. As the outer metal subsequently cooled and contracted, it pressed inward against the already-hardened inner layers, placing them under compression. When propellant detonated, the explosive force would be absorbed by the entire thickness of metal surrounding the bore rather than expanding outward layer by layer. Throughout the Civil War and the two decades that followed, this method produced most of the U.S. Navy's heavy cast-iron artillery. Its greatest virtue was the dramatic reduction in casting rejections, particularly for the largest cannons.
 
-During the 1860s American Civil War, U.S. Army Major Thomas Jackson Rodman invented this hollow-casting process: casting around cores, with water-cooling inside the cores. This made bore interiors harden first. This was Rodman Casting. Outer metal cooling shrinkage pressed inward onto already-hardened inner layers. Thus, propellant explosions would be absorbed by the entire thick metal surrounding the bore—not expanding layer-by-layer outward. During the Civil War and following twenty years, this method produced most U.S. Navy heavy cast-iron cannons. Rodman Casting's greatest significance: it dramatically reduced casting rejection rates, especially for heavy cannons.
+From a cost perspective, the advantages compounded. Fewer rejected castings meant lower production costs. Extended barrel lifespan meant reduced operating expenses over time.
 
-From a cost perspective, Rodman Casting dramatically reduced rejections, lowering casting costs. Secondly, this process dramatically extended barrel lifespan, reducing operating costs.
+The travelers faced enemies and potential enemies who commanded far greater manpower and resources. To prevail against such odds, the transmigrators needed to control every cost they could.
 
-The travelers' enemies and potential enemies controlled far greater manpower and resources. To defeat them, the transmigrators must control all costs.
+"This method is worth pursuing," Ji Wusheng said, working through the casting implications. "But we'll need a hard core capable of containing water—clay molds won't do."
 
-"This method's worth trying. But we'll need a water-containing hard-core—can't use clay molds anymore." Ji Wusheng considered the casting issues.
+"Iron-mold casting, then," someone suggested. "Apparently the Chinese invented that technique first."
 
-"Let's use iron-mold casting. Apparently the Chinese invented it first."
+"Correct—Gong Zhenlin developed it. The man was something of a genius."
 
-"Correct—Gong Zhenlin invented it. Quite a genius."
+Gong Zhenlin had served as deputy magistrate of Jiaxing County in Zhejiang, a position that would seem to have nothing to do with munitions. Yet his reputation for being "naturally clever" preceded him, and during the Opium War, Governor-General Yu Qian transferred him to the Ningbo military camp specifically to oversee cannon production.
 
-Gong Zhenlin was Jiaxing County deputy magistrate, Zhejiang—normally unrelated to the munitions industry. But he had a "naturally clever" reputation. During the Opium War, Governor-General Yu Qian transferred him to the Ningbo military camp specifically for cannon casting.
+At that time, Chinese cannon-casting remained extraordinarily primitive. The traditional method involved mixing clay with water to form molds, then casting molten metal layer by layer into pattern joints. These clay molds had to be completely dried before use—if the exterior appeared dry while moisture lingered within, contact with molten metal would flash that moisture into steam. The resulting cannons would be riddled with honeycomb voids; firing them risked bursting the barrel and killing the crew. Drying a clay mold often took a full month, and during rainy, snowy, or cold weather, the process stretched to two or three months. Worse still, each mold produced only a single cannon before being discarded. None were reusable.
 
-At that time, Chinese cannon casting was extremely backward. The method was:
+From these accounts, it was clear that the techniques employed by Chinese cannon smiths in the 1840s matched the pre-1713 European methods the transmigrators had experimentally replicated. Yet simple refinements that European smiths had adopted a century and a half earlier—mold reinforcement ribs, kiln-firing the molds, post-casting bore polishing—remained completely unknown.
 
-Using water-mixed clay to make molds, then casting metal layer-by-layer into pattern joints. Clay molds had to be completely dried—otherwise, the outside might appear dry while the inside remained moist. Meeting molten metal, moisture would generate steam. Resulting cannons would have honeycombs; firing might burst barrels and injure personnel. Drying clay molds often took a month—rainy, snowy, or cold weather required two to three months. Moreover, each clay mold produced only one cannon—immediately discarded. Non-reusable.
+The craftsmen worked without standardized mold-making procedures; dimensions and techniques existed only in their memories. Proper cannon proportions received little attention. These already-obsolete methods constituted the artisans' livelihoods and were jealously guarded as "secret techniques." No technical exchange occurred; no improvements emerged. The craft existed in complete isolation from the era, yet paradoxically fragmented into multiple closed schools, each keeping its methods hidden from the others. The predictable result: the cannons produced were inferior even to Ming-dynasty copies of the Red Barbarian Cannon.
 
-From these descriptions, 1840s Chinese cannon smiths' techniques matched the pre-1713 European casting methods the transmigrators had experimentally used. But simple processing techniques European smiths used 150 years earlier—like mold reinforcement ribs, mold firing, post-casting bore polishing—were completely unknown.
+Gong Zhenlin faced a crisis. With warfare raging, cannon losses mounting, and demand insatiable, he could not afford to wait a month for each batch. Through determined experimentation, he finally invented iron-mold cannon casting.
 
-Craftsmen had no mold-making standards—dimensions and techniques existed only in memory. Cannon proportions weren't valued. These already-obsolete techniques were craftsmen's livelihoods—regarded as "secret methods." No technical exchange; no improvement. Disconnected from the era, yet multiple completely closed, mutually secret "schools" existed. The result: produced cannons were even inferior to Ming-era Red Barbarian Cannon copies.
+The process used iron to create rigid, reusable molds. Before casting, workers brushed two layers of slurry inside each mold segment. The first layer consisted of fine rice-hull ash mixed with sand-clay; the second, high-quality fine kiln coal suspended in water. The segments were then assembled and clamped together with iron hoops, heated thoroughly, connected end-to-end, and finally filled with molten metal. Once the liquid had set and cooled sufficiently, the iron-mold segments were removed like peeling bamboo shoots—gradually exposing the barrel. The internal clay core was extracted last, leaving a bore interior that emerged naturally smooth.
 
-Gong Zhenlin—facing urgent warfare, high cannon losses, and enormous demand—couldn't wait one month per batch. After experimentation, he finally invented iron-mold cannon casting.
+Compared to traditional clay-mold casting, the advantages were transformative. The barrels produced were high-quality with smooth interiors and exteriors, free from the air bubbles that plagued clay molds. The laborious preparation and interminable drying periods vanished—production became fast and weather-independent. Reusable molds enabled rapid output, high volume, and low cost. But the greatest significance lay in standardization. For the first time, manufacturing could produce batches of cannons with nearly identical external appearance and performance—a consideration of paramount importance for artillery.
 
-Iron-mold casting: using iron to make hard molds. When casting, first brush two-layer slurry inside each mold segment. First layer: fine rice-hull ash and fine sand-clay. Second layer: top-quality fine kiln coal mixed with water. Then assemble the segments, clamp with iron hoops, heat thoroughly, connect segments end-to-end, finally pour molten metal. After sufficient liquid and cooling, immediately remove iron-mold segments like peeling bamboo shoots—gradually exposing the barrel. Remove the internal clay core—the bore interior naturally smooth.
+Colleagues praised the innovation extravagantly: "The method is extremely simple; its application extremely convenient. One worker achieves the benefit of a hundred; one cannon saves tenfold the cost. Casting produces immediately, without delays. Flawless and naturally smooth. Half the effort, double the results, with endless utility. He has pioneered untrodden paths and opened methods for a thousand years. How could such military benefit to the nation be called trivial!"
 
-Compared to traditional clay-mold casting, iron-mold advantages: produced barrels were high-quality with smooth interior and exterior—unlike clay molds causing air bubbles. No laborious clay-mold preparation and waiting—production was fast, weather-independent. Reusable molds meant fast production, high output, low cost. Greater significance: standardized manufacturing. Standardization produced batches of nearly identical external appearance and performance—crucial for cannons.
+Gong Zhenlin's iron-mold casting preceded comparable Western techniques by thirty years—one of China's rare modern-era achievements in world-leading technology.
 
-Colleagues praised: "Method extremely simple; usage extremely convenient. One worker achieves hundreds workers' benefit; one cannon saves tens-of-times cost. Casting produces immediately; no delays. Flawless; naturally smooth. Half effort, double results; endless utility. Pioneering untrodden paths; opening thousand-year methods. Its military benefit to nation—how could it be trivial!"
+The Artillery Group returned to pester the Lumber Factory, first producing wooden positive-molds. Then Ji Wusheng and Zhan Wuya collaborated on sand-casting to create iron negative-molds for the actual cannon casting. The cores were also iron—hollow inside—with water inlet and outlet pipes fitted at either end.
 
-Gong Zhenlin's iron-mold casting preceded the West by thirty years—one of China's few modern-era world-leading technologies.
+When molten metal filled the molds, it began its slow cooling. Then the water circulating through the inner core came into play—the metal nearest the core cooled first, solidifying into steel, while the outer portions cooled more gradually. Due to thermal expansion and contraction, by the time the entire casting had cooled, the slower-cooling outer portions had constricted tightly around the earlier-cooled inner portions. This generated an inward clamping force that enabled the barrels to withstand far greater chamber pressures—the controlled cooling of the internal mold achieving what was known as the "barrel self-stressing" effect.
 
-The Artillery Group continued bothering the Lumber Factory—first making wooden positive-molds. Then Ji Wusheng and Zhan Wuya together performed sand-casting to make iron negative-molds for cannon casting. Cores were also iron—hollow inside—with water-inlet and outlet pipes at the ends.
+Self-stressed barrels enjoyed dramatically extended service lives. They also permitted substantially reduced barrel thickness, cutting weight and improving mobility.
 
-When molten metal was poured into molds, it began slowly cooling. Then the inner-core water came into play—metal nearest the core cooled first, solidifying to steel, while outer metal cooled slower. Due to thermal expansion and contraction, when the entire casting cooled, the outer slower-cooled portions tightly constricted the inner earlier-cooled portions. This generated inward clamping force—enabling barrels to withstand greater chamber pressure. This internal-mold-controlled cooling achieved the "barrel self-stressing" effect.
+The Rodman Casting process itself was surprisingly straightforward. With the molds prepared, the Artillery Group quickly produced their first finished cannon. This piece was far superior to any clay-mold version—most notably, it required no bore polishing. The smoothness of the bore had improved markedly. Some polishing remained necessary, but tool consumption dropped considerably.
 
-Self-stressed barrels had dramatically extended lifespan—also allowing greatly reduced barrel thickness, reducing weight and increasing mobility.
+To verify that the cast cannons met their technical parameters, the Artillery Group scheduled test-firing at Bopu. The shells were solid shot of cast iron, with bore-gap tolerances carefully controlled during casting. The Mechanical Group constructed two-wheeled carriages for both cannons and built ammunition limbers to accompany them. The assembled pieces looked quite professional. Wang Luobin visited the farm and managed to borrow four horses. But on-site, a problem emerged: no one had suitable multi-horse harnesses. The two-wheeled carts used for road transport employed single horses, and harnesses for those had simply been purchased from the original timespace. Nobody knew how to make harnesses for multiple-horse teams. In the end, they had to consult the resource library yet again, finally finding the answer in a photograph.
 
-Rodman Casting's process was extremely simple. With molds ready, the Artillery Group quickly produced the first finished cannon. This cannon was far superior to clay-mold versions—especially requiring no barrel polishing. Bore smoothness was greatly improved. Though still needing bore polishing—tool consumption was much reduced.
+Before the harnesses could be completed, the impatient Navy got word that the cannons were finished and immediately dispatched a rowboat. The two six-pounders and their carriages were lashed to rafts made from empty oil drums and towed by the rowboat to Bopu Harbor.
 
-To verify cast cannons met technical parameters, the Artillery Group decided to test-fire at Bopu. Shells were cast cast-iron solid shot. Casting carefully controlled bore-gap tolerances. The Mechanical Group built two-wheeled carriages for these two cannons—plus ammunition limbers. They looked quite proper. Wang Luobin visited the farm—finally borrowing four horses. But on-site, a problem emerged: no suitable multi-horse harnesses. Road-running two-wheeled carts used single-horse—harnesses had been directly bought from the original timespace. Nobody knew how to make harnesses. Finally, resorting to the resource library again—finding the answer from a photograph.
+The cannons were set up on open ground beside the Bopu shipyard. Spectators streamed past in an endless parade—the Navy men especially, nearly all of them finding excuses to fondle the two black-iron guns. Beautiful from every angle, they agreed. One sailor named Li Haiping proposed mounting them on ships immediately.
 
-Before harnesses were made, the impatient Navy heard cannons were finished—immediately sending a rowboat to transport. Two six-pounders and carriages were lashed to empty-oil-drum rafts, tow-hauled by rowboat to Bopu Harbor.
+"Mount them on ships?" Zhang Bailin bristled the moment he heard, leaping to object. "Look clearly—these are towed six-pounder field cannons. Genuine Army guns."
 
-Cannons were placed on open ground beside the Bopu shipyard. Spectators streamed endlessly—especially Navy people, nearly all fondling these two black-iron cannons. They looked beautiful from every angle. One Navy man named Li Haiping simply proposed mounting cannons on ships immediately.
+Li Haiping looked thoroughly unimpressed. "Forget 'towed'—you got self-propelled artillery? These little popguns? The Navy doesn't even want them."
 
-"Mount on ships? Look clearly—these are towed six-pounder cannons. Genuine Army guns." Zhang Bailin, seeing his beloved cannons about to be Navy-snatched, immediately jumped to object.
+"What did you just say?!" Zhang Bailin's hackles rose; he looked ready to throw a punch and demonstrate Army strength firsthand.
 
-"Forget 'towed'—you got self-propelled? These little guns—the Navy doesn't even want them." Li Haiping looked unimpressed.
-
-"What did you say?!" Zhang Bailin's hair stood on end—wanting to punch him, showing the Army's strength.
-
-"What's there to argue?" Wang Luobin hurried over to mediate. "Whether these cannons can even fire is still unknown. Why bicker!"
+"What's there to argue about?" Wang Luobin hurried over to mediate. "Whether these cannons can even fire remains to be seen. Why bicker before we know?"
 
 **(End of Chapter)**
