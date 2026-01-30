@@ -190,7 +190,7 @@ Suddenly, airsoft usage at the transmigrator training camp skyrocketed, consumin
 
 It was called the Nevada Star Range—a piece of land the group had arranged to purchase in the desert. The old man who'd owned it had a terminal illness; he was selling desperately and the price was right. Though technically still in the escrow and closing process, an agreement had been reached for the group to use it during this period. Along with the land came various accessories—three hundred old steel targets, a Conex container converted to a range office, and five hundred wooden target frames. The old man had run it as a members-only shooting club for gun enthusiasts, but the location was too remote and members too few to turn a profit.
 
-At first, the group had only thought to use the land as a shooting range, but after multiple planning meetings, it had become a "multi-purpose training ground." Besides the existing range, they built rifle and handgun shooting areas, equipped two Quonset huts for storage, constructed a row of bungalows as dormitories, and brought in water and electrical infrastructure.
+At first, the group had only thought to use the land as a shooting range, but after multiple planning meetings, it had become a "multi-purpose training ground." Besides the existing range, they built rifle and handgun shooting areas, equipped two Quonset huts for storage, constructed a row of bungalows as dormitories, and brought in water and electrical infrastructure. A small machine shop occupied one corner of the property—ostensibly for routine repairs, but actually equipped for more ambitious projects.
 
 Wen Desi arrived with the first group. Beyond his special role as "Director General," he was genuinely interested in firearms and shooting—hence his insistence on joining the initial cohort. The flight from China was grueling; Wen Desi was among the minority who'd never traveled abroad. Upon deplaning in San Francisco, his first impression was the airport smelled strange—some odor he couldn't identify permeated everything. When he mentioned this later, others said they hadn't noticed anything.
 
@@ -217,6 +217,80 @@ At dinner, the rested members of the training cohort peppered Zhou Weisen with q
 "What rifles are we using?"
 
 "T91 and M21. We're also testing the SCAR-L and CZ805 this week."
+
+### Day One: Handguns
+
+The next morning, under Zhou Weisen's supervision, the training began in earnest. Fifteen transmigrators lined up at the pistol range, each with a Glock 17 and ten loaded magazines. Most had never touched a real firearm before.
+
+"First, safety." Zhou Weisen walked down the line. "Treat every weapon as if it's loaded. Never point at anything you don't intend to shoot. Keep your finger off the trigger until you're ready to fire. Know what's behind your target." He paused. "These four rules are religious commandments. Violate them and you're off my range."
+
+The first hour was dry-fire practice—no ammunition. Zhou Weisen demonstrated the proper grip: thumbs forward, fingers wrapped around the grip with the support hand covering the shooting hand. "Americans call this the 'thumbs forward' grip. It controls recoil better than conventional methods."
+
+One by one, he corrected their stances. Xiao Zishan kept leaning back, flinching in anticipation of recoil that hadn't yet occurred. "You're fighting a battle that hasn't started yet," Zhou Weisen told him. "Relax forward into the gun."
+
+When live ammunition finally arrived, the results were mixed. He Ming, who had served briefly in the PLA, shot competently from the start. Most others sprayed rounds across the target with inconsistent results. A few couldn't hit the target at all.
+
+"Don't worry about the score yet," Zhou Weisen reassured them. "Handgun accuracy takes thousands of rounds to develop. Today we're just building foundations."
+
+By afternoon, everyone had fired at least two hundred rounds. The brass-littered ground glittered in the desert sun. Several trainees nursed sore wrists.
+
+"Tomorrow, your muscles will ache," Zhou Weisen warned. "That's normal. We'll do stretches in the morning."
+
+### Day Two: Submachine Guns
+
+The MP5 felt familiar to anyone who'd played video games, but its real-world behavior surprised many trainees.
+
+"It fires faster than you expect," explained Zhou Weisen, demonstrating a three-round burst. The casings ejected in a perfect arc. "The key is controlling that muzzle. If you let it rise, your second and third rounds go into the sky."
+
+He set up a steel silhouette at twenty-five meters. "Watch." He raised the MP5, fired a controlled burst, and three rapid clangs echoed. "Now you try."
+
+The results were predictably chaotic. Full-auto fire proved irresistible to some trainees, who emptied entire magazines in seconds. Zhou Weisen patiently explained trigger discipline until they learned restraint.
+
+"In a real fight, you'll run out of ammunition before you run out of enemies," he reminded them. "Every round counts."
+
+By the end of day two, the group had consumed nearly eight thousand rounds of 9mm ammunition between the Glocks and MP5s. Zhou Weisen had anticipated this and stocked heavily.
+
+### Day Three: Rifles
+
+The rifle portion began with fundamentals: prone shooting, proper cheek weld, breathing techniques. The hundred-meter range stretched into the desert, steel plates positioned at various distances.
+
+"Your rifle," Zhou Weisen announced, holding up a T91, "is accurate out to four hundred meters with iron sights, six hundred with optics. Today we'll work at one hundred."
+
+The T91 proved popular despite initial resistance. Its light weight—under seven pounds—made it manageable for extended sessions. The optical sights, once zeroed, grouped impressively.
+
+"Not bad for Taiwanese garbage," Xiao Zishan admitted grudgingly.
+
+The M21 drew different reactions. Its familiar AK-pattern controls felt natural to some, but the heavier weight fatigued others quickly. Its accuracy lagged behind the T91, though still adequate for combat distances.
+
+"Different tools for different jobs," Zhou Weisen concluded. "The T91 for precision work, the M21 for volume."
+
+### Day Four: Tactical Shooting
+
+The tactical course was Zhou Weisen's pride. He'd designed it based on professional training curricula, incorporating movement, cover usage, and target transitions.
+
+"Real combat isn't standing still and shooting at paper," he explained. "You move. You find cover. You engage multiple threats."
+
+The course began with a simulated house-clearing exercise. Trainees moved through a plywood maze, engaging pop-up targets around corners. Some froze at first contact; others rushed recklessly. Zhou Weisen stopped and restarted the exercise repeatedly, drilling proper techniques.
+
+"Slow is smooth, smooth is fast," he repeated endlessly. "Don't race—flow."
+
+By evening, the cohort had developed rudimentary tactical awareness. They wouldn't win any SWAT competitions, but they could navigate a building without shooting each other.
+
+### Day Five: Evaluation
+
+The final evaluation was straightforward: demonstrate proficiency with standard handgun and rifle. Those who passed would continue with intermediate training during future visits; those who failed would repeat basics.
+
+The handgun test consisted of twenty-five rounds at varying distances. Minimum passing score: 200 out of 250 possible points. The rifle test required five out of ten hits on a steel plate at two hundred meters.
+
+Twelve of fifteen trainees passed. The three who failed weren't discouraged—they'd spent their lives at keyboards, not ranges. Zhou Weisen assigned them additional homework: grip strengtheners and dry-fire practice daily until they returned.
+
+"You have the fundamentals," he told the group at the farewell dinner. "Now you need repetition. Thousands of rounds over years. There are no shortcuts to competence."
+
+Wen Desi, who had proven a natural shooter, raised his glass. "To Zhou Weisen—who turned keyboard warriors into something slightly better."
+
+Laughter echoed across the desert night.
+
+---
 
 ---
 
@@ -258,15 +332,57 @@ With the rifle question settled, Zhou Weisen could finalize his manufacturer's l
 
 The manufacturing capability was modest at first—a CNC mill capable of cutting AR-15 lower receivers, the legally-defined "firearm" component. This gave them the ability to produce complete rifles without purchasing the serial-numbered part. Combined with their existing stock of T91 uppers, barrels, and accessories, they could assemble weapons domestically and avoid the importation paper trail.
 
+### Learning to Reload
+
+Before manufacturing ammunition from scratch, they needed to master reloading—the art of assembling cartridges from pre-made components. Zhou Weisen had recruited a local reloader, an elderly Korean War veteran named Bill, to teach the fundamentals.
+
+"Reloading isn't hard," Bill explained, demonstrating on a single-stage press. "It's precision work. Measure twice, load once." He walked them through the process: resize the case, prime it, charge with powder, seat the bullet, and crimp.
+
+Two members from the Mechanical Division—Zhou Xiaoming and Chen Li—had been designated as the "ammunition team." They would learn reloading first, then scale up to actual manufacturing. For the first week, they loaded 9mm under Bill's supervision, producing several thousand rounds that were immediately test-fired for quality verification.
+
+"Your loads are consistent," Bill pronounced after examining the spent brass. "No pressure signs. Good work."
+
+With 9mm mastered, they moved on to rifle calibers: 5.56 NATO and 7.62x54R. The rimmed Russian cartridge proved trickier—its rim required special shell holders and its long case demanded more careful powder measurement.
+
+"One grain over maximum, and you've got a grenade instead of a rifle," Bill warned. "Russian cartridges don't forgive mistakes."
+
+By month's end, the ammunition team could produce five hundred rounds of any caliber per day using manual presses. Zhou Weisen ordered a Dillon progressive press to increase output—at full speed, it could load a thousand rounds per hour.
+
+### Primer Experiments
+
+Manufacturing primers proved to be the most dangerous work. Commercial primers were readily available and cheap, but after crossing, they would need to produce their own. The chemistry wasn't complex—lead styphnate, barium nitrate, antimony sulfide—but the materials were impact-sensitive and prone to detonation.
+
+A small laboratory was established in a shipping container, located far from other buildings. Chen Li, who had a chemistry background, led the experiments.
+
+"The goal isn't mass production yet," he explained to the video-conferencing leadership. "It's proof of concept. Can we make primers that work reliably?"
+
+The first batches failed—either too sensitive, detonating during handling, or too insensitive, requiring multiple strikes to ignite. After three months of experimentation, they achieved a stable formula that matched commercial primer sensitivity within acceptable margins.
+
+"We can do this," Chen Li reported. "Not in large quantities yet, but the process is proven. After crossing, with proper facilities and scaled-up equipment, a thousand primers per day should be achievable."
+
+### Machine Gun Restoration
+
 More significant was the restoration project. Zhou Weisen had located sources for deactivated military surplus machine guns—weapons that had been demilitarized for import and sale as display items. The SG-43, a Soviet design from World War II, was available in quantity. So were various PKM variants. These weapons had been "dewatted" (deactivated to War Trophy standards) through cuts to the receiver and barrel.
 
 Two members of the Mechanical Division—Zhang Qiang and Liu Wei—arrived from China under cover as "technical consultants" for the armory business. Their actual purpose was restoring these machine guns to functionality.
 
 "The cuts are quite clean," Zhang Qiang observed, examining an SG-43 receiver. "Soviet design—simple, overbuilt. We can TIG weld the cuts and reinforcing plates, then heat-treat to restore hardness."
 
-The restoration work proceeded methodically over the following months. Barrels were easier—they simply manufactured new ones using the CNC lathe. Triggers, bolts, and other small parts were either sourced from surplus markets or fabricated from drawings.
+He pointed to the barrel. "This is more problematic. The bore is destroyed—they drilled holes through it. We'll need to manufacture new barrels entirely."
+
+The CNC lathe in the machine shop could produce barrels from chromoly steel blanks. Rifling was cut using a button rifling process—slow but effective. Each barrel took nearly a full day to produce, but quality was excellent.
+
+The first restored SG-43 was ready for testing after two months of work. They set it up on the rifle range at dusk, with the target at two hundred meters. Zhang Qiang loaded a belt of fifty rounds.
+
+"Fire in the hole," he called, and pressed the trigger.
+
+The SG-43 roared to life, brass casings arcing through the air, the distinctive sound of a heavy machine gun echoing across the desert. The steel plates downrange rang with impacts. When the belt was expended, Zhang Qiang examined the weapon with a satisfied expression.
+
+"Functions perfectly. No jams, no feeding issues. The welds held."
 
 By the end of the year, they had five functional SG-43s and three PKMs. Two of the SG-43s were modified for semi-automatic operation only—useful for training and maintaining legal plausibility. The rest remained select-fire.
+
+"These aren't precision weapons," Zhou Weisen cautioned the leadership. "They're suppression tools. But in the seventeenth century, precision won't matter—volume of fire will be overwhelming."
 
 ---
 
@@ -324,15 +440,52 @@ The change actually benefited the operation in ways they hadn't anticipated. Ope
 
 ## Part Ten: Final Preparations
 
+### The Mosin Acquisition
+
 The Mosin-Nagants arrived on a container ship at Long Beach. Seven hundred twenty rifles in three crates—Soviet military production from the 1930s through 1950s, packed in cosmoline and sitting forgotten in a Ukrainian warehouse until the importer arranged clearance and shipping.
 
-Zhou Weisen inspected them personally. The condition was mixed—some rifles looked nearly unfired, their bores bright and rifling sharp. Others showed heavy wear. A few had cracked stocks or damaged metal. But even the worst specimens could be cannibalized for parts.
+Zhou Weisen inspected them personally, spending two full days at the customs warehouse. The condition was mixed—some rifles looked nearly unfired, their bores bright and rifling sharp. Others showed heavy wear from decades of military service. A few had cracked stocks or damaged metal. But even the worst specimens could be cannibalized for parts.
 
-"At sixty dollars each, we can afford to be selective," he reported. "I recommend we clean and test all 720. Keep the best 500 for use, strip the rest for spare parts."
+"At sixty dollars each, we can afford to be selective," he reported to the leadership. "I recommend we clean and test all 720. Keep the best 500 for use, strip the rest for spare parts."
+
+The next question was who would clean them. Cosmoline—the heavy petroleum grease used for long-term storage—was notoriously difficult to remove. It required patience, heat, and mineral spirits. Zhou Weisen organized "cleaning parties" where visiting transmigrators would spend an afternoon stripping rifles between shooting sessions.
+
+"Think of it as homework," he told them. "You'll be using these rifles someday. Better to know them intimately."
 
 He also acquired another batch—500 rifles that had been contaminated during transport by leaking chemical drums on the same ship. The importer sold these at deep discount, barely ten dollars each. Most of the chemical contamination could be cleaned, though some rifles were badly pitted. Even those would cross with the group; they'd be better than nothing if needed.
 
-The training program had processed six cohorts by then. Every two months, a group of fifteen to twenty transmigrators arrived from China under various cover stories—corporate retreat, bachelor party, "security training seminar." Each group spent ten days at the range, beginning with basic handgun instruction and progressing through rifles, shotguns, and tactical scenarios. The curriculum expanded as Zhou Weisen and his assistants gained experience.
+"The seventeenth century doesn't have gun stores," Zhou Weisen reminded skeptics. "A marginal rifle is infinitely better than no rifle at all."
+
+### Training Cohorts
+
+The training program had processed six cohorts by then. Every two months, a group of fifteen to twenty transmigrators arrived from China under various cover stories—corporate retreat, bachelor party, "security training seminar." Each group spent ten days at the range, beginning with basic handgun instruction and progressing through rifles, shotguns, and tactical scenarios.
+
+The second cohort included several female transmigrators, which prompted Zhou Weisen to adjust his curriculum. Some of the women struggled with the Glock 17's grip size and recoil.
+
+"This is a common issue," he explained. "We'll issue you Glock 19s or 26s—smaller frames, same reliability. Some of you might prefer the .380 subcompact models."
+
+He was secretly pleased when several women out-shot their male counterparts. "Ego gets in the way," he told his assistant. "Women listen to instruction. Men think they already know."
+
+The third cohort included Military Division core members—the people who would form the transmigrators' primary combat force. Their training was significantly more intensive: night shooting, stress drills, team movement, vehicle tactics. Xi Yazhou arrived with this group and spent the entire ten days pushing himself to exhaustion.
+
+"The T91 is acceptable," he finally admitted on the last day. "I still don't like Taiwan, but the rifle is good."
+
+Zhou Weisen wisely said nothing.
+
+The fourth and fifth cohorts focused on specialty training: designated marksmen with accurized rifles, heavy weapons operators with the restored machine guns, and medical personnel learning to treat gunshot wounds. The sixth cohort was primarily leadership—department heads and section chiefs who needed at least basic proficiency.
+
+The curriculum expanded as Zhou Weisen and his assistants gained experience. By the final cohort, the training included:
+
+- Basic handgun qualification (Glock, revolver)
+- Rifle qualification (T91, M21)
+- Tactical movement and cover usage
+- Team coordination and communication
+- Night operations with flashlights and night sights
+- Medical response to gunshot wounds
+- Weapon maintenance and field repairs
+- Basic reloading of ammunition
+
+### Final Inventory
 
 By the final count, the North America group had accumulated:
 
@@ -341,32 +494,57 @@ By the final count, the North America group had accumulated:
 - 200 Glock 19/26 (general personnel issue)
 - 50 various revolvers (.38 Special and .357 Magnum)
 - 30 sample pistols for reverse engineering studies
+- 12 suppressed .22 LR pistols (special operations)
+
+**Submachine Guns:**
+- 20 MP5 (Military Division)
+- 10 UZI (surplus, acquired at auction)
 
 **Rifles:**
 - 600 M21 (semi-automatic, general issue)
 - 150 T91 (Military Division issue, heavy barrel, optics)
-- 720 Mosin-Nagant (mixed condition)
+- 720 Mosin-Nagant (mixed condition, including 500 chemical-damaged)
+- 50 accurized hunting rifles (.308 and .30-06)
 - Various sample rifles for reverse engineering
+
+**Shotguns:**
+- 100 Remington 870 (12-gauge, assorted barrel lengths)
+- 50 surplus military shotguns
 
 **Machine Guns:**
 - 5 SG-43 (3 semi-auto, 2 select-fire)
 - 3 PKM (restored)
+- 10 BREN guns (surplus, parts condition)
 
 **Ammunition:**
 - 400,000 rounds 9mm Parabellum
 - 300,000 rounds 5.56x45 NATO
 - 200,000 rounds 7.62x54R
+- 100,000 rounds 7.62x39 (for surplus AK testing)
 - 50,000 rounds .22LR
 - 30,000 rounds various (.380 ACP, .38 Special, .357 Magnum)
+- 20,000 rounds 12-gauge (assorted loads)
 
 **Manufacturing Equipment:**
 - Complete reloading press and dies for 9mm, 5.56, 7.62x54R
-- Bullet swaging equipment
+- Bullet swaging equipment (lead core, jacketed)
 - Brass drawing and forming dies
-- Containerized primer manufacturing laboratory (in testing)
-- CNC equipment for receiver and barrel production
+- Containerized primer manufacturing laboratory (proven functional)
+- CNC milling and lathe equipment for receiver and barrel production
+- Rifling button set for .30 caliber
+- Complete documentation library (prints, specifications, chemistry texts)
 
-Everything was packed for transport. Rifles were coated in protective grease and sealed in cosmoline-lined crates. Ammunition was boxed by caliber and type. Equipment was documented, photographed, and catalogued. The shipping containers—arranged through Lin Chuanqing's old contacts before his departure—waited at a warehouse in Carson, California.
+### Packing and Shipping
+
+Everything was packed for transport according to exacting specifications. Rifles were coated in protective grease and sealed in cosmoline-lined crates; wooden partitions prevented movement during shipping. Ammunition was boxed by caliber and type, with desiccant packets to prevent moisture damage. Equipment was documented, photographed, and catalogued in a master inventory database.
+
+The shipping containers—twenty-foot steel boxes, arranged through Lin Chuanqing's old contacts before his departure—waited at a warehouse in Carson, California. Each container was inspected for structural integrity and fitted with padlocks and tamper-evident seals.
+
+"Everything goes in properly labeled containers," Zhou Weisen instructed. "We might not be the ones unpacking it. Someone needs to know what's where."
+
+The final packing took two weeks. Every transmigrator who happened to be in town was pressed into service. When the last container was sealed, they gathered for a photograph—a dozen exhausted people standing before a wall of steel boxes, none of them smiling but all of them proud.
+
+"Three years of work," Zhou Weisen said. "Whatever happens next, we did our part."
 
 ---
 
