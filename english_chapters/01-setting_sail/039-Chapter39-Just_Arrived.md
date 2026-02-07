@@ -68,9 +68,9 @@ Ma Qianzhu played a card at his leisure. "Watching porn isn't illegal either—t
 
 "We're not watching porn either." Wei Aiwen was growing annoyed. Everyone here spoke in half-hints and roundabout allusions.
 
-"That would be called 'organizing group pornographic viewing.'" Xiao Zishan chuckled.
+"That would be called 'organizing group pornographic viewing.' Back during the Strike Hard campaign in the '80s, that alone would've been enough to get you shot." Xiao Zishan chuckled.
 
-"You're just making things up. Getting paid five cents for that?" Wei Aiwen shot back.
+"You're just making things up—executed for watching porn? Are you getting paid five cents too?" Wei Aiwen shot back.
 
 "Ah, the greatness of time." With that irrelevant pronouncement, Xiao Zishan continued flipping through his notebook. "I genuinely do feel something's off lately. A suspicious person showed up at the bus station yesterday."
 
