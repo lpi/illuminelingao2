@@ -32,3 +32,9 @@ yarn-error.log*
 # Logs
 logs
 *.log
+
+# Jupyter junk
+**/.ipynb_checkpoints
+
+# Large files
+*.wav
