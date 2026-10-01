@@ -5,7 +5,7 @@ A Node.js web scraper that extracts chapters from the Chinese web novel "临高�
 ## Overview
 
 This project contains:
-- **2,876 chapters** of the web serial "临高启明" (Lingao Qiming)
+- **2,943 chapters** of the web serial "临高启明" (Lingao Qiming)
 - Individual markdown files for each chapter
 - Automated scraping tools using Playwright
 
@@ -25,7 +25,7 @@ This project contains:
 - **Title**: 临高启明 (Lingao Qiming)
 - **Author**: 吹牛者 (Chuī Niú Zhě)
 - **Genre**: 历史军事 (Historical Military)
-- **Chapters**: 2,876
+- **Chapters**: 2,943
 - **Source**: 69书吧 (69shuba.com)
 
 ## Features
@@ -77,7 +77,7 @@ The markdown files can be easily converted to EPUB format using tools like:
 
 ## Status
 
-- ✅ Scraping completed: 2,876 chapters
+- ✅ Scraping completed: 2,943 chapters (through 第2943章 天津卫（十八）; Vol 11 天津卫 translated through Chapter 2939)
 - ✅ Content verified: Full Chinese text with proper formatting
 - ✅ File organization: Sequential numbering and consistent naming
 - ✅ Git repository: Ready for version control

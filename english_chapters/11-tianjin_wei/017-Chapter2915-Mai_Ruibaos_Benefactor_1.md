@@ -1,0 +1,61 @@
+# Chapter 2915: Mai Ruibao's Benefactor (1)
+
+Ding Ding picked up yet again the document envelope holding the unpublished manuscript and photographs of the Army's grand maneuvers at Zhaoqing — the one he had personally gone to the editorial office to intercept. The corners of the kraft envelope had gone furry with handling, and the red "NOT PERMITTED" stamp of the General Staff's Political Office, sitting across the flap, looked positively baleful under the lamp. He upended the whole business onto his desk — a dozen or more eight-by-ten photographs spread out with a riffle. In the black-and-white images, the Fubo Army's infantry squares were deploying into combat formation across the open ground outside Zhaoqing's walls, while the artillery's twelve-pounder Napoleons stood in a neat line at the edge of the paddies, muzzles trained on the earthen mounds in the distance where red target markers fluttered.
+
+At first he hadn't understood why Staff Officer Dongmen would deign to come to the newspaper in person. That afternoon, Dongmen Chuiyu had arrived in a crisply pressed Army colonel's uniform, his gold staff aiguillette dazzling to the point of indecency; even his shoes had been polished, and he had paused at the door to adjust his visor before stepping down from the carriage. Watching from the second-floor window as the carriage with General Staff plates rolled into the yard, Ding Ding had felt his stomach drop. This particular gentleman never appeared at the temple without a reason — and the reason was seldom anything good.
+
+Sure enough, once upstairs Dongmen dispensed with pleasantries entirely and led with a broadside: "President Ding, when your paper sent a reporter to cover the maneuvers at Zhaoqing, did anyone file for clearance with the Political Office beforehand?"
+
+Ding Ding blinked, then fished out of his desk drawer the official letter bearing Wei Aiwen's personal seal and smacked it down on the table. "Personal approval from your own Director Wei. Interview routes, filming limits, escort personnel — all spelled out in black and white."
+
+Staff Officer Dongmen glanced at the letter, the corner of his mouth twitched, and he said nothing. Then, pivoting neatly, he launched into a righteous denunciation of the paper's reporter: at the exercise site he had "approached a restricted military zone without authorization," "photographed equipment classified as secret," and "conducted interviews in flagrant violation of battlefield discipline" — item after item, the phrasing severe enough for the reading of an indictment at court-martial.
+
+Ding Ding listened with what patience he could muster until the words "suspected of leaking military secrets" floated past, at which point he could hold his tongue no longer. "Staff Officer Dongmen, I've sat on both the manuscript and the photographs. If you see problems, we can go through them point by point. But those four characters — 'leaking secrets' — are not a hat to be jammed onto just anyone's head."
+
+Dongmen Chuiyu's expression changed in an instant. An unnatural flush rose across that well-maintained face, and his voice climbed a register. "President Ding, you are shielding your subordinate! Let me tell you — according to regulations, photographing active-service equipment without authorization—"
+
+"The General Staff Political Office's own press clearance states explicitly that we may photograph equipment. And the permits issued to the press team — those were signed by you!"
+
+The sentence went into the man like a pin into a balloon. Staff Officer Dongmen's flush curdled to livid gray; his lips wobbled twice, and in the end he managed only a snort, turned on his heel, and left. His shoe heels drummed down the staircase loud enough for the whole building to hear.
+
+In the days after that thoroughly disagreeable meeting, Ding Ding gradually teased out threads of the story from other military Senators. First, someone over drinks at the Nanhai Café happened to mention that the after-action report on the Zhaoqing maneuvers had exposed no few problems in the Army's "new tactical system" — infantry and artillery couldn't keep step, communications ran entirely on signal flags and runners, and several of the simulated assaults had bogged down into a stumble. Worse still, in the "opposing force" exercise staged on the final day, the units playing the blue side had deployed a few asymmetric tricks and given the red main force a thorough mauling.
+
+It finally dawned on Ding Ding. So Staff Officer Dongmen, feeling his face slapped by the Zhaoqing results, had come to the newspaper to vent his spleen. And the intercepted dispatch happened to be the very one in which the reporter Mai Ruibao had devoted considerable ink to the tactical problems the exercise had laid bare — written tactfully, the wording kept scrupulously neutral, but the message running between the lines, that "the Army's new tactics leave considerable room for improvement," could not be hidden.
+
+Personal grievance or not, the General Staff's opinion was not something one could ignore — these were the years when the soldier was king, and such men were not to be offended. Ding Ding decided to pull the photographs — he was not about to wear the rap for leaking secret weaponry — and, after a round of revisions and polishing, run the text in the *Lingao Times* as a special dispatch. He took up the sheaf of manuscript paper again and read it through once more by the desk lamp's light.
+
+Honestly, that kid Ruibao had talent. A photojournalist by trade and an art man at that, he could turn out a decent news story. The weather on the day of the exercise, the beads of sweat on the soldiers' faces, the ruts the gun carriages had pressed into the mud — every detail came alive on the page; you read it and felt you were standing on the field. The prose was vivid and the language plain, with none of the "zhi-hu-zhe-ye" and reeking classical allusions the old-literati stringers leaned on, and not one wasted sentence.
+
+Ding Ding thought of the several aging *xiucai* the paper had hired out of Guangzhou — no, they were to be called stringers now — whose copy ran to "banners blotting out the sun, drums and horns in chorus," or "officers and men straining as one, sweeping all before them," page after page of threadbare cliché, beyond the power of any editor to save. One venerable gentleman, assigned a story on the commissioning of the new wharf crane, opened his piece with "Now the crane is an implement for the raising of objects" — at which point Ding Ding had nearly crumpled the manuscript into a ball and bounced it off the old man's face.
+
+Against that, Mai Ruibao's copy was a breath of clean air. The kid had barely had a day of proper schooling, but he had the spark, and he knew how to write words that people actually spoke. Ding Ding jotted a few suggestions in the margin and quietly made his plans: when the boy got back from Hong Kong, it would be time to load more onto his shoulders, assign him the serious interviews. A born seedling of journalism — it would be a shame not to raise him properly.
+
+Beneath the manuscript lay Mai Ruibao's application, sent on its winding way from Guangzhou. The letter paper was creased and wrinkled, the folds worn nearly through — clearly it had passed through quite a few hands before reaching Lingao. On the envelope was a three-cent Australian Song stamp, postmarked "Guangzhou Post, Third Month, Yimao Year."
+
+So the boy's wild shot had found its mark after all. Ding Ding knew the third counter-encirclement campaign was close at hand. There had been no announcement to the naturalized citizenry at large, but every relevant department was already mobilizing — the Army reshuffling its dispositions, the Navy requisitioning transports, the logisticians tallying the ammunition and rations in their warehouses; even the Special Chemical Regiment had begun prewar training. Matters like these could be hidden from the common folk, but not from the president of the newspaper.
+
+And in all likelihood it would be a real battle. In the first two counter-encirclement campaigns, the Kun bandits — no, the Ming army — had been thunder without rain: plenty of men came, but at the first real clash they collapsed like wet paper. This time, however, the intelligence said the Nanjing authorities appeared to be in earnest. The forces mustered, the funds and rations scraped together, the operational plans drawn up — all of it far more thorough than either previous round. Several Senators, in private discussion, had reached for the words "without precedent."
+
+The propaganda organs would necessarily embed reporters with the army to cover the campaign — that went without saying. Mai Ruibao's application had arrived at just the right moment; one might even make a modest model of him and give him a little publicity — a trainee reporter, naturalized-citizen born, volunteering for the front. The story practically wrote itself; it needed only to be told to break hearts.
+
+Ding Ding fished a cigarette from his drawer, lit it, and drew deep. The smoke climbed slowly through the lamp's column of light, twisting as it dispersed.
+
+And then, from somewhere beneath his breastbone, rose a tangle of feelings he could not easily name — worry threaded with rue. Mai Ruibao was still only a trainee, without seniority, without backing — not like Sun Shangxiang, who had Cheng Yongxin standing behind her, that powerhouse of a woman with real voice in the Senate. And now here was the Army in this mood, already at daggers drawn with the paper over one story. If Mai Ruibao reached the front and something went wrong for him, or — Ding Ding did not dare finish the thought — some accident befell him, whom could he count on to stand over him?
+
+Sending him to the front was, one way or another, a wager on fortune.
+
+The thought of Sun Shangxiang gave President Ding a headache. Ever since the young woman had been pushed into the water at the Great World wharf, she had been a trouble the newspaper could not shake off. Not that she herself was the trouble — truth be told, Sun Shangxiang had ability, and she filed copy diligently enough — the trouble was the Senator standing behind her.
+
+After an embarrassment as mortifying as the robbery and dunking at the Great World wharf, Madam Cheng had, remarkably, never once come to Ding Ding in person to make a scene. For a while this had puzzled him, even left him faintly uneasy — given her style in the Senate, letting such an affair pass without demanding heads was simply out of character.
+
+Only later did he slowly work out the flavor of it. She had judged it quite unnecessary to appear herself; a few dainty breezes fanned from behind a handkerchief, and Ding Ding would have Ms. Panpan to face in full tigress mode. That day Linda had come home without a kind look for him — first demanding to know how he could "send a female reporter alone to interview in a place like that," then working through "if she'd been killed, could you have borne the responsibility," and finally descending all the way to "your newspaper's safety rules are a pile of shit."
+
+Ding Ding tried to explain that going alone had been Sun Shangxiang's own insistence, and that law and order in the wharf district had always been good — whereupon Madam Linda shut him up with a single sentence: "Good? Then how did she end up pushed into the river?"
+
+Fine. To explain was to cover up; not to explain was to confess. Ding Ding shut his mouth and stoically absorbed three days of lectures, until his wife's anger had mostly burned off and the household returned to something like its normal temperature.
+
+From that day on, Ding Ding had made himself a private rule: keep the lady journalist's assignments inside Lingao as far as possible. City reporting; the suburbs at the very furthest; no out-of-town errands, full stop. If you can't beat them, avoid them. He was already turning over what legitimate means might shift her out of the *Lingao Times* altogether — transfer her to a magazine with little call for travel and less exposure to sensitive stories.
+
+He shook his head and did his best to drive the mistress-and-maid pair out of his mind's eye.
+
+The telephone rang at that very moment.
